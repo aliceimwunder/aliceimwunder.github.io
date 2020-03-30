@@ -60,6 +60,9 @@ Z.B. der Mensch damals, der Dich viel kritisierte, trug gerne Tennissocken, auf 
 ## Wirkung der kleinen erlernten Programme
 Wenn es in der Kindheit gut läuft, und man im außen Zuspruch und Selbstdurchsetzung erfahren konnte, hat man viele kleine selbst unterstützende Programme gelernt. Sie  tragen uns durchs Leben. Dann weißt Du, wie und wann Du Dich **durchsetzen kannst, ohne anderen Schaden zuzufügen** (Selbstdurchsetzung und Bindung gleichzeitig gelebt). Du weißt, wie Du Dich nach stressigen Erlebnissen selbst beruhigen kannst, ohne zu Alkohol oder Schokolade greifen zu müssen. Lebensenergie steht frei zur Verfügung. 
 
+![Kind macht Erfahrung](/assets/2020-03-28 Kind macht Erfahrung.jpg)
+Photo by 🇸🇮 Janko Ferlič on Unsplash
+
 Tja, und wenn es nicht Zuspruch sondern Kritik und Abwertung war?
 
 Ist es dauerhaft stressartig zu einem bestimmten Zeitpunkt im Leben gewesen (die kleinen Programme im Hirn speichern sich um so tiefer ein, je stärker sie mit Angst-Gefühlen bzw. **Stresshormonen** unterlegt werden), desto mehr machen wir uns schon als Kinder klein. 
