@@ -20,7 +20,10 @@ Manchen Kindern macht solch skurriles Verhalten der Erwachsenen nichts aus, die 
 
 Noch ein absoluter Klassiker sind **Mobbingzustände** im Arbeitsumfeld. 
 
-Im Grunde sind das alles Beispiele dafür, dass das eigene **Nervensystem Stress ausgesetzt** war, und die Möglichkeiten zur Verarbeitung des Stresses (Abbau von Adrenalin etc., beruhigendes Umfeld) im Vergleich zum Stressor zu gering sind. 
+Im Grunde sind das alles Beispiele dafür, dass das eigene **Nervensystem Stress ausgesetzt** war, und die Möglichkeiten zur Verarbeitung des Stresses (Abbau von Adrenalin etc., beruhigendes Umfeld) im Vergleich zum Stressor zu gering sind.
+
+![Kind allein auf Wiese sitzend](/assets/020-03-28 Kind allein auf Wiese sitzend.jpg)
+Photo by 🇸🇮 Janko Ferlič on Unsplash
 
 ## Glaubenssätze kommen frei Haus mitgeliefert
 Steckt man in einem Flashback fest, kommen dazu meist auch **stereotype Glaubenssätze**. Oft sind diese unbewusst. Im Geist spiegeln sie die Sätze wieder, die damals häufig im Außen geäußert wurden. “Bist Du denn zu allem zu blöd!?!”, “Kannst Du nie was richtig machen!?!”. “Jetzt konzentrier Dich halt mal!” 
