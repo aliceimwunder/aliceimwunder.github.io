@@ -22,7 +22,7 @@ Noch ein absoluter Klassiker sind **Mobbingzustände** im Arbeitsumfeld.
 
 Im Grunde sind das alles Beispiele dafür, dass das eigene **Nervensystem Stress ausgesetzt** war, und die Möglichkeiten zur Verarbeitung des Stresses (Abbau von Adrenalin etc., beruhigendes Umfeld) im Vergleich zum Stressor zu gering sind.
 
-![Kind allein auf Wiese sitzend](/assets/020-03-28 Kind allein auf Wiese sitzend.jpg)
+![Kind allein auf Wiese sitzend](/assets/2020-03-28 Kind allein auf Wiese sitzend.jpg)
 Photo by 🇸🇮 Janko Ferlič on Unsplash
 
 ## Glaubenssätze kommen frei Haus mitgeliefert
