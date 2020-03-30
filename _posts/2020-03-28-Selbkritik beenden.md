@@ -1,6 +1,7 @@
 Selbstkritik ist in Deutschland so etwas wie ein **Volkssport** - ausgeprägter als Fußball gucken, was in Deutschland schon schwierig ist.;-) Das ist sozusagen guter Ton im sozialen Umgang. 
 
-![Mann auf Bootssteg](/assets/2020-03-28 Mann allein auf Bootssteg.jpg)
+![Fels am Strand](/assets/2020-03-28 Fels am Strand.jpg)
+Photo by Emma Dau on Unsplash
 
 ## Selbstkritik kostet Energie
 Nur: Wenn Du wenig Energie hast, Du gerade sogar an einem Burnout herumlaborierst und Du so schnell wie möglich wieder auf die Beine kommen willst, dann gehört zum Energiemanagement dazu, Selbstkritik zu beenden. Denn Selbstkritik ist nicht nur **Selbstsabotage pur**, insgesamt entweicht Deine Lebensenergie. Oder um es mit den Worten von Andreas Goldemann zu sagen: Selbstkritik haut Dir Deinen ganzen Energiekörper zusammen! 
@@ -37,6 +38,8 @@ Auch die **Technik der Schamanen**: ich puste ungünstige Gedanken und Gefühle 
 
 Ans Ziel, Selbstkritik tiefgehend zu heilen, hatten diese Möglichkeiten mich allerdings noch nicht gebracht. Für mich fehlte ein Puzzleteil.
 
+![Mann auf Bootssteg](/assets/2020-03-28 Mann allein auf Bootssteg.jpg)
+
 ## Selbstdurchsetzung als Quelle der Selbstkritik wahrnehmen
 Ein **Zugriff aus der Traumatherapie** auf dieses Thema hatte für mich eine sehr tiefgreifende Veränderung gebracht: Selbstdurchsetzung gehört zu unserem Bauplan als Menschen. Das können wir nicht abstellen und ist auch im zarten Kindesalter enorm wichtig. (Alle Kinder kommen z.B., schon bevor sie sprechen können, zu dem Punkt: Mama, alleine! Papa, ich, ich, ich!) 
 
@@ -50,10 +53,7 @@ Doch aus der fehlenden Möglichkeit im Außen in bestimmten Lebenssituationen (E
 
 Z.B. der Mensch damals, der Dich viel kritisierte, trug gerne Tennissocken, auf die Du als Kind während der Kritik gestarrt hast. Schon geht das Programm “Selbstkritik” heute los, wann immer Du etwas Weißes am Boden aufblitzen siehst, ohne dass Dir das auch nur ansatzweise bewusst wird. 
 
-## Nutzen dieser Erklärung 
-Es hat ein bisschen gedauert, bis ich akzeptiert hatte. **Selbstkritik ist ein Schutzmechanismus und Schutzanteil** in uns selbst und kein Selbstsabotageprogramm. Diese Akzeptanz - im Grund Selbstakzeptanz - war der erste Schritt zur Heilung. Tiefes Mitgefühl für sich selbst und im Anschluss für andere Menschen (und eben nicht Selbstmitleid) kann aus dieser Akzeptanz wachsen. 
-
-## Wirkung kleiner erlernter Programme
+## Wirkung der kleinen erlernten Programme
 Wenn es in der Kindheit gut läuft, und man im außen Zuspruch und Selbstdurchsetzung erfahren konnte, hat man viele kleine selbst unterstützende Programme gelernt. Sie  tragen uns durchs Leben. Dann weißt Du, wie und wann Du Dich **durchsetzen kannst, ohne anderen Schaden zuzufügen** (Selbstdurchsetzung und Bindung gleichzeitig gelebt). Du weißt, wie Du Dich nach stressigen Erlebnissen selbst beruhigen kannst, ohne zu Alkohol oder Schokolade greifen zu müssen. Lebensenergie steht frei zur Verfügung. 
 
 Tja, und wenn es nicht Zuspruch sondern Kritik und Abwertung war?
@@ -63,6 +63,9 @@ Ist es dauerhaft stressartig zu einem bestimmten Zeitpunkt im Leben gewesen (die
 Ein: “Jetzt hab Dich doch nicht so!”, oder: “Nun gib doch mal Ruhe!” Oder: “Ein Indianer kennt kein Schmerz!” sind alles Klassiker aus unserer Kindheit. **Gesellschaftliche, ängstliche Vorstellungen** (“Mach doch erstmal Deine Ausbildung fertig!”, “Das ist doch Dein erster Job, den kannst Du nicht gleich aufgeben!” “Sei doch froh, dass Du eine Festanstellung hast!” “Komm, Du hast Kinder, da kannst Du doch Deine Ehe nicht gleich aufkündigen!”, blablabla) sind wunderbar unterstützend dafür, in solchen Endlosschleifen zu verharren. 
 
 Nervenberuhigung und Selbstbestätigung, dass alles auch in herausfordernden Zeiten ok ist, lernen wir damit nicht. 
+
+## Was bringt Dir diese Erklärung zur Ursache? 
+Es hat ein bisschen gedauert, bis ich akzeptiert hatte. **Selbstkritik ist ein Schutzmechanismus und Schutzanteil** in uns selbst und kein Selbstsabotageprogramm. Diese Akzeptanz - im Grund Selbstakzeptanz - war der erste Schritt zur Heilung. Tiefes Mitgefühl für sich selbst und im Anschluss für andere Menschen (und eben nicht Selbstmitleid) kann aus dieser Akzeptanz wachsen. 
 
 ## Den ersten Schritt zur echten Lösung
 Akzeptanz der inneren harten Glaubenssätze sowie der Selbstkritik *als Schutzanteil* in sich selbst (die man nicht einfach “wegmachen” kann, sollte, oder überhaupt will), war für mich der Anfang zur nachhaltigen Heilung. 
