@@ -16,10 +16,10 @@
 title: How I stayed home and solved my karma!
 email: alicewindolf@web.de
 description: >- # this means to ignore newlines until "baseurl:"
-  Du willst raus aus Erschöpfung, Burnout und überforderung und rein in Deine Schaffenskraft? 
-  Du willst Erfolg aus Deiner Mitte/Deinem Herzen magnetisch anziehen? Dann bist Du hier richtig. 
-  Ich schreibe zu seelischen Themen und Methoden, die sich einfach umsetzen lassen, ohne Gurugetue, und dafür mit spiritueller Power. 
-  Willkommen auf Deinem Weg in der 5. Dimension
+  Du willst raus aus Burnout und Überforderung dafür rein in Deine Schaffenskraft? 
+  Du willst Erfolg aus Deinem Herzen magnetisch anziehen? Dann bist Du hier richtig. 
+  Ich schreibe zu seelischen Methoden, die für mich zielführend und effizient waren. 
+  Willkommen auf Deinem Weg in die 5. Dimension
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "https://aliceimwunder.github.io" # the base hostname & protocol for your site, e.g. http://example.com
 # twitter_username: jekyllrb
