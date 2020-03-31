@@ -8,9 +8,9 @@ Du willst aus Deiner Mitte heraus mit **Leichtigkeit Erfolg magnetisch anziehen*
 
 ## Wer bin ich, Alice Windolf?
 
-- **Burnout Coach
-- Traumatherapeutin
-- 5.-Dimensions-Begleiterin
+- **Burnout Coach**
+- **Traumatherapeutin**
+- **5.-Dimensions-Begleiterin**
 
 ## Mein Weg in die 5. Dimension
 Ich lebe heute im Osten von Berlin. Direkt am Wald fast ohne jeden Straßenverkehr mit riesigem Garten. 
@@ -32,9 +32,8 @@ Lass uns daran zusammenarbeiten, dass Du Deinen gemütlichen Feierabend mit Dein
 Ich habe drei lange Burnout Phasen, häufige zum Teil schwere Infektionen und einen schweren Herzinfarkt hinter mir, bei dem die behandelnden Ärzte zu dem Schluss kamen, dass es dafür keine körperliche Ursache gebe. Ich bin aus meiner langjährigen Karriere als Juristin ausgestiegen, nachdem mein Körper sich komplett verweigerte. Ich bin als häufig umziehendes Stadtkind zur geerdeten Naturliebhaberin geworden, die genau weiß, wie sie ihre Kraft jeden Tag von neuem pflegt. 
 
 ## Äußerlich sah mein Weg ungefähr so aus: 
-Elite-Business-Master, Dirk Michael Lambert
-
-Besuch vieler Seminare zur Persönlichkeitsbildung, wie Aufstellungsarbeit, walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie)
+Besuch vieler Seminare zur Persönlichkeitsbildung, wie Elite-Business-Master, Dirk Michael Lambert, 
+Aufstellungsarbeit, walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie)
 
 Traumatherapieausbildung, arche medica
 
