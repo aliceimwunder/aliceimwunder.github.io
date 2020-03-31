@@ -8,9 +8,9 @@ Du willst aus Deiner Mitte heraus mit **Leichtigkeit Erfolg magnetisch anziehen*
 
 ## Wer bin ich, Alice Windolf?
 
-**Burnout Coach
-Traumatherapeutin
-5.-Dimensions-Begleiterin
+- **Burnout Coach
+- Traumatherapeutin
+- 5.-Dimensions-Begleiterin
 
 ## Mein Weg in die 5. Dimension
 Ich lebe heute im Osten von Berlin. Direkt am Wald fast ohne jeden Straßenverkehr mit riesigem Garten. 
@@ -58,4 +58,6 @@ Jurastudium in Potsdam und Berlin
 
 Servicemitarbeiterin in einem 4*Hotel in Cornwall
 
-Beginn meiner Yogapraxis zu Schulzeiten, Schulbesuche in Berlin, Florenz, Heidelberg und Schleswig-Holstein
+Beginn meiner Yogapraxis zu Schulzeiten, 
+
+Schulbesuche in Berlin, Florenz, Heidelberg und Schleswig-Holstein
