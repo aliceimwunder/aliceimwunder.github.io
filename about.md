@@ -4,7 +4,9 @@ title: About
 permalink: /about/
 ---
 
-Du willst aus Deiner Mitte heraus mit **Leichtigkeit Erfolg magnetisch anziehen**? Schnell und effizient **Deine Schwingung erhöhen**?  Burnout, Erschöpfung, Überforderung, das Gefühl, in einer herunterziehenden ewigen Zeitschleife festzustecken soll endlich hinter Dir liegen?
+Du willst aus Deiner Mitte heraus mit **Leichtigkeit Erfolg magnetisch anziehen**? Du willst Schnell und effizient **Deine Schwingung erhöhen. Burnout, Erschöpfung, Überforderung, das Gefühl, in einer herunterziehenden ewigen Zeitschleife festzustecken, soll endlich hinter Dir liegen?
+
+Ich helfe Menschen, in die 5. Dimension, in der Du mit großer Leichtigkeit Deine Schaffenskraft leben kannst. 
 
 ## Wer bin ich, Alice Windolf?
 
@@ -22,7 +24,7 @@ Leidenschaftlich gerne möchte ich Dir zeigen, wie Du in Deine Lebenskraft komms
 
 Lange habe ich gesucht, wie ich aus Burnout, Erschöpfung, Depression und chronische Krankheit aussteige. Irgendwann war sie da, die Schwingung der 5. Dimension, in die ich jeden Tag ein wenig mehr hinein lebe und -transformiere: Glückseligkeit und Freude aus dem Inneren ohne Grund, bedingungslose Liebe zu Allem, was ist, Manifestation des Erträumten. Das hat sehr, sehr wenig mit dem zu tun, was ich studiert hatte und womit ich meine Brötchen verdiente und was mir den direkten Weg zu Burnout und Herzinfarkt ebnete: Rechtswissenschaft. 
 
-Mein Wissen über den Weg in die 5. Dimension gebe ich gerne weiter. Eins schon einmal vorab: es ist viel zielführender, sich auf etwas zu zu bewegen als von etwas weg (auch wenn das in Momenten von Erschöpfung und Überforderung abwegig und unerreichbar klingt). Natürlich habe auch ich noch viel Weg vor mir. Mein Ziel ist die 7. Dimension im Physischen, ohne dabei seltsam ätherisch zu werden. Ich staune jeden Tag wieder darüber, wie viel noch zu erleben gilt. Wenn ich doch wieder ein Stück zurückfalle? Egal, dann stehe ich eben wieder auf, klopfe mir den Staub aus der Kleidung und danke der Erfahrung. Darin habe ich viel Erfahrung (oh man, was es doch fürn Mist auf diesem Planeten gibt… :-)))
+Mein Wissen über den Weg in die 5. Dimension gebe ich gerne weiter. Natürlich habe auch ich noch viel Weg vor mir. Ich staune jeden Tag wieder darüber, wie viel noch zu erleben gilt. Wenn ich doch wieder ein Stück zurückfalle? Egal, dann stehe ich eben wieder auf, klopfe mir den Staub aus der Kleidung und danke der Erfahrung. Darin habe ich viel Erfahrung (oh man, was es doch fürn Mist auf diesem Planeten gibt… :-)))
 
 Häufig tragen wir unpassende Strukturen aus der Familie in unseren “Broterwerb” und dann trotz all der Mühe und Anstrengung, steht am Ende des Tages nicht der wohl verdiente, gemütlicher Feierabend, sondern Erschöpfung und Überforderung, v.a. wenn man noch Kinder zu versorgen hat. 
 
