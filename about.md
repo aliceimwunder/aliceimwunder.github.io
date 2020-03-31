@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Du willst aus Deiner Mitte heraus mit Leichtigkeit Erfolg magnetisch anziehen? Schnell und effizient **Deine Schwingung erhöhen**?  Burnout, Erschöpfung, Überforderung, das Gefühl, in einer herunterziehenden ewigen Zeitschleife festzustecken soll endlich hinter Dir liegen?
+Du willst aus Deiner Mitte heraus mit **Leichtigkeit Erfolg magnetisch anziehen**? Schnell und effizient **Deine Schwingung erhöhen**?  Burnout, Erschöpfung, Überforderung, das Gefühl, in einer herunterziehenden ewigen Zeitschleife festzustecken soll endlich hinter Dir liegen?
 
 ## Wer bin ich, Alice Windolf?
 
@@ -33,16 +33,29 @@ Ich habe drei lange Burnout Phasen, häufige zum Teil schwere Infektionen und ei
 
 ## Äußerlich sah mein Weg ungefähr so aus: 
 Elite-Business-Master, Dirk Michael Lambert
+
 Besuch vieler Seminare zur Persönlichkeitsbildung, wie Aufstellungsarbeit, walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie)
+
 Traumatherapieausbildung, arche medica
+
 Heilpraktikerin für Psychotherapie, Berlin
+
 Coachingausbildung, arche medica
+
 Stellvertretenden Leiterin des Sekretariats des Petitionsausschusses des Abgeordnetenhauses von Berlin
+
 Referentin am Abgeordnetenhaus von Berlin
+
 Referentin in der Berliner Senatsverwaltung für Bildung
+
 Wissenschaftliche Assistentin für Staatsrecht in Bayreuth
+
 Erstes und Zweites Staatsexamen Berlin-Brandenburg
+
 Licence en droit, Paris II
+
 Jurastudium in Potsdam und Berlin 
+
 Servicemitarbeiterin in einem 4*Hotel in Cornwall
+
 Beginn meiner Yogapraxis zu Schulzeiten, Schulbesuche in Berlin, Florenz, Heidelberg und Schleswig-Holstein
