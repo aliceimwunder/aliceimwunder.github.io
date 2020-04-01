@@ -3,16 +3,20 @@ title: Selbstkritik beenden Teil 2
 ---
 ## Praktische Wege aus der Selbstkritik
 
-Hier nun Teil 2  des Blogartikels. (Zu Teil 1) 
+Hier nun Teil 2  des Blogartikels. 
+
+(Zu Teil 1) 
+
 Wie kommt man am besten raus, wenn im Heute innere, klare Befehle, "Jetzt lass das doch mal", oder ähnliches keine dauerhafte Wirkung haben? 
 
 ## Zu allererst der Nofallplan 
-Der Notfallplan stellt keine Heilung dar, sondern ist ein hilfreicher Stoppbuzzer. Wenn die Gefühle sehr unangenehm werden, kannst Du 
-an etwas stark Riechendem schnuppern oder
-in eine Ingwerknolle beißen oder
-10 Kniebeugen machen oder
-das Kleine 1x1 innerlich aufsagen oder 
-vergleichbar Körperliches 
+Der Notfallplan stellt keine Heilung dar, sondern ist ein hilfreicher Stoppbuzzer. Wenn die Gefühle unangenehm werden, kannst Du 
+- an etwas stark Riechendem schnuppern oder
+- in eine Ingwerknolle beißen oder
+- 10 Kniebeugen machen oder
+- das Kleine 1x1 innerlich aufsagen oder 
+- vergleichbar Körperliches 
+
 tun. Das klingt total irre, aber das sind handfeste Möglichkeiten, Dich sofort ins Hier und Jetzt und aus dem emotionalen Film von damals rauszuholen. 
 
 Gehe davon aus, dass Du nicht sinnvoll, logisch nachvollziehbar denkst, wenn Du in einem Flashback steckst. Also sollte Deine Notfallapotheke auf einem Zettel gut sichtbar stehen oder schon neben Dir liegen, z.B. das Fläschchen mit ätherischem Öl dastehen, damit Du ohne groß nachdenken kannst, sofort etwas tust. Wenn Du trotz Burnout noch fit genug für Sport bist, hilft auch Sport hervorragend, um so einen Film zu unterbrechen. 
