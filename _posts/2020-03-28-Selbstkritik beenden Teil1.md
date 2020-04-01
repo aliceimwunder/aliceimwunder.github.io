@@ -1,9 +1,9 @@
+## Selbstkritik kostet Energie
 Selbstkritik ist in Deutschland so etwas wie ein **Volkssport** - ausgeprägter als Fußball gucken, was in Deutschland schon schwierig ist. ;-) Das ist sozusagen guter Ton im sozialen Umgang. 
 
 ![Fels am Strand](/assets/2020-03-28 Fels am Strand.jpg)
 Photo by Emma Dau on Unsplash
 
-## Selbstkritik kostet Energie
 Nur: Wenn Du wenig Energie hast, Du gerade sogar an einem Burnout herumlaborierst und Du so schnell wie möglich wieder auf die Beine kommen willst, dann gehört zum Energiemanagement dazu, Selbstkritik zu beenden. Denn Selbstkritik ist nicht nur **Selbstsabotage pur**, insgesamt entweicht Deine Lebensenergie. Oder um es mit den Worten von Andreas Goldemann zu sagen: Selbstkritik haut Dir Deinen ganzen Energiekörper zusammen! 
 
 ## Das Verhalten mit Hirnforschung erklärt
