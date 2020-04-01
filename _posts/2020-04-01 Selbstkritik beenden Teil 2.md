@@ -13,18 +13,18 @@ Wie kommt man am besten raus, wenn im Heute innere, klare Befehle, "Jetzt lass d
 Der Notfallplan stellt keine Heilung dar, sondern ist ein hilfreicher Stoppbuzzer. Wenn die Gefühle unangenehm werden, kannst Du 
 - an etwas stark Riechendem schnuppern oder
 - in eine Ingwerknolle beißen oder
-- 10 Kniebeugen machen oder
-- das Kleine 1x1 innerlich aufsagen oder 
-- vergleichbar Körperliches 
+- das Kleine 1x1 innerlich aufsagen oder
+- 10 Kniebeugen machen oder 
+- vergleichbar körperliches Anstrengendes (z.B. Klo schrubben, auf der Stelle rennen...)
+tun. 
 
-tun. Das klingt total irre, aber das sind handfeste Möglichkeiten, Dich sofort ins Hier und Jetzt und aus dem emotionalen Film von damals rauszuholen. 
+Das klingt total irre, aber das sind handfeste Möglichkeiten, Dich **sofort ins Hier und Jetzt** und aus dem emotionalen Film von damals rauszuholen. 
 
-Gehe davon aus, dass Du nicht sinnvoll, logisch nachvollziehbar denkst, wenn Du in einem Flashback steckst. Also sollte Deine Notfallapotheke auf einem Zettel gut sichtbar stehen oder schon neben Dir liegen, z.B. das Fläschchen mit ätherischem Öl dastehen, damit Du ohne groß nachdenken kannst, sofort etwas tust. Wenn Du trotz Burnout noch fit genug für Sport bist, hilft auch Sport hervorragend, um so einen Film zu unterbrechen. 
+Gehe davon aus, dass Du nicht sinnvoll, logisch nachvollziehbar denkst, wenn Du in einem Flashback steckst. Bitte notiere Dir Deine **Notfallapotheke auf einem Zettel** gut sichtbar stehen oder lege Dir Deine Hilfsmittel gut sichtbar hing, z.B. das Fläschchen mit ätherischem Öl steht da, damit Du ohne groß nachdenken kannst, sofort etwas tust. Wenn Du auch mit Burnout/Erschöpfung fit genug für Sport bist, hilft auch Sport hervorragend, um so einen Film zu unterbrechen. 
 
-Und was wichtig zu wissen ist, die folgende Übung zeigt nur tiefgreifende Wirkung, wenn Du der Situation äußerlich ausgestiegen bist. Also falls Du gerade auch im Außen Kritik ausgesetzt bist, musst Du erst raus, und sei es, dass Du ein paar Wochen Dich krankschreiben lässt, zur Freundin fährst und den Partner/Partnerin da lässt, wo sie ist, die Eltern mal ein paar Wochen nicht anrufst, whatever. Solange Du aktuell im Außen kritisiert wirst, hilft die beste Übung nicht. Du kannst Dir mit Vergebenstechniken, schamanischen Atemübungen etc. Erleichterung verschaffen, aber die folgende Übung bitte in der Ruhe und Sicherheit durchgehen!
+Was wichtig zu wissen ist, die folgende Übung zeigt nur tiefgreifende Wirkung, wenn Du aus der ursprünglichen Situation äußerlich ausgestiegen bist. Also falls Du gerade auch im Außen Kritik ausgesetzt bist, musst Du erst raus, und sei es, dass Du ein paar Wochen Dich krankschreiben lässt, zur Freundin fährst und den Partner/Partnerin da lässt, wo er/sie ist, die Eltern mal ein paar Wochen nicht anrufst, whatever. *Solange Du aktuell im Außen kritisiert wirst, hilft die beste Übung nicht.* Du kannst Dir mit Vergebenstechniken, schamanischen Atemübungen etc. Erleichterung verschaffen, aber die folgende Übung bitte aus einer **sicheren Situation** heraus durchgehen.
 
-Dann geht es jetzt los: 
-
+## Dann geht es jetzt los: 
 Als allererstes die kritische Stimme im Kopf wertschätzen!!! Danke, dass Du mich damals Überleben hast lassen. Danke Dir! Klingt komisch, weil es sich so nach Selbstsabotabe anfühlt und nicht nach einem Schutzmechanismus. Hilft wirklich (weil es eben tatsächlich ein Schutzmechanismus ist. Dein Unterbewusstes weiß, dass es ein Schutzmechanismus ist.) Alleine diese Wertschätzung holt schon viel Druck aus dem eigenen System. 
 
 Sich vorstellen, in welchem Alter das ungefähr gewesen sein könnte. Meist hat man so eine Idee, wann man damit angefangen hat, mit der zermürbenden Kritik. Es kommt nicht darauf an, dass es objektiv wahr ist oder dass es die allererste Situation war. Es kann auch eine ganz typische Situation von damals sein. Es muss sich nur für einen selbst stimmig anfühlen. 
