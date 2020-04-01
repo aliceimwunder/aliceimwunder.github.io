@@ -1,5 +1,5 @@
 ---
-title: Energie schöpfen: Selbstkritik beenden Teil 2
+title: Energie schöpfen. Selbstkritik beenden Teil 2
 ---
 ## Praktische Wege aus der Selbstkritik
 
