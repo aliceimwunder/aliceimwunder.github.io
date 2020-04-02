@@ -9,7 +9,7 @@ Hier nun Teil 2  des Blogartikels.
 
 Wie kommt man am besten raus, wenn im Heute innere, klare Befehle, "Jetzt lass das doch mal", oder ähnliches keine dauerhafte Wirkung haben? 
 
-## Zu allererst der Nofallplan und Vorbereitung
+## Zu allererst der Nofallplan und die Vorbereitung
 Der Notfallplan stellt keine Heilung dar, sondern ist ein hilfreicher Stoppbuzzer. Wenn die Gefühle unangenehm werden, kannst Du 
 - an etwas stark Riechendem schnuppern oder
 - in eine Ingwerknolle beißen oder
@@ -18,16 +18,18 @@ Der Notfallplan stellt keine Heilung dar, sondern ist ein hilfreicher Stoppbuzze
 - vergleichbar körperliches Anstrengendes (z.B. Klo schrubben, auf der Stelle rennen...)
 tun. 
 
-Das klingt total irre, aber das sind handfeste Möglichkeiten, Dich **sofort ins Hier und Jetzt** und aus dem emotionalen Film von damals rauszuholen. 
+Das klingt total irre: das sind handfeste Möglichkeiten, Dich **sofort ins Hier und Jetzt** und aus dem emotionalen Film von damals rauszuholen. 
 
-Gehe davon aus, dass Du nicht sinnvoll, logisch nachvollziehbar denkst, wenn Du in einem Flashback steckst (Dein Neokortex, also der denkende Teil Deines Gehirns kann dann gerade nicht volle Leistung bringen). Bitte notiere Dir Deine **Notfallapotheke auf einem Zettel** gut sichtbar oder lege Dir Deine Hilfsmittel sofort greifbar bereit, z.B. das Fläschchen mit ätherischem Öl steht da, damit Du ohne groß nachdenken kannst, sofort einen starken angenehmen Geruch in der Nase hast. Wenn Du auch mit Burnout/Erschöpfung fit genug für Sport bist, hilft auch Sport hervorragend, um so einen Film zu unterbrechen. 
+Gehe davon aus, dass Du nicht sinnvoll, logisch nachvollziehbar denkst, wenn Du in einem Flashback steckst (Dein Neokortex, also der logisch denkende Teil Deines Gehirns kann dann gerade nicht volle Leistung bringen). Bitte notiere Dir Deine **Notfallapotheke auf einem Zettel** gut sichtbar oder lege Dir Deine Hilfsmittel sofort greifbar bereit, z.B. das Fläschchen mit ätherischem Öl steht da, damit Du ohne groß nachdenken kannst, sofort einen starken angenehmen Geruch in der Nase hast. Wenn Du mit Burnout/Erschöpfung fit genug für Sport bist, hilft auch Sport hervorragend, um so einen Film zu unterbrechen. 
 
-Für die weitere **Vorbereitung** ist außerdem wichtig: die nun folgende Übung zeigt nur tiefgreifende Wirkung, wenn Du aus der ursprünglichen Situation äußerlich ausgestiegen bist. Also falls Du gerade auch im Außen Kritik ausgesetzt bist, musst Du erst raus, und sei es, dass Du ein paar Wochen Dich krankschreiben lässt, zur Freundin fährst und den/die Partner/Partnerin da lässt, wo er/sie ist, die Eltern mal ein paar Wochen nicht anrufst (wer auch immer in Deiner Umgebung Dich deutlich spürbar kritisiert. Nicht gemeint ist natürlich, wenn Du Dich gelegentlich mal mit Deinem/r Partner/in oder anderen Menschen in die Wolle bekommst. Das ist normal. *Aber solange es bei Dir regelmäßig zum guten Ton gehört, dass Du im Außen kritisiert wirst, hilft die beste Übung nicht.* 
+Für die weitere **Vorbereitung** ist folgendes wichtig: die nun folgende Übung zeigt nur tiefgreifende Wirkung, wenn Du aus der ursprünglichen Situation äußerlich ausgestiegen bist. Also falls Du gerade auch im Außen Kritik ausgesetzt bist, musst Du erst raus, und sei es, dass Du Dich ein paar Wochen Dich krankschreiben lässt, zur Freundin fährst und den/die Partner/Partnerin da lässt, wo er/sie ist, die Eltern mal ein paar Wochen nicht anrufst (wer auch immer in Deiner Umgebung Dich deutlich spürbar kritisiert. Nicht gemeint ist natürlich, wenn Du Dich gelegentlich mal mit Deinem/r Partner/in oder anderen Menschen in die Wolle bekommst. Das ist normal. *Aber solange es bei Dir regelmäßig zum guten Ton gehört, dass Du im Außen angegriffen wirst, hilft die beste Übung nicht.* 
 
-In diesem Fall kannst Du Dir mit Vergebenstechniken, schamanischen Atemübungen, Engelenergien etc. Erleichterung verschaffen, aber die folgende Übung bitte aus einer **sicheren Situation** heraus durchgehen. Vergleiche das mit einer Wunde an Deinem Daumen. Solange Du darin herumpulst, kann die Wunde nicht richtig heilen, egal, wieviel Du sie besingst, Dir Heilung visualisierst oder Engel um Hilfe bittest oder was immer an energetischen Heiltechniken Du verwendest.
+2020-04-01 Haus im Grünen
+
+In diesem Fall kannst Du Dir mit Vergebenstechniken, schamanischen Atemübungen, Engelenergien etc. Erleichterung verschaffen, aber die folgende Übung bitte aus einer **sicheren Situation** heraus durchgehen. Vergleiche das mit einer Wunde an Deinem Daumen. Solange Du darain herumpulst, kann die Wunde nicht richtig heilen, egal, wieviel Du sie besingst, Dir Heilung visualisierst oder Engel um Hilfe bittest oder was immer an energetischen Heiltechniken Du verwendest.
 
 ## Dann geht es jetzt los: 
-1. Als allererstes die kritische Stimme im Kopf **wertschätzen**!!! "Danke, dass Du mich damals Überleben hast lassen!" Danke Dir! Klingt komisch, weil es sich so nach Selbstsabotabe anfühlt und nicht nach einem Schutzmechanismus. Doch Dein Unterbewusstes weiß, dass es ein Schutzmechanismus ist. (Siehe für die Erklärung Teil 1 dieses Blogbeitrages) Alleine diese Wertschätzung holt schon viel Druck aus dem eigenen seelischen System. 
+1. Als allererstes die kritische Stimme im Kopf **wertschätzen**!!! "Danke, dass Du mich damals mich beschützt!" Danke Dir! Klingt komisch, weil es sich so nach Selbstsabotabe anfühlt und nicht nach einem Schutzmechanismus. Doch Dein Unterbewusstes weiß, dass es ein Schutzmechanismus ist. (Siehe für die Erklärung Teil 1 dieses Blogbeitrages) Alleine diese Wertschätzung holt viel Druck aus dem eigenen seelischen System. 
 
 2. **Gehe in der Zeit zurück**: stelle Dir vor, in welchem Alter das ungefähr gewesen sein könnte. Meist hat man eine Idee, wann der Auslöser für die zermürbenden innere Stimme eingesetzt haben könnte. Es kommt nicht darauf an, dass es objektiv wahr ist oder dass es die allererste Situation war. Es kann auch eine ganz typische Situation von damals sein. Es muss sich nur für Dich selbst stimmig anfühlen. 
 
