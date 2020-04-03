@@ -1,5 +1,5 @@
 ---
-title: Energie schöpfen: Selbstkritik beenden Teil 1
+title: "Energie schöpfen. Selbstkritik beenden Teil 1"
 ---
 ## Selbstkritik kostet Energie
 Selbstkritik ist in Deutschland so etwas wie ein **Volkssport** - ausgeprägter als Fußball gucken, was in Deutschland schon schwierig ist. ;-) Das ist sozusagen guter Ton im sozialen Umgang. 
