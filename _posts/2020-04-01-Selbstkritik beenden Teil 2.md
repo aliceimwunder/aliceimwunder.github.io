@@ -51,7 +51,7 @@ Photo by Stefan Spassov on Unsplash
 
 9. Der dazugehörende **stereotype Glaubenssatz** (siehe Teil 1 des Blogbeitrags) löst sich meist von alleine im Lichte der Wertschätzung und des Bezeugens der Vergangenheit auf. Kannst Du ihn noch spüren, dann frage bei ihm nach. Genau! Du kannst Dir den Glaubenssatz wie vorher Dein jüngeres Ich als ein "Du" vorstellen. Es kann eine Mensch, ein Tier, ein Drache, ein Yak sein, was Dir dafür passend erscheint. Befrage diesen Anteil in Dir zu diesem Glaubenssatz. Wenn der stereotype Satz z.B. heißt "Keiner mag mich!", frag nach, wer ganz genau mag Dich nicht. Da können erstaunliche Antworten herauskommen. Mein Glaubenssatz war z.B., dass ich auf diesem Planeten überflüssig wäre. Genau nachgefragt kam heraus: "Für wen überflüssig?" Bei der Antwort stellte ich fest: Ja, klar, für diese konkreten Personen damals war ich in bestimmten Situationen eine Belastung. Und sie gaben mir das Gefühl, mich überflüssig zu fühlen. Ach so. Hinter dieser generalisierten Aussage steht eine ganz konkrete Situation. Diese lässt sich zum einen mit der oben beschriebenen Übung heilen, da er selbst auch ein Schutzanteil ist, zum anderen helfen im Anschluss für konkret umrissene Verletzung Vergebenstechniken wie Ho'oponopono oder die Bitte an die geistige Welt um Heilung. Denn nun ist die seelische Erfahrung tatsächlich bezeugt und erfahren.   
 
-
+![Haus im Grünen](/assets/2020-04-01 Haus im Grünen.jpg) 
 
 Wenn Du Dir der jüngere Person und vielleicht auch dem Glaubenssatz von damals voll und ganz innerlich in die Augen schaue kannst, hast Du es in der Regel geschafft. 
 
