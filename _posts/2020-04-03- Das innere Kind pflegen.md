@@ -66,3 +66,8 @@ Doch wenn die letzte Übung sehr viel Wut, Angst, Trotz oder Trauer hochholt, da
 
 Und nun viel Freude damit. Denn das ist es, was uns das innere Kind bringt: 
 **Sprudelnde Lebensfreude und Vitalität.**
+
+Ganz liebe Grüße
+Alice
+
+PS: Was sind Deine liebsten Wege, Deine inneren Kindanteile zu versorgen?
