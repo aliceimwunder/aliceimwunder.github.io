@@ -58,6 +58,7 @@ Und wenn Du gerne von mir Hilfe haben möchtest, dann buche Dir ein **kostenlose
 
 Kostenloses Strategiegespräch buchen: schreibe mir eine Email: alicewindolf[at]web.de oder hier klicken. 
 
-https://alicewindolf.youcanbook.me
+[Termin buchen](https://alicewindolf.youcanbook.me)
+
 
 
