@@ -56,7 +56,7 @@ Das tut es leider überhaupt nicht. Helfen kannst Du Dir und anderen, wenn **Dei
 ## Osterangebot
 Und wenn Du gerne von mir Hilfe haben möchtest, dann buche Dir ein **kostenloses Strategiegespräch**. Um in der Corona-Krise meinen Teil zur Besänftigung der Zeitlinien anzubieten, kannst Du bei mir ein kostenloses lösungsorientiertes Coaching in Anspruch nehmen. 
 
-Kostenloses Strategiegespräch: hier klicken. 
+Kostenloses Strategiegespräch buchen: schreibe mir eine Email: alicewindolf[at]web.de oder hier klicken. 
 
 https://alicewindolf.youcanbook.me
 
