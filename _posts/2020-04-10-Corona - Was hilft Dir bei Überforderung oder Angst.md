@@ -9,7 +9,7 @@ Zuerst notierst Du Dir, was Dir an der jetzigen Situation nicht gut tut. Welche 
 ### Wie die Schreibübung funktionieren kann, zeige ich Dir an meinem Beispiel: 
 Als im März angekündigt wurde, dass Schule und Hort schließen, war ich mir unsicher, ob ich als Privat-Grundschullehrerin tauge und ob wir hier zu dritt dauerhaft zu Hause ohne viel Kontakt zu anderen Kindern überleben. Mein Vater gehört nach den aktuellen Daten zu einer Hochrisikogruppe. Das macht mir Angst. 
 
-**Angst und Unsicherheit** dürfen jetzt bewusst gehen. Dafür habe ich handfeste Gründe, was es mir ohnehin leicht macht, an die Angstfelder der anderen anzudocken: 
+**Angst und Unsicherheit** dürfen jetzt bewusst gehen. Dafür habe ich handfeste Gründe, was es mir ohnehin leicht macht, an die Angstfelder der anderen nicht anzudocken: 
 
 ### Meine eigene Wahrnehmung zu Corona (und nicht die der anderen)
 Als ich letzte Woche in Berlin war (ich wohne mittlerweile in einem Dorf in der Nähe von Berlin) war für mich vor allem eine Pause spürbar, die gerade für alle entsteht - und dass sie dringend von den meisten Stadtbewohnern gebraucht wird. Die **gesamte Schwingung** um mich herum war auf einer **sich beruhigenden Richtung** unterwegs. Die Stimmung in Berlin hatte ich vorher immer als überreizt wahrgenommen. (Ich vermute, dass es sich in den anderen Großstädten in dieser Hinsicht nicht anders anfühlt, wobei ich wenig Lust verspüre, mich in die Energie jeder Stadt reinzustellen, um diese These für ganz Deutschland zu untermauern. ;-)) 
