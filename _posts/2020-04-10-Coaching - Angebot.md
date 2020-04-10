@@ -1,5 +1,5 @@
 --- 
-title: Lösungsorientiertes Coaching - mein Angebot zu Corona
+title: Kostenloses Coaching zu Corona
 ---
 
 ## Lösungsorientiertes Coaching, um in Deine Schaffenskraft zu kommen
@@ -20,3 +20,5 @@ Kostenloses Strategiegespräch buchen:
 </span>
 
 oder schreibe mir eine Email: alicewindolf[at]web.de 
+
+PS: [Was hilft Dir bei Überforderung oder Angst zu Corona?](/2020/04/10/Corona-Was-hilft-Dir-bei-%C3%9Cberforderung-oder-Angst.html)
