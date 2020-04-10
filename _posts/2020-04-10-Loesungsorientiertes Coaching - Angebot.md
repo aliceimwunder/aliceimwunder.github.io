@@ -1,5 +1,5 @@
 --- 
-title: Lösungsorientiertes Coaching - meine Angebot zu Corona
+title: Lösungsorientiertes Coaching - mein Angebot zu Corona
 ---
 
 ## Lösungsorientiertes Coaching, um in Deine Schaffenskraft zu kommen
