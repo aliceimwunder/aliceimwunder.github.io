@@ -11,3 +11,11 @@ lösungsorientierte Online-Coachings auf Skype an.
 
 ## Buche Dein kostenfreies Strategiegespräch. 
 Das Strategiegespräch dauert ca. 30 min. Darin klären wir gemeinsam, ob ein Coaching mit mir Dich unterstützt. Mein während der Corona-Krise kostenfreies Coaching wird aus ca. 1-3 Sitzungen à ca. 50-70 min bestehen. 
+
+Kostenloses Strategiegespräch buchen: 
+
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Termin buchen](https://alicewindolf.youcanbook.me)
+</span>
+
+oder schreibe mir eine Email: alicewindolf[at]web.de 
