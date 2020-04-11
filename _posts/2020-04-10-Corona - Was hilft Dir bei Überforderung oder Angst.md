@@ -37,7 +37,8 @@ Nicht nur mir tut die Ruhe unheimlich gut. Wenn ich in den blauen Himmel schaue,
 
 Also so, so ähnlich oder auch ganz anders kann Deine Aufzählung aussehen, was Du der Situation Positives abgewinnen kannst. 
 
-![Fels am Strand](/assets/2020-03-28 Fels am Strand.jpg)
+![leaves](/assets/2020-04-10-leaves.jpg)
+(Photo by Rémi Walle on Unsplash)
 
 ## Eine weitere Möglichkeit: Angst rauspusten
 Das **schamanische Ritual**, sich drei Blätter von einem Baum zu nehmen, oder drei einfache Steine aus der Natur, Dir vorstellen, wie Du die unangenehmen Gefühle hineinpustet, während Du sanft auf Deine Blätter oder Steine pustet, kann Wunder wirken. Dein Unterbewusstes kann dieses Bild wunderbar annehmen. Anschließend entlässt Du die Steine oder Blätter wieder in die Natur. Da wir noch spazieren gehen können, ohne gegen irgendwelche öffentlichen Auflagen zu verstoßen, ist diese Übung in jedem Park überall möglich. Dieses Ritual hilft, wenn es darum geht, etwas loszulassen, was nicht zu uns gehört. Und die Angst, die gerade in den Medien erzeugt wird, gehört definitiv nicht zu uns. Insofern rauspusten kann Dir Erleichterung bringen. Probiere es aus. Eine Variante davon ist, Dir eine Kerze anzuzünden, Ministöckchen in der Größe von Zahnstochern zu suchen, Deine Gefühle in die Stöckchen zu pusten und dann zuzusehen, wie Du sie abbrennst. (Das ist zumindest die sichere Variante Balkonvariante, ohne einen Waldbrand zu verursachen. In Brandenburg herrscht gerade höchste Waldbrandstufe, also ist ein Lagerfeuer mit größeren Stöcken nicht angesagt.)
