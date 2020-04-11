@@ -38,13 +38,13 @@ Mein Yogalehrer, den ich wegen meiner vielen Vorerkrankungen schon länger nicht
 ### Pause für die Natur
 Nicht nur mir tut die Ruhe unheimlich gut. Wenn ich in den blauen Himmel schaue, dann habe ich noch nie die Luft so sauber und den Himmel so intensiv erlebt. **Die Erde erholt sich gerade in rasender Geschwindigkeit**. Vermutlich wird dieser Zustand nicht von Dauer sein. Wenn unsere Wirtschaftsfritzen nach Corona meinen, man müsste jetzt erst recht aufs Gas treten und besonders viel Dreck in die Luft pusten, um all das angeblich Verlorene aufzuholen. (Wenn man sich überlegt, dass Zeit eine Illusion ist, wirkt es noch absurder als solche Aussagen schon zu normalen Zeiten sind.) Doch im Grunde wissen wir jetzt alle und haben es mit all unseren Sinnen einschließlich unserer Meßgeräte zu Stickstoffen und co. zum Anfassen für jeden Skeptiker in 3D und Farbe erlebt, wie schnell wir unserem Planeten etwas Gutes tun können und wie schnell er darauf dankbar reagiert. Auch daraus kann ich **tiefes Vertrauen in die Zukunft** ziehen. 
 
-Also so, so ähnlich oder auch ganz anders kann Deine Aufzählung aussehen, was Du der Situation Positives abgewinnen kannst. 
+So ähnlich oder auch ganz anders kann Deine Aufzählung aussehen, was Du der aktuellen Situation Positives abgewinnen kannst. 
 
 ![leaves](/assets/2020-04-10-leaves.jpg)
 (Photo by Rémi Walle on Unsplash)
 
 ## Eine weitere Möglichkeit: Angst rauspusten
-Das **schamanische Ritual**, sich drei Blätter von einem Baum zu nehmen, oder drei einfache Steine aus der Natur, Dir vorstellen, wie Du die unangenehmen Gefühle hineinpustet, während Du sanft auf Deine Blätter oder Steine pustet, kann Wunder wirken. Dein Unterbewusstes kann dieses Bild wunderbar annehmen. Anschließend entlässt Du die Steine oder Blätter wieder in die Natur. Da wir noch spazieren gehen können, ohne gegen irgendwelche öffentlichen Auflagen zu verstoßen, ist diese Übung in jedem Park überall möglich. Dieses Ritual hilft, wenn es darum geht, etwas loszulassen, was nicht zu uns gehört. Und die Angst, die gerade in den Medien erzeugt wird, gehört definitiv nicht zu uns. Insofern rauspusten kann Dir Erleichterung bringen. Probiere es aus. Eine Variante davon ist, Dir eine Kerze anzuzünden, Ministöckchen in der Größe von Zahnstochern zu suchen, Deine Gefühle in die Stöckchen zu pusten und dann zuzusehen, wie Du sie abbrennst. (Das ist zumindest die sichere Balkonvariante, ohne einen Waldbrand zu verursachen. Zumindest in Brandenburg herrscht gerade höchste Waldbrandstufe, also ist ein Lagerfeuer mit größeren Stöcken nicht angesagt.)
+Das **schamanische Ritual**, sich drei Blätter von einem Baum zu nehmen, oder drei einfache Steine aus der Natur, Dir vorstellen, wie Du die unangenehmen Gefühle hineinpustet, während Du sanft auf Deine Blätter oder Steine pustet, kann Wunder wirken. Dein Unterbewusstes kann dieses Bild wunderbar annehmen. Anschließend entlässt Du die Steine oder Blätter wieder in die Natur. Da wir noch spazieren gehen können, ohne gegen irgendwelche öffentlichen Auflagen zu verstoßen, ist diese Übung in jedem Park überall möglich. Dieses Ritual hilft, wenn es darum geht, etwas loszulassen, was nicht zu uns gehört. Und die Angst, die gerade in den Medien erzeugt wird, gehört definitiv nicht zu uns. Insofern Rauspusten kann Dir Erleichterung bringen. Probiere es aus. Eine Variante davon ist, Dir eine Kerze anzuzünden, Ministöckchen in der Größe von Zahnstochern zu suchen, Deine Gefühle in die Stöckchen zu pusten und dann zuzusehen, wie Du sie abbrennst. (Das ist zumindest die sichere Balkonvariante, ohne einen Waldbrand zu verursachen. Zumindest in Brandenburg herrscht gerade höchste Waldbrandstufe, also ist ein Lagerfeuer mit größeren Stöcken nicht angesagt.)
 
 ## Ho'oponopono mit Corona
 Corona ist ein Virus und damit ein Teil der Lebewesen auf diesem Planeten. Damit kannst Du auch mal probieren, ob Dir ein Vergebensritual (Ho'oponopono) hilft. Ich fand es für mich sehr kraftvoll. Hole ein Gefühl von **Dankbarkeit oder Liebe** in Dir hoch. Z.B. denke an Dein Kind, als noch ganz klein war, oder an Dein Haustier oder an einen wunderschönen Urlaubsort, an dem Du einmal warst. Dann sage laut folgende sätze: 
@@ -56,16 +56,18 @@ Corona ist ein Virus und damit ein Teil der Lebewesen auf diesem Planeten. Damit
 Wenn Du das Gefühl der Dankbarkeit, Liebe oder Wertschätzung in Dir halten kannst, während Du diese Sätze laut aussprichst, kann Angst nicht gleichzeitig in Dir für Kummer sorgen. Wir können nicht Liebe und Angst gleichzeitig spüren. 
 
 ## Haltet Abstand oder anders gesagt: 
+Ich würde zur Unterstützung empfehlen, ganz **klare Grenzen bei den Mengen an Infos aus den Medien* zu setzen**, egal ob Zeitung, Fernsehen, Twitter oder Facebook. Setzt man sich zu vielen Nachrichten aus, wird im Moment irgendwann selbst der Robusteste ganz aufgeregt und sitzt nur noch zu Hause mit Schokolade auf dem Sofa. (Zumdest hat man bei uns den Eindruck. Im Supermarkt fehlt nicht nur das Klopapier, auch das Süßigkeitenregal wirkt ein geplünderter als sonst.)
+
 Natürlich weiß ich, dass gerade Menschen ihre Familienangehörige im Krankenhaus wissen und sie nicht besuchen dürfen. Vielleicht verlieren sie sie sogar. In den Straßen und Supermärkten liegt eine unheimliche Angstschwingung. Läden und Cafés sind geschlossen, die Straßen unangenehm leer. Manch einer weiß nicht, ob er im nächsten Monat noch seine Brötchen verdienen kann... 
 
-Es geht mir nicht um beschönigen. Nur: merkst Du, wie stark die Energie sinkt, allein durch das Lesen dieser zwei Zeilen und hilft es irgendjemandem, wenn Deine Energie sinkt?
+Es geht mir nicht um beschönigen. Nur: merkst Du, wie stark die Energie sinkt, allein durch das Lesen dieser drei Zeilen und hilft es irgendjemandem, wenn Deine Energie sinkt?
 
-Das tut es leider überhaupt nicht. Helfen kannst Du Dir und anderen, wenn **Deine Energie steigt. 
+Das tut es leider überhaupt nicht. Helfen kannst Du Dir und anderen sinnvoll, wenn **Deine Energie steigt. 
 
 ## Osterangebot
-Und wenn Du gerne von mir Hilfe haben möchtest, dann buche Dir ein **kostenloses Strategiegespräch**. Um in der Corona-Krise meinen Teil zur Besänftigung der Zeitlinien anzubieten, kannst Du bei mir ein kostenloses lösungsorientiertes Coaching in Anspruch nehmen. 
+Wenn Du gerne von mir Hilfe haben möchtest, dann buche Dir ein **kostenloses Strategiegespräch**. Um in der Corona-Krise meinen Teil zur Besänftigung der Zeitlinien anzubieten, kannst Du bei mir ein kostenloses lösungsorientiertes Coaching in Anspruch nehmen. 
 
-Kostenloses Strategiegespräch buchen: 
+**Kostenloses Strategiegespräch buchen: 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Termin buchen](https://alicewindolf.youcanbook.me)
