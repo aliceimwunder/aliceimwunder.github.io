@@ -1,6 +1,9 @@
 ---
 title: Corona - Was hilft Dir bei Überforderung oder Angst?
 ---
+![Frau am Strand](/assets/2020-04-10-Frau am See.jpg)
+(photo by Luca Bravo on Unsplash)
+
 Erschreckend viele Menschen fühlen sich gerade irritiert, überfordert oder haben Angst vor der Zukunft. Wenn Du auf diesem Blog gelandet bist, geht es Dir oder einem Dir nahen Menschen vermutlich auch so. Dazu kann ich Dir drei einfache Übungen empfehlen, die helfen können, aus den durch die Medien erzeugten Angst herauszutreten. 
 
 ## Schreibe Dir auf, was Dir Corona Positives gebracht hat. 
@@ -33,6 +36,8 @@ Mein Yogalehrer, den ich wegen meiner vielen Vorerkrankungen schon länger nicht
 Nicht nur mir tut die Ruhe unheimlich gut. Wenn ich in den blauen Himmel schaue, dann habe ich noch nie die Luft so sauber und den Himmel so intensiv erlebt. **Die Erde erholt sich gerade in rasender Geschwindigkeit**. Vermutlich wird dieser Zustand nicht von Dauer sein. Wenn unsere Wirtschaftsfritzen nach Corona meinen, man müsste jetzt erst recht aufs Gas treten und besonders viel Dreck in die Luft pusten, um all das angeblich Verlorene aufzuholen. (Wenn man sich überlegt, dass Zeit eine Illusion ist, wirkt es noch absurder als solche Aussagen schon zu normalen Zeiten sind.) Doch im Grunde wissen wir jetzt alle und haben es mit all unseren Sinnen einschließlich unserer Meßgeräte zu Stickstoffen und co. zum Anfassen für jeden Skeptiker in 3D und Farbe erlebt, wie schnell wir unserem Planeten etwas Gutes tun können und wie schnell er darauf dankbar reagiert. Auch daraus kann ich **tiefes Vertrauen in die Zukunft** ziehen. 
 
 Also so, so ähnlich oder auch ganz anders kann Deine Aufzählung aussehen, was Du der Situation Positives abgewinnen kannst. 
+
+![Fels am Strand](/assets/2020-03-28 Fels am Strand.jpg)
 
 ## Eine weitere Möglichkeit: Angst rauspusten
 Das **schamanische Ritual**, sich drei Blätter von einem Baum zu nehmen, oder drei einfache Steine aus der Natur, Dir vorstellen, wie Du die unangenehmen Gefühle hineinpustet, während Du sanft auf Deine Blätter oder Steine pustet, kann Wunder wirken. Dein Unterbewusstes kann dieses Bild wunderbar annehmen. Anschließend entlässt Du die Steine oder Blätter wieder in die Natur. Da wir noch spazieren gehen können, ohne gegen irgendwelche öffentlichen Auflagen zu verstoßen, ist diese Übung in jedem Park überall möglich. Dieses Ritual hilft, wenn es darum geht, etwas loszulassen, was nicht zu uns gehört. Und die Angst, die gerade in den Medien erzeugt wird, gehört definitiv nicht zu uns. Insofern rauspusten kann Dir Erleichterung bringen. Probiere es aus. Eine Variante davon ist, Dir eine Kerze anzuzünden, Ministöckchen in der Größe von Zahnstochern zu suchen, Deine Gefühle in die Stöckchen zu pusten und dann zuzusehen, wie Du sie abbrennst. (Das ist zumindest die sichere Variante Balkonvariante, ohne einen Waldbrand zu verursachen. In Brandenburg herrscht gerade höchste Waldbrandstufe, also ist ein Lagerfeuer mit größeren Stöcken nicht angesagt.)
