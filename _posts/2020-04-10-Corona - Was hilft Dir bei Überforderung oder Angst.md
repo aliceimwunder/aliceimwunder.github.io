@@ -4,7 +4,7 @@ title: Corona - Was hilft Dir bei Überforderung oder Angst?
 ![Frau am Strand](/assets/2020-04-10-Frau am See.jpg)
 (photo by Luca Bravo on Unsplash)
 
-Erschreckend viele Menschen fühlen sich gerade irritiert, überfordert oder haben Angst vor der Zukunft. Wenn Du auf diesem Blog gelandet bist, geht es Dir oder einem Dir nahen Menschen vermutlich auch so. Dazu kann ich Dir drei einfache Übungen empfehlen, die helfen können, aus den durch die Medien erzeugten Angst herauszutreten. 
+Erschreckend viele Menschen fühlen sich gerade irritiert, überfordert oder haben Angst vor der Zukunft. Wenn Du auf diesem Blog gelandet bist, geht es Dir oder einem Dir nahen Menschen vermutlich auch so. Dazu kann ich Dir drei einfache Übungen empfehlen, die helfen können, aus der durch die Medien erzeugten Angst herauszutreten. 
 
 ## Schreibe Dir auf, was Dir Corona Positives gebracht hat. 
 Zuerst notierst Du Dir, was Dir an der jetzigen Situation nicht gut tut. Welche Gefühle hast Du dabei? Wenn Du die Gefühle wie Unwohlsein, Irritation, Angst, Melancholie etc. wahrgenommen hast (bitte nicht länger damit aufhalten, max. 2 Minuten das Negative wahrnehmen, reicht völlig aus), hälst Du Dir bewusst ein innerliches Stoppschild vor und stellst fest, dass das nunmehr beendet ist. Den Zettel entsorgst Du. Am besten gründlich zerreißen oder falls Du eine sichere Möglichkeit dazu hast, verbrennen. Schreibe Dir nun alles auf, was Dir Corona Positives gebracht hat. Wenn Dir mindestens 10 Punkte einfallen (es können auch ganz kleine Punkte sein), dann **schreibst Du Dich selbst sofort aus Überforderungsgefühle heraus**. Wann immer die unguten Gefühle zurückkehren, entscheidest Du Dich wieder klar, Dich für die positive Seite des Lebens zu öffnen. Vielleicht kannst Du zur Verstärkung ab und zu auf Deinen Zettel schauen, was es Dir Positives gebracht hat. 
@@ -73,5 +73,8 @@ Kostenloses Strategiegespräch buchen:
 
 oder schreibe mir eine Email: alicewindolf[at]web.de 
 
+Hilfreiche links: 
+[Bücher](https://flowsummit.wrage.de/index.php?id=781)
+[Binaurale Beats](https://angstfrei24.com/ref/Tu36627660/)
 
 
