@@ -75,7 +75,7 @@ Wenn Du gerne von mir Hilfe haben möchtest, dann buche Dir ein **kostenloses St
 
 oder schreibe mir eine Email: alicewindolf[at]web.de 
 
-Hilfreiche links: 
+**Hilfreiche Links**: 
 
 - [Bücher](https://flowsummit.wrage.de/index.php?id=781)
 - [Binaurale Beats bei Angst](https://angstfrei24.com/ref/Tu36627660/)
