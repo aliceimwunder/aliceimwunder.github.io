@@ -23,6 +23,9 @@ Meine Tochter kam im letzten Sommer in die erste Klasse. Dort hat sie sich nicht
 ### Meine Selbstwirksamkeit steigt spürbar
 Schulpflicht hielt ich früher für notwendig für alle. Doch nun habe ich festgestellt, dass ich Freilernern viel näher bin als gedacht. Es ist so **viel einfacher, meine Tochter zu Hause zu unterrichten** als ich mir das jemals vorher hätte vorstellen können (bisher hatte ich Freilerner eher für realitätsfern und ganz schön taff gehalten). Nun ordne ich diesen Zustand für meine Familie als riesigen Zuwachs an Eigenmacht und Eigenverantwortung ein, weil ich ihn selbst erlebe und nicht nur im Internet über Kinder ohne Schule lese. Ich erlebe jeden Tag, wie meine Tochter mit Begeisterung von sich aus Schreiben, lesen und rechnen lernt. Sie ist ein Bündel sprühender Kreativität. Unsere Seelen wachsen jeden Tag gemeinsam. 
 
+![Katze im Homeoffice](/assets/2020-04-10-Katze im Homeoffice.jpg)
+(photo by Paul Hanaoka on Unsplash)
+
 ### Stay Home und genieße die Pause
 Ich habe für mich festgestellt, wenn ich nur noch alle zwei Wochen einen Tag nach Berlin fahre und vielleicht noch einmal zwischendurch im nächsten Ort einkaufen gehe, dass mir das unglaublich gut tut. Ich hätte nicht damit gerechnet, dass ich so häuslich wäre. Ich bin eigentlich immer total gerne ins Café gegangen und war durchaus umtriebig. Aber eben auch häufig und tief erschöpft. Nun habe ich **durch die von außen auferlegte Pause auf einmal so viel Freiraum**, von zu Hause ein paar Stunden in der Woche auf meinem Sofa kreativ sein zu können und das mit Kind und komplett alle mitversorgen dürfen (mein Mann wurde dauerhaft ins Homeoffice geschickt.) 
 
