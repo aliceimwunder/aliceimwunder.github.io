@@ -74,11 +74,9 @@ Kostenloses Strategiegespräch buchen:
 oder schreibe mir eine Email: alicewindolf[at]web.de 
 
 Hilfreiche links: 
-[Bücher](https://flowsummit.wrage.de/index.php?id=781)
 
-[Binaurale Beats bei Angst](https://angstfrei24.com/ref/Tu36627660/)
-
-[Aufbauende Channelings](https://www.amraverlag.de/blog.php/ostermeditation-der-plejader-und-neue-botschaft-zur-aktuellen-lage/)
-
-[Frequenzen für das Immunsystem](https://www.youtube.com/playlist?list=PLCCSHhSayi1oib2_UvNgJqpQKsufaf907)
+- [Bücher](https://flowsummit.wrage.de/index.php?id=781)
+- [Binaurale Beats bei Angst](https://angstfrei24.com/ref/Tu36627660/)
+- [Aufbauende Channelings](https://www.amraverlag.de/blog.php/ostermeditation-der-plejader-und-neue-botschaft-zur-aktuellen-lage/)
+- [Frequenzen für das Immunsystem](https://www.youtube.com/playlist?list=PLCCSHhSayi1oib2_UvNgJqpQKsufaf907)
 
