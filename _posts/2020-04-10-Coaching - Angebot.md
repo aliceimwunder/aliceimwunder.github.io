@@ -6,7 +6,7 @@ title: Kostenloses Coaching zu Corona
 ![Kleiner Wasserfall](/assets/2020-04-10-Kleiner Wasserfall.jpg)
 (photo by mark-basarab on unsplash)
 
-Ich bin Burnout-Coach und helfe Menschen, aus Überforderung und Erschöpfung auszusteigen und in ihre Schaffenskraft zu kommen. Erfolg darf sich magnetisch mit Leichtigkeit einstellen. 
+Ich bin Burnout-Coach und helfe Menschen, aus Überforderung und Erschöpfung auszusteigen und in ihre Schaffenskraft zu kommen. Dein Erfolg darf sich mit Leichtigkeit einstellen. 
 
 Nachdem sich gerade unsere Umwelt um uns herum innerhalb kürzester Zeit tiefgehend ändert und so viele Schwierigkeiten haben, sich zu orientieren, biete ich derzeit ehrenamtlich lösungsorientierte **Online-Coachings** auf Skype an. 
 
