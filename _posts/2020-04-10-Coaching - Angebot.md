@@ -24,4 +24,3 @@ oder schreibe mir eine Email: alicewindolf[at]web.de
 
 PS: [Was hilft Dir bei Überforderung oder Angst zu Corona?](/2020/04/10/Corona-Was-hilft-Dir-bei-%C3%9Cberforderung-oder-Angst.html)
 
-![Alice](/assets/2020-04-10-Alice.jpg)
