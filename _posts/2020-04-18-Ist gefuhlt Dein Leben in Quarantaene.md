@@ -42,7 +42,11 @@ Viel Erfolg und wenn die Übung Dir gut tut, komme gerne wieder und hinterlasse 
 
 Wenn Du Dir Unterstützung wünschst, während der Corona-Krise biete ich kostenlose Gesprächstermine an:
 
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Termin buchen](https://alicewindolf.youcanbook.me)
+</span>
 
+oder schreibe mir eine Email: alicewindolf[at]web.de 
 
 
 
