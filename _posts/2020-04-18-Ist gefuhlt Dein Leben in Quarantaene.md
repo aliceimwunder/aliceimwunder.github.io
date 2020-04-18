@@ -10,13 +10,13 @@ Ich habe den Eindruck, dass es gerade vielen Menschen zu Hause so ergeht: Sich v
 Was gerade zu kurz kommt, ist die **Bindung zu anderen Menschen**. Bindung ist das, was wir als Kind zum Überleben benötigen. Daher sind es gerade die inneren kindlichen Anteile, die sich melden, wenn die alltägliche Bindung zu Kollegen und Freunden nicht in der gewohnten Art und Weise stattfinden kann. 
 
 ## Wie Du Deinen inneren Kindanteil schnell selbst versorgen kannst: 
-Nimm Dir eine ruhige Minute und lass Deine Kindheit Revue passieren. Irgendein Moment, von dem Du sicher bist, dass **der Moment ungemütlich war**, weil Du Dich damals unverstanden oder unversorgt gefühlt hattest und stelle Dir diesen kleinen Menschen vor Dir vor, der Du damals warst. 
+1. Nimm Dir eine ruhige Minute und lass Deine Kindheit Revue passieren. Irgendein Moment, von dem Du sicher bist, dass **der Moment ungemütlich war**, weil Du Dich damals unverstanden oder unversorgt gefühlt hattest und stelle Dir diesen kleinen Menschen vor Dir vor, der Du damals warst. 
 
-Einfach “Hallo” sagen. “Schön, dass Du da bist.” Wenn das schon sehr emotional belastet ist, dann belasse es dabei und **sitze einfach ein bisschen mit diesem Bild**. Wenn Du merkst, dass Du Dich nicht mehr auf das Bild konzentrieren kannst, sag dem kleinen Menschen, dass Du wiederkommst und verabschiede Dich. Das kannst Du bei allen möglichen Gelegenheiten wiederholen. Es genügen wenige Minuten. 
+2. Einfach “Hallo” sagen. “Schön, dass Du da bist.” Wenn das schon sehr emotional belastet ist, dann belasse es dabei und **sitze einfach ein bisschen mit diesem Bild**. Wenn Du merkst, dass Du Dich nicht mehr auf das Bild konzentrieren kannst, sag dem kleinen Menschen, dass Du wiederkommst und verabschiede Dich. Das kannst Du bei allen möglichen Gelegenheiten wiederholen. Es genügen wenige Minuten. 
 
-Wenn Du das Bild von dem kleinen Menschen, der Du einmal warst gut halten kannst, ohne innerlich aus der Haut fahren zu wollen, kannst Du weitergehen. Du stellst Dir vor, wie Du **den kleinen Menschen in den Arm nimmst** und mit ihm sprichst. Genauso, wie Du mit einem verschreckten Kind zur Beruhigung sprechen würdest. Nicht kompliziert denken, das ist keine Raketenwissenschaft. 
+3. Wenn Du das Bild von dem kleinen Menschen, der Du einmal warst gut halten kannst, ohne innerlich aus der Haut fahren zu wollen, kannst Du weitergehen. Du stellst Dir vor, wie Du **den kleinen Menschen in den Arm nimmst** und mit ihm sprichst. Genauso, wie Du mit einem verschreckten Kind zur Beruhigung sprechen würdest. Nicht kompliziert denken, das ist keine Raketenwissenschaft. 
 
-Vielleicht kannst Du Deinem inneren Kindanteil **einen geschützten Raum, Garten, Spielplatz** oder ähnliches visualisieren. Sag ihm oder ihr, dass alles ganz sicher ist und dass Du Dich ab jetzt regelmäßig kümmerst. 
+4. Vielleicht kannst Du Deinem inneren Kindanteil **einen geschützten Raum, Garten, Spielplatz** oder ähnliches visualisieren. Sag ihm oder ihr, dass alles ganz sicher ist und dass Du Dich ab jetzt regelmäßig kümmerst. 
 
 Ein bis drei Minuten sind dafür ausreichend. Du kannst die Visualisierung beim Zähneputzen, beim Kaffeetrinken, wann immer Du gerade einen Moment geistigen Leerlauf hast, machen. 
 
