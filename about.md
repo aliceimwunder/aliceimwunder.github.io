@@ -11,7 +11,7 @@ Ich helfe Menschen, in die 5. Dimension, in der Du mit großer Leichtigkeit Dein
 ## Wer bin ich, Alice Windolf?
 
 - **Burnout Coach**
-- **Traumatherapeutin*, HP psych.*
+- **Traumatherapeutin*, HP psych.**
 - **5.-Dimensions-Begleiterin**
 
 ## Mein Weg in die 5. Dimension
