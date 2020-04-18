@@ -2,6 +2,7 @@
 title: Corona. Ist gefühlt Dein Leben in Quarantäne?
 ---
 
+Photo by Lukáš Rychvalský on Unsplash
 ## Wie Du Dich schnell wieder verbunden fühlen kannst.
 Gerade berichtete mir eine Klientin, dass sie zu Beginn der Quarantäne richtig glücklich war, ins Homeoffice geschickt worden zu sein. Die Entschleunigung hat ihr gut getan. Doch je länger die Stay-Home Maßnahmen dauern, **desto abgeschnittener** fühlt sie sich. 
 
