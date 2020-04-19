@@ -5,7 +5,7 @@ title: Energie schöpfen. Selbstkritik beenden Teil 2
 
 Hier nun Teil 2  des Blogartikels. 
 
-Zu [Teil 1](/2020/04/01/Selbstkritik-beenden-Teil-2.html) 
+Zu [Teil 1](/2020/03/28/Selbstkritik-beenden-Teil1.html) 
 
 Wie kommt man am besten raus, wenn im Heute innere, klare Befehle, "Jetzt lass das doch mal", oder ähnliches keine dauerhafte Wirkung haben? 
 
