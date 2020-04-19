@@ -29,7 +29,7 @@ Kleb Dir ein Post-it an den Zahnputzbecher oder stelle Dir etwas zur Erinnerung 
 ## Mit jedem Mal fühlst Du Dich verbundener
 Nach einer Weile werden die inneren Bilder sich verändern. Irgendwann will dieser Innenanteil wieder spielen, dann hat er **von Dir so viel Bindung erhalten**, dass er neugierig in die Welt zieht. So wie das echte Kinder auch tun: sobald sie sich der Bindung zu einem wichtigen Erwachsenen sicher sind, gehen sie die Welt untersuchen. Neugierige Innenanteile fühlen sich verbunden. Dann kannst Du mit einem inneren Kindanteil aus einem anderen Alter arbeiten. 
 
-
+![kleines Kind klettert los](/assets/2020-04-18-kleines Kind klettert los)
 Photo by Alexander Dummer on Unsplash
 
 ## Wie entstehen Anteile in uns, die sich unverbunden fühlen?
