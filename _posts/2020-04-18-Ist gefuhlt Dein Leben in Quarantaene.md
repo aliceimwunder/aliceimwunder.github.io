@@ -1,10 +1,11 @@
 ---
-title: Corona. Ist gefühlt Dein Leben in Quarantäne?
+title: Corona. Ist gefühlt Dein ganzes Leben in Quarantäne?
 ---
 
+![Mann am Meer](/assets/2020-04-18-Mann am Meer)
 Photo by Lukáš Rychvalský on Unsplash
 
-## Wie Du Dich schnell wieder verbunden fühlen kannst.
+## Wie Du Dich wieder verbunden fühlen kannst.
 Gerade berichtete mir eine Klientin, dass sie zu Beginn der Quarantäne richtig glücklich war, ins Homeoffice geschickt worden zu sein. Die Entschleunigung hat ihr gut getan. Doch je länger die Stay-Home Maßnahmen dauern, **desto abgeschnittener** fühlt sie sich. 
 
 Ich habe den Eindruck, dass es gerade vielen Menschen zu Hause so ergeht: Sich vom Leben und der Verbindung zu anderen Menschen abgeschnitten fühlen. **Im Außen können wir daran gerade nichts ändern.** Was immer und überall geht (und keine Behörde durch Anordnungen unterbinden kann), ist die Verbindung nach innen. 
