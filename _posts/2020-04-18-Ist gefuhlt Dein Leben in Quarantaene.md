@@ -3,14 +3,15 @@ title: Corona. Ist gefühlt Dein Leben in Quarantäne?
 ---
 
 Photo by Lukáš Rychvalský on Unsplash
+
 ## Wie Du Dich schnell wieder verbunden fühlen kannst.
 Gerade berichtete mir eine Klientin, dass sie zu Beginn der Quarantäne richtig glücklich war, ins Homeoffice geschickt worden zu sein. Die Entschleunigung hat ihr gut getan. Doch je länger die Stay-Home Maßnahmen dauern, **desto abgeschnittener** fühlt sie sich. 
 
 Ich habe den Eindruck, dass es gerade vielen Menschen zu Hause so ergeht: Sich vom Leben und der Verbindung zu anderen Menschen abgeschnitten fühlen. **Im Außen können wir daran gerade nichts ändern.** Was immer und überall geht (und keine Behörde durch Anordnungen unterbinden kann), ist die Verbindung nach innen. 
 
-Was gerade zu kurz kommt, ist die **Bindung zu anderen Menschen**. Bindung ist das, was wir als Kind zum Überleben benötigen. Daher sind es gerade die inneren kindlichen Anteile, die sich melden, wenn die alltägliche Bindung zu Kollegen und Freunden nicht in der gewohnten Art und Weise stattfinden kann. 
+Gerade kommt die **Bindung zu anderen Menschen** zu anderen Menschen zu kurz. Bindung ist das, was wir als Kind zum Überleben benötigen. Daher sind es gerade die inneren kindlichen Anteile, die sich melden, wenn die alltägliche Bindung zu Familie, Kollegen und Freunden nicht in der gewohnten Art und Weise stattfinden kann. 
 
-## Wie Du Deinen inneren Kindanteil schnell selbst versorgen kannst: 
+## Wie Du Deinen aus der Bindung gefallenen inneren Kindanteil selbst versorgen kannst: 
 1. Nimm Dir eine ruhige Minute und lass Deine Kindheit Revue passieren. Irgendein Moment, von dem Du sicher bist, dass **der Moment ungemütlich war**, weil Du Dich damals unverstanden oder unversorgt gefühlt hattest und stelle Dir diesen kleinen Menschen vor Dir vor, der Du damals warst. 
 
 2. Einfach “Hallo” sagen. “Schön, dass Du da bist.” Wenn das schon sehr emotional belastet ist, dann belasse es dabei und **sitze einfach ein bisschen mit diesem Bild**. Wenn Du merkst, dass Du Dich nicht mehr auf das Bild konzentrieren kannst, sag dem kleinen Menschen, dass Du wiederkommst und verabschiede Dich. Das kannst Du bei allen möglichen Gelegenheiten wiederholen. Es genügen wenige Minuten. 
@@ -19,13 +20,16 @@ Was gerade zu kurz kommt, ist die **Bindung zu anderen Menschen**. Bindung ist d
 
 4. Vielleicht kannst Du Deinem inneren Kindanteil **einen geschützten Raum, Garten, Spielplatz** oder ähnliches visualisieren. Sag ihm oder ihr, dass alles ganz sicher ist und dass Du Dich ab jetzt regelmäßig kümmerst. 
 
-Ein bis drei Minuten sind dafür ausreichend. Du kannst die Visualisierung beim Zähneputzen, beim Kaffeetrinken, wann immer Du gerade einen Moment geistigen Leerlauf hast, machen. 
+Ein bis drei Minuten täglich genügen durchaus, um Wirkung zu erziehlen, wenn mehr Zeit nicht zur Verfügung steht. Du kannst die Visualisierung beim Zähneputzen, beim Kaffeetrinken, wann immer Du gerade einen Moment geistigen Leerlauf hast, machen. 
 
 → **Ganz kleine Schritte sind ausreichend**. Wichtig ist nur, es kontinuierlich zu tun.
 Kleb Dir ein Post-it an den Zahnputzbecher oder stelle Dir etwas zur Erinnerung neben die Kaffeemaschine. Was auch immer Dir für Deine Erinnerung hilft. Diese innere Anbindung braucht keine extra Zeit in Deinem Leben, Du musst nur daran denken, sie zu tun. 
 
 ## Mit jedem Mal fühlst Du Dich verbundener
 Nach einer Weile werden die inneren Bilder sich verändern. Irgendwann will dieser Innenanteil wieder spielen, dann hat er **von Dir so viel Bindung erhalten**, dass er neugierig in die Welt zieht. So wie das echte Kinder auch tun: sobald sie sich der Bindung zu einem wichtigen Erwachsenen sicher sind, gehen sie die Welt untersuchen. Neugierige Innenanteile fühlen sich verbunden. Dann kannst Du mit einem inneren Kindanteil aus einem anderen Alter arbeiten. 
+
+
+Photo by Alexander Dummer on Unsplash
 
 ## Wie entstehen Anteile in uns, die sich unverbunden fühlen?
 Zu irgendeinem Zeitpunkt in Deiner Kindheit hast Du Dich vermutlich gestresst und überfordert gefühlt. Das geht schnell: in der Klasse wird man gehänselt und es ist gerade niemand da, der einen tröstet. Die Großmutter schimpft über etwas, was man gar nicht “angestellt” hat... Es kann natürlich auch ein Dauerzustand in der Kindheit gewesen sein, wenn die Eltern z.B. aus beruflichen Gründen wenig Zeit hatten. Wann immer wir uns in der Kindheit überfordert, verletzt, etc. fühlen, **brauchen wir jemand anderes, um unser Nervensystem zu regulieren**. Uns beruhigen lernen wir durch andere, es ist nicht angeboren. Leider kommt diese beruhigende Regulation bei uns in unserer Kultur insgesamt viel zu kurz. 
