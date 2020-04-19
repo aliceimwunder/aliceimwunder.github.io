@@ -80,4 +80,5 @@ Es hat ein bisschen gedauert, bis ich akzeptiert hatte. **Selbstkritik ist ein S
 ## Den ersten Schritt zur echten Lösung
 Akzeptanz der inneren harten Glaubenssätze sowie der Selbstkritik *als Schutzanteil* in sich selbst (die man nicht einfach “wegmachen” kann, sollte, oder überhaupt will), war für mich der Anfang zur nachhaltigen Heilung. 
 
-Die weiteren Schritte kommen in Teil 2 zu diesem Thema. :-)
+Die weiteren Schritte kommen in [Teil 2](/2020/04/01/Selbstkritik-beenden-Teil-2.htmlzu diesem Thema.) :-)
+
