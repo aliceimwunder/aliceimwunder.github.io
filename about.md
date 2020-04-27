@@ -37,7 +37,7 @@ Häufig tragen wir unpassende Strukturen aus der Familie in unseren “Broterwer
 Lass uns daran zusammenarbeiten, dass Du Deinen gemütlichen Feierabend mit Deinen Liebsten nach Deinem großartigen Tag voller Lebenskraft genießen kannst, dass Du auf Deinen Tag mit tief empfundener Dankbarkeit blicken kannst. 
 
 ## Wer noch ein paar Fakten für sich benötigt: 
-Ich habe drei lange Burnout Phasen, häufige zum Teil schwere Infektionen und einen schweren Herzinfarkt hinter mir, bei dem die behandelnden Ärzte zu dem Schluss kamen, dass es dafür keine körperliche Ursache gebe. Ich bin aus meiner langjährigen Karriere als Juristin ausgestiegen, nachdem mein Körper sich komplett verweigerte. Ich bin als häufig umziehendes Stadtkind zur geerdeten Naturliebhaberin geworden, die genau weiß, wie sie ihre Kraft jeden Tag von neuem pflegt. 
+Zum Burnout Coach und Traumatherapeutin bin ich geworden, nach ich drei lange Burnout Phasen, häufige zum Teil schwere Infektionen und einen schweren Herzinfarkt endgültig hinter mir gelassen habe, bei dem die behandelnden Ärzte zu dem Schluss kamen, dass es dafür keine körperliche Ursache gebe und mir zum Teil nicht viel Überlebenschancen eingeräumt haben. Nun gehe ich ein vollkommen neuen Weg: Ich bin aus meiner langjährigen Karriere als Juristin ausgestiegen. Ich bin als häufig umziehendes Stadtkind zur geerdeten Naturliebhaberin geworden, die genau weiß, wie sie ihre Kraft jeden Tag von Neuem pflegt. 
 
 ## Äußerlich sah mein Weg ungefähr so aus: 
 Besuch vieler Seminare zur Persönlichkeitsbildung, wie Elite-Business-Master, Dirk Michael Lambert, 
