@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Du willst aus Deiner Mitte heraus mit **Leichtigkeit Erfolg magnetisch anziehen**? Du willst Schnell und effizient **Deine Schwingung erhöhen. Burnout, Erschöpfung, Überforderung, das Gefühl, in einer herunterziehenden ewigen Zeitschleife festzustecken, soll endlich hinter Dir liegen?
+Du willst schnell und effizient aus **Burnout, Erschöpfung, Überforderung**, aus dem Gefühl, in einer ewigen, negativen Zeitschleife festzustecken, aussteigen? Du willst aus Deiner Mitte heraus mit **Leichtigkeit Erfolg magnetisch anziehen**? 
 
 Ich helfe Dir dabei. 
 
