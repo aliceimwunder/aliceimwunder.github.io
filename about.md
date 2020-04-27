@@ -6,10 +6,9 @@ permalink: /about/
 
 Du willst aus Deiner Mitte heraus mit **Leichtigkeit Erfolg magnetisch anziehen**? Du willst Schnell und effizient **Deine Schwingung erhöhen. Burnout, Erschöpfung, Überforderung, das Gefühl, in einer herunterziehenden ewigen Zeitschleife festzustecken, soll endlich hinter Dir liegen?
 
-Ich helfe Menschen, in die 5. Dimension, in der Du mit großer Leichtigkeit Deine Schaffenskraft leben kannst. 
+Ich helfe Dir dabei. 
 
 ## Wer bin ich, Alice Windolf?
-
 - **Burnout Coach**
 - **Traumatherapeutin, HP psych.**
 - **5.-Dimensions-Begleiterin**
@@ -39,10 +38,12 @@ Häufig tragen wir unpassende Strukturen aus der Familie in unseren “Broterwer
 Lass uns daran zusammenarbeiten, dass Du Deinen gemütlichen Feierabend mit Deinen Liebsten nach Deinem großartigen Tag voller Lebenskraft genießen kannst, dass Du auf Deinen Tag mit tief empfundener Dankbarkeit blicken kannst. 
 
 ## Wer noch ein paar Fakten für sich benötigt: 
-Zum Burnout Coach und Traumatherapeutin bin ich geworden, nach ich drei lange Burnout Phasen, häufige zum Teil schwere Infektionen und einen schweren Herzinfarkt endgültig hinter mir gelassen habe, bei dem die behandelnden Ärzte zu dem Schluss kamen, dass es dafür keine körperliche Ursache gebe und mir zum Teil nicht viel Überlebenschancen eingeräumt haben. Nun gehe ich ein vollkommen neuen Weg: Ich bin aus meiner langjährigen Karriere als Juristin ausgestiegen. Ich bin als häufig umziehendes Stadtkind zur geerdeten Naturliebhaberin geworden, die genau weiß, wie sie ihre Kraft jeden Tag von Neuem pflegt. 
+Zum Burnout Coach und Traumatherapeutin bin ich geworden, nachem ich drei lange Burnout Phasen, häufige zum Teil tiefsitzende Infektionen und einen schweren Herzinfarkt endgültig hinter mir gelassen habe (bei dem die behandelnden Ärzte zu dem Schluss kamen, dass es dafür keine körperliche Ursache gebe und mir keine großen Überlebenschancen eingeräumt haben). 
+
+Nun gehe ich ein vollkommen neuen Weg: Ich bin aus meiner langjährigen Karriere als Juristin ausgestiegen. Ich bin als häufig umziehendes Stadtkind zur geerdeten Naturliebhaberin geworden, die genau weiß, wie sie ihre Kraft jeden Tag von Neuem pflegt. Ich begleite Menschen dabei, aus alten, kraftkostenden Mustern und Glaubenssätzen auszusteigen, ihre Schwingung zu erhöhen und in ihre eigene Schaffenskraft zurückzukommen. 
 
 ## Äußerlich sah mein Weg ungefähr so aus: 
-Besuch vieler Seminare zur Persönlichkeitsbildung, wie Elite-Business-Master, Dirk Michael Lambert, 
+Besuch vieler Seminare zur Persönlichkeitsbildung, wie z.B. Elite-Business-Master von Dirk Michael Lambert, 
 Aufstellungsarbeit, walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie)
 
 Traumatherapieausbildung, arche medica
@@ -63,10 +64,6 @@ Erstes und Zweites Staatsexamen Berlin-Brandenburg
 
 Licence en droit, Paris II
 
-Jurastudium in Potsdam und Berlin 
-
-Servicemitarbeiterin in einem 4*Hotel in Cornwall
-
-Beginn meiner Yogapraxis zu Schulzeiten, 
+Jurastudium in Potsdam, Berlin und Paris 
 
 Schulbesuche in Berlin, Florenz, Heidelberg und Schleswig-Holstein
