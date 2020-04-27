@@ -28,7 +28,7 @@ Kurze Momente ins eigene Leben einfügen, die uns **zum Grinsen** bringen, reich
 ![Junge im Blätterhaufen](/assets/2020-04-03 Junge im Blaetterhaufen.jpg) 
 Photo by Justin Young on Unsplash
 
-## Nachholen, was etwas zu kurz in der eigenen Kindheit kam
+## Nachholen, was zu kurz in der eigenen Kindheit kam
 Die zweite Methode kostet etwas mehr Aufwand, mit Kindern ist es allerdings auch ganz einfach. **Hole nach, was Du als Kind gerne gemacht hast**, aber zu kurz kam. Ich hatte z.B. Duplo-Lego Steine, mit denen ich ausführlich spielte. Nur hatten meine Eltern nie einen Stein hinzu gekauft. Warum auch immer. Als meine Tochter zur Welt kam, konnte ich es kaum erwarten, dass sie in das Alter zum Bauen kam. Wir haben jetzt etwas zu viel, vielleicht zwei gut gefüllte Kisten. Ich merke, nachdem ich ausführlich mit meinem Kind  gebaut habe, reicht es mir. Es hat riesigen Spaß gemacht und sobald mein Nachwuchs in ein oder zwei Jahren darauf keine Lust mehr hat, dürfen die Steine einem anderen Kind Freude bringen. Der traurige Anteil in mir, der das Gefühl hatte, zu wenig in der echten Kindheit damals bekommen zu haben, konnte nachholen. 
 
 Für mich ist es dabei selbstverständlich, vor allem die Spielsachen meinem Kind zu kaufen, auf das es selbst Lust hat. Mit einer elektrischen Eisenbahn, die Dein Kind nicht anfassen darf, es könnte schließlich was kaputt machen, würdest Du nur bei Deinem Nachwuchs Deine eigene Unterversorgung wiederholen. Und wenn ich aus Versehen mal etwas kaufe, was vor allem mir und nicht unbedingt meinem kleinen Engel Spaß macht (ich mag Puzzle, meine Tochter verliert schnell die Geduld), dann besorge ich beim nächsten Mal eben etwas anderes. 
