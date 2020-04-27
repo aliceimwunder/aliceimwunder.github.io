@@ -15,7 +15,9 @@ Ich helfe Menschen, in die 5. Dimension, in der Du mit großer Leichtigkeit Dein
 - **5.-Dimensions-Begleiterin**
 
 Mein Beitrag zur Corona-Krise: Buche Dir kostenfrei eine Begleitung von 1-3 Terminen. 
+
 [Termin buchen](https://app.youcanbook.me/#/upgrade?step=2)
+
 oder schreibe mir eine Email: alicewindolf@web.de.
 
 ## Mein Weg in die 5. Dimension
