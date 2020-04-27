@@ -16,7 +16,9 @@ Ich helfe Menschen, in die 5. Dimension, in der Du mit großer Leichtigkeit Dein
 
 Mein Beitrag zur Corona-Krise: Buche Dir kostenfrei eine Begleitung von 1-3 Terminen. 
 
-[Termin buchen](https://app.youcanbook.me/#/upgrade?step=2)
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Termin buchen](https://alicewindolf.youcanbook.me)
+</span>
 
 oder schreibe mir eine Email: alicewindolf@web.de.
 
