@@ -14,6 +14,10 @@ Ich helfe Menschen, in die 5. Dimension, in der Du mit großer Leichtigkeit Dein
 - **Traumatherapeutin, HP psych.**
 - **5.-Dimensions-Begleiterin**
 
+Mein Beitrag zur Corona-Krise: Buche Dir kostenfrei eine Begleitung von 1-3 Terminen. 
+[Termin buchen](https://app.youcanbook.me/#/upgrade?step=2)
+oder schreibe mir eine Email: alicewindolf@web.de.
+
 ## Mein Weg in die 5. Dimension
 Ich lebe heute im Osten von Berlin. Direkt am Wald fast ohne jeden Straßenverkehr mit riesigem Garten. 
 Gelebt habe ich in Berlin, Florenz, Straßburg, Paris, Bayern und Cornwall/GB. Ich liebe Berlin und ich liebe die Natur. Nun habe ich ein Holzhaus entwerfen lassen und jeden Bauschritt energetisch begleitet, sodass wir, mein Mann und unsere Tochter, (zwar mit einigem Zeitaufwand aber fast ohne jede Baupanne) unser Traumhaus in einem Traumgarten bewohnen können. Wie Ferien für immer. ;-)
