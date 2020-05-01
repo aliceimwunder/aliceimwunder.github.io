@@ -1,14 +1,18 @@
+---
+title: Burnout - Wie Tagträume Dir bei Deiner Erholung helfen können.
+---
+
 ## Träume sind nur Schäume?
-Erschöpft, müde, ausgebrannt? Deine erste Idee ist nicht unbedingt in den Tag hinein zu träumen? Schließlich hat man in diesem Zustand für nichts wirklich Zeit? Alles ist einem zu viel? 
+Erschöpft, müde, ausgebrannt? Deine erste Idee ist nicht unbedingt in den Tag hinein zu träumen? Schließlich hast Du in diesem Zustand für nichts wirklich Zeit? Alles ist Dir zu viel? Was soll das werden, wenn's fertig ist: Träume helfen bei Deiner erdrückenden Realität auch nicht?
 
 Da Tagträumen nichts kostet, versuche es doch einfach. Das Ganze hat sogar eine **wissenschaftliche Basis**: 
 
 ## Rechte und linke Gehirnhälfte
-Aktueller Hirnforschung zufolge ist die rechte Gehirnhälfte besonders aktiv, wenn wir in unseren Gedanken Bilder, Farben und Formen erschaffen, die linke Gehirnhälfte aktiviert sich vermehrt bei der Analyse von Geschehen um uns, bei der Bewertung und zeitlichen Einordnung der Geschehnisse. 
+Aktueller Hirnforschung zufolge ist die rechte Gehirnhälfte besonders aktiv, wenn wir in unseren Gedanken Bilder, Farben und Formen erschaffen, die linke aktiviert sich vermehrt bei der Analyse von Geschehen, bei der Bewertung und zeitlichen Einordnung der Geschehnisse. 
 
-**In Phasen starken Stresses** wirken linke und rechte Gehirnhälften weniger und weniger zusammen. Wir leben vermehrt auf der einen oder anderen Seite. Entweder nimmt alles eine Endlosigkeit an und wir haben das Gefühl in einer endlosen, gleichbleibenden Schlaufe, einem Hamsterrad von Überwältigung festzusitzen. Es gibt kein Anfang und kein Ende der stressauslösenden Ereignisse mehr (rechte Seite dominant). Oder wir schalten Gefühle ab, werden roboterhaft und haben das Gefühl, das Leben zieht an uns vorbei, während wir brav mechanisch die täglichen Aufgaben erledigen. Erst das, dann das, dann das (linke Hälfte dominant). 
+**In Phasen starken Stresses** wirken linke und rechte Gehirnhälften weniger und weniger zusammen. Wir leben vermehrt auf der einen oder anderen Seite. Entweder nimmt alles eine Endlosigkeit an und wir haben das Gefühl in einer endlosen, gleichbleibenden Schlaufe, einem Hamsterrad von Überwältigung festzusitzen. Es gibt kein Anfang und kein Ende der stressauslösenden Ereignisse mehr (rechte Seite dominant). Oder wir schalten Gefühle ab, werden roboterhaft und haben das Gefühl, das Leben zieht an uns vorbei, während wir mechanisch die täglichen Aufgaben erledigen. Erst das, dann das, dann das, dann das, dann das (linke Hälfte dominant). 
 
-Die linke Gehirnhälfte kann natürlich nicht nur das Gefühl endlosen Grauens um uns herum erzeugen, sie kann auch das Gegenteil: **zeitlose Freude**. Das kann man sich gezielt zu nutze machen. 
+Die rechte Gehirnhälfte kann natürlich nicht nur das Gefühl endlosen Grauens erzeugen, sie kann auch das Gegenteil: **zeitlose Freude**. Das kann sich jeder gezielt zu nutze machen. Alles, was Du Dir mit allen Sinnen vorstellst, erschafft Dein Gehirn, da es keinen Unterschied macht zwischen Realität und Vorstellung. Leistungssportler nutzen diese Eigenschaft und trainieren regelmäßi im Kopf. Es funktioniert nicht nur, um Muskeln koordinierter anzusprechen, sondern um Dir mehr Erholung zu holen. 
 
 ## Erholsame Auszeiten für zwischendurch
 Stell Dir einen **Weg**, eine Treppe, einen Gang, Aufzug aus der Realität vor, was auch immer Dir in den Sinn kommt. Die Vorstellung sollte angenehm sein. Mehr Sinn hat sie nicht. Gehe für zwei oder drei Sekunden den Weg, Treppe etc. entlang, bis Du zu einer Tür (Tor, Durchgang etc.) kommst, stell Dir einfach etwas für Dich Angenehmes vor. 
