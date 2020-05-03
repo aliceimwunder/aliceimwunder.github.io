@@ -25,7 +25,7 @@ Sehr gut funktioniert es so:
 
 - Deinen Erholungsort umrahmst Du als aller erstes mit **Sicherheitsvorkehrungen**. Das klingt seltsam. Den Ort gibt es schließlich nur in Deiner persönlichen Vorstellung. Aber in Zeiten von Überforderung kann es sein, dass Du das Gefühl hast, ständig etwas erledigen zu müssen. Dann kann es passieren, dass Dein Unterbewusstes Dir unschöne Erinnerungen schickt. Das kannst Du gerade nicht gebrauchen. Also baue Dir gezielt Schutz. Von schlichtem Zaun, Draht oder Hecke, über Kampfflugzeuge, Drachen, Krieger, Ahnen darf alles sein. Ich habe mir so dicht wachsende Bäume um meine Waldoase wachsen lassen, dass nichts mehr hindurch passt. Du kannst Dir einen eigenen Planeten erschaffen, auf dem niemand außer Dir Zugang hat. 
 
-![paradisischer Wasserfall](/assets/2020-05-01- paradisischer Wasserfall.jpg)
+![Badewann](/assets/2020-05-01- Badewanne.jpg)
 Photo by Simon Matzinger on Unsplash
 
 - Als nächstes **erholst Du Dich in Deiner eigenen Oase**, was auch immer es ist: Du legst Dich in Deine Badewanne, schwimmst in Deinem Heilteich, hörst dem Meeresrauschen zu, schaust Greifvögel von Deinem Berg zu, liegst in Deinem perfekten Bett, kraulst Deine Katze auf Deinem Schoß, Deiner Fantasie sind keine Grenzen gesetzt.
