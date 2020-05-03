@@ -2,6 +2,9 @@
 title: Burnout - Wie Tagträume Dir bei Deiner Erholung helfen können.
 ---
 
+![Gruene Oase](/assets/2020-05-01- Gruene Oase.jpg)
+Photo by Sam Beasley on Unsplash
+
 ## Träume sind nur Schäume?
 Erschöpft, müde, ausgebrannt? Deine erste Idee ist nicht unbedingt in den Tag hinein zu träumen? Schließlich hast Du in diesem Zustand für nichts wirklich Zeit? Alles ist Dir zu viel? Was soll das werden, wenn's fertig ist: Träume helfen bei Deiner erdrückenden Realität auch nicht?
 
@@ -22,6 +25,9 @@ Sehr gut funktioniert es so:
 
 - Deinen Erholungsort umrahmst Du als aller erstes mit **Sicherheitsvorkehrungen**. Das klingt seltsam. Den Ort gibt es schließlich nur in Deiner persönlichen Vorstellung. Aber in Zeiten von Überforderung kann es sein, dass Du das Gefühl hast, ständig etwas erledigen zu müssen. Dann kann es passieren, dass Dein Unterbewusstes Dir unschöne Erinnerungen schickt. Das kannst Du gerade nicht gebrauchen. Also baue Dir gezielt Schutz. Von schlichtem Zaun, Draht oder Hecke, über Kampfflugzeuge, Drachen, Krieger, Ahnen darf alles sein. Ich habe mir so dicht wachsende Bäume um meine Waldoase wachsen lassen, dass nichts mehr hindurch passt. Du kannst Dir einen eigenen Planeten erschaffen, auf dem niemand außer Dir Zugang hat. 
 
+![paradisischer Wasserfall](/assets/2020-05-01- paradisischer Wasserfall.jpg)
+Photo by Simon Matzinger on Unsplash
+
 - Als nächstes **erholst Du Dich in Deiner eigenen Oase**, was auch immer es ist: Du legst Dich in Deine Badewanne, schwimmst in Deinem Heilteich, hörst dem Meeresrauschen zu, schaust Greifvögel von Deinem Berg zu, liegst in Deinem perfekten Bett, kraulst Deine Katze auf Deinem Schoß, Deiner Fantasie sind keine Grenzen gesetzt.
 
 - Stelle Dir Deine **Erholung mit allen Sinnen** vor, z.B. Du siehst die Meereswellen, Du hörst ihr Rauschen, Du riechst und schmeckst die salzige Luft. Du spürst den warmen Sand unter Deinem Körper, Du fühlst die Schwerkraft, Du spürst die Sonne auf Deiner Haut und hörst die Meeresvögel kreischen. Du fühlst den Wind auf Deiner Haut. Alles ist einfach perfekt für Dich. Wenn es einen realen Ort gab mit vergleichbar erholsamen Eigenschaften, dann lösche in Deiner Fantasie alles, was nicht so perfekt war, z.B. Qualm eines Lagerfeuers, Stechmücken, Ameisen, das gibt es alles nicht an Deinem perfekten Erholungsort.
@@ -38,6 +44,9 @@ Beim ersten Mal brauchst Du vielleicht 10-20 min, um alles perfekt kreiert zu ha
 Wann immer Du das Gefühl hast, Dein Erholungsort passt nicht ganz, ändere den Ort oder die Art der Erholung an Deinem Ort. Du brauchst keine Rücktrittsversicherung, Nichts ist in Beton gegossen. **In Deinem Inneren gibt es keinen Mangel.** Du kannst auch nicht dick werden, falls Du Dich an Deinem Erholungsort in Ruhe durchfuttern willst. Hole Dir bei google, pinterest oder anderen Foren Inspiration für Deinen Ort. Du bist unsicher, es könnte noch Besseres für Dich geben, als Du Dir gerade ausmalst? Das macht nichts. Fange damit an, was Du hast und baue es langsam aus. Mache keine Raketenwissenschaft daraus. Es kann sein, dass Du Dir am Anfang noch nicht das volle Programm gönnst. Eigentlich hättest Du gerne 20 niedliche Hundewelpen um Dich und auf Dir? Aber das geht doch nicht? Dann gönn Dir einen Welpen, eine feenhafte Masseurin, eine Heilpraline, eine kleine Insel... Und schau mal, ob Du nach ein paar Tagen Dir mehr gönnen kannst und nach ein paar Tagen noch mehr und mehr und mehr. Nach weiteren Tagen ist die volle Packung da, die Du für Deine Erholung brauchst. 
 
 Du kannst Dir z.B. auch Massagen, gemeinsamen Sport oder bekocht werden vorstellen, aber **bitte nicht mit realen Menschen**. Wenn, dann lasse es vollkommen perfekte Wesen sein, die keinerlei eigene Bedürfnisse haben, die Dich in Deinem Traum unterstützen. Echte Menschen haben immer Bedürfnisse und dienen nicht ausschließlich dazu, Dir Entspannung zu bringen. Außerdem haben wir immer gemischte Gefühle bei Menschen, die älter als drei Jahre als sind, selbst wenn wir sie sehr lieben. Das wäre nicht hilfreich, wenn Du Dich innerhalb von zwei Minuten den Urlaub von zwei Wochen holen will und unterschwellig emotionale Themen in der Luft hängen. 
+
+![Gruene Oase](/assets/2020-05-01- Gruene Oase.jpg)
+Photo by Cecilia Medina on Unsplash
 
 ## Die Entspannung in die Realität bringen
 Nutze Deine Fantasie, um Deine Idealvorstellung von Erholung ein bisschen in der Realität entstehen zu lassen. Wenn es eine Badewanne ist, schau, ob Du in der Realität ungestört in die Badewanne gehen kannst. Sitzt Du am Sandstrand und hörst dem Meeresrausches zu? Lasse eine Youtube Video bei Deinen Alltagsbeschäftigung mit Meeresrauschen laufen. Ist es ein Dschungel, dann schau mal, ob es einen botanischen Garten mit dieser Bepflanzung in Deiner erreichbaren Nähe gibt, in dem Du Dich 1x Woche auf eine Bank setzen kannst. Ist es ein Heilsee, kannst Du vielleicht im Sommer bewusst mit dieser schönen Vorstellung dort baden gehen. 
