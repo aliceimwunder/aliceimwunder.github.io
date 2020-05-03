@@ -25,7 +25,7 @@ Sehr gut funktioniert es so:
 
 - Deinen Erholungsort umrahmst Du als aller erstes mit **Sicherheitsvorkehrungen**. Das klingt seltsam. Den Ort gibt es schließlich nur in Deiner persönlichen Vorstellung. Aber in Zeiten von Überforderung kann es sein, dass Du das Gefühl hast, ständig etwas erledigen zu müssen. Dann kann es passieren, dass Dein Unterbewusstes Dir unschöne Erinnerungen schickt. Das kannst Du gerade nicht gebrauchen. Also baue Dir gezielt Schutz. Von schlichtem Zaun, Draht oder Hecke, über Kampfflugzeuge, Drachen, Krieger, Ahnen darf alles sein. Ich habe mir so dicht wachsende Bäume um meine Waldoase wachsen lassen, dass nichts mehr hindurch passt. Du kannst Dir einen eigenen Planeten erschaffen, auf dem niemand außer Dir Zugang hat. 
 
-![Badewann](/assets/2020-05-01- Badewanne.jpg)
+![Gruene Oase](/assets/2020-05-01- Gruene Oase.jpg)
 Photo by Simon Matzinger on Unsplash
 
 - Als nächstes **erholst Du Dich in Deiner eigenen Oase**, was auch immer es ist: Du legst Dich in Deine Badewanne, schwimmst in Deinem Heilteich, hörst dem Meeresrauschen zu, schaust Greifvögel von Deinem Berg zu, liegst in Deinem perfekten Bett, kraulst Deine Katze auf Deinem Schoß, Deiner Fantasie sind keine Grenzen gesetzt.
@@ -45,7 +45,7 @@ Wann immer Du das Gefühl hast, Dein Erholungsort passt nicht ganz, ändere den 
 
 Du kannst Dir z.B. auch Massagen, gemeinsamen Sport oder bekocht werden vorstellen, aber **bitte nicht mit realen Menschen**. Wenn, dann lasse es vollkommen perfekte Wesen sein, die keinerlei eigene Bedürfnisse haben, die Dich in Deinem Traum unterstützen. Echte Menschen haben immer Bedürfnisse und dienen nicht ausschließlich dazu, Dir Entspannung zu bringen. Außerdem haben wir immer gemischte Gefühle bei Menschen, die älter als drei Jahre als sind, selbst wenn wir sie sehr lieben. Das wäre nicht hilfreich, wenn Du Dich innerhalb von zwei Minuten den Urlaub von zwei Wochen holen will und unterschwellig emotionale Themen in der Luft hängen. 
 
-![Gruene Oase](/assets/2020-05-01- Gruene Oase.jpg)
+![Badewanne](/assets/2020-05-01- Badewanne.jpg)
 Photo by Cecilia Medina on Unsplash
 
 ## Die Entspannung in die Realität bringen
