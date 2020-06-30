@@ -22,7 +22,7 @@ Grundsätzlich empfehle ich zu einem konkreten belastenden Thema drei Sessions i
 Erste Session kostenfrei.
 Buche Dir hier Deine erste Session.
 
-[Termin buchen](https://alicewindolf.youcanbook.me)
+**[Termin buchen](https://alicewindolf.youcanbook.me)
 
 oder schreibe mir eine Email: alicewindolf[at]web.de
 
@@ -36,7 +36,7 @@ Folgesessions: 80,-€
 **Quantenheilung als gelebte Selbstfürsorge**: Quantenheilung ist als gelebte Selbstfürsorge gedacht und nicht als Ersatz für medizinisch notwendige Behandlungen. Sorge für Dich entsprechend, wenn Dein Gesundheitszustand dies bedarf. 
 
 
-[Über mich](/about/)
+### [Über mich](/about/)
 
 
 
