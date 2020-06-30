@@ -37,7 +37,7 @@ Folgesessions: 80,-€
 ## Disclaimer: Quantenheilung als gelebte Selbstfürsorge
 Quantenheilung ist als gelebte Selbstfürsorge gedacht und nicht als Ersatz für medizinisch notwendige Behandlungen. 
 
-Über mich
+[Über mich](/about/)
 
 
 
