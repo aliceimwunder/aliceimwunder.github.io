@@ -23,7 +23,7 @@ Grundsätzlich empfehle ich zu einem konkreten belastenden Thema drei Sessions i
 Erste Session kostenfrei.
 Buche Dir hier Deine erste Session.
 
-**[Termin buchen](https://alicewindolf.youcanbook.me)
+--> **[Termin buchen](https://alicewindolf.youcanbook.me)**
 
 oder schreibe mir eine Email: alicewindolf[at]web.de
 
