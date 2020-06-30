@@ -10,7 +10,7 @@ Bereits eine Session kann Deine Schwingung sanft erhöhen und zu mehr Klarheit i
 Weil so viele gerade unter den Nachwirkungen von Lockdown und sozialer Isolation leiden, biete ich die erste Session kostenfrei. Die Sessions sind zurzeit online. 
 In Vorbereitung auf eine Session empfehle ich Dir, Dir selbst die Frage zu stellen:
 
-**Was blockiert gerade mein Herz am meisten? 
+**Was blockiert gerade mein Herz am meisten?** 
 
 Damit arbeiten wir in der ersten Session. 
 
