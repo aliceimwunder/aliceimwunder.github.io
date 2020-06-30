@@ -34,7 +34,7 @@ Du benötigst einen stabilen Internetzugang und einen skype-Zugang. Alternativ k
 
 Folgesessions: 80,-€
 
-**Disclaimer: Quantenheilung als gelebte Selbstfürsorge**
+## Disclaimer: Quantenheilung als gelebte Selbstfürsorge
 Quantenheilung ist als gelebte Selbstfürsorge gedacht und nicht als Ersatz für medizinisch notwendige Behandlungen. 
 
 Über mich
