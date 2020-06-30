@@ -17,7 +17,7 @@ Schreibe Dir eine kurze Antwort auf. Damit arbeiten wir in der ersten Session. M
 Eine ausführliche Beratung/Energie-Analyse, was genau Dich blockiert, würde den Rahmen einer kostenfreien Session sprengen.  
 Wenn Du Dich eher unspezifisch blockiert fühlst, lässt sich allerdings auch das unspezifische belastende Gefühl als Thema benutzen. Dadurch können sich in der näheren Zukunft Antworten darauf zeigen, was es genau ist, was Dich belastet.   
 
-## Termin buchen
+# Termin buchen
 Grundsätzlich empfehle ich zu einem konkreten belastenden Thema drei Sessions in Folge. Doch schon eine Session kann zu einer Entlastung führen. 
 
 Erste Session kostenfrei.
@@ -25,7 +25,7 @@ Buche Dir hier Deine erste Session.
 
 --> **[Termin buchen](https://alicewindolf.youcanbook.me)**
 
-oder schreibe mir eine Email: alicewindolf[at]web.de
+oder schreibe mir eine Email: alicewindolf@web.de
 
 Nimm Dir bitte ungefähr **eine Stunde ungestörte Zeit** für die Session. Am idealsten hat sich für die Onlinesessions herausgestellt, wenn Du zwar bequem aber doch aufrecht sitzen kannst, während Du auf Deinen Bildschaum schaust.  
 Wenn Du danach die Möglichkeit hast, Dich für eine halbe Stunde hinzulegen und die Session nachwirken zu lassen, wäre das großartig. 
