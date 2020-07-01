@@ -3,6 +3,9 @@ title: Erschöpft, Überfordert, Blockiert?
 ---
 Wenn Du Dich gerade erschöpft, überfordert, blockiert oder vom Leben irgendwie abgeschnitten fühlst, dann geht es Dir wie viele anderen. Mit Corona werden alte Systeme immer brüchiger, die Erde reinigt sich gerade im hohen Tempo und die Schwingung insgesamt auf diesem Planeten steigt. Mitkommen und die Übersicht behalten kann leichter gesagt als getan sein. 
 
+![Tropfen](/29-06-2020-Tropfen)
+Photo by Levi XU on Unsplash
+
 # Quantenheilung kann Dir direkte Hilfe bieten. 
 Bereits eine Session kann Deine Schwingung sanft erhöhen und zu mehr Klarheit in Deinem Energiekörper führen. Du fühlst Dich geerdeter. Dadurch können sich schneller Lösungen im Alltag zu Blockaden finden lassen. Du kannst leichter zu Deinen Energiequellen finden. Zusätzlich bringen Dir Deine Energiequellen wieder mehr Nutzen. Wie bei einem Akku: wenn er ganz ausgenudelt ist, dauert es viel länger, ihn mit Energie zu laden, als wenn man ihn regelmäßig bei einem leicht niedrigeren Energiestand schon regeneriert.
 
