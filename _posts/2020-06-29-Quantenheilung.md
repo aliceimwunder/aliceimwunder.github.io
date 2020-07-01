@@ -3,7 +3,7 @@ title: Erschöpft, Überfordert, Blockiert?
 ---
 Wenn Du Dich gerade erschöpft, überfordert, blockiert oder vom Leben irgendwie abgeschnitten fühlst, dann geht es Dir wie viele anderen. Mit Corona werden alte Systeme immer brüchiger, die Erde reinigt sich gerade im hohen Tempo und die Schwingung insgesamt auf diesem Planeten steigt. Mitkommen und die Übersicht behalten kann leichter gesagt als getan sein. 
 
-![Tropfen](/29-06-2020-Tropfen)
+![Tropfen](/assets/29-06-2020-Tropfen.jpg)
 Photo by Levi XU on Unsplash
 
 # Quantenheilung kann Dir direkte Hilfe bieten. 
