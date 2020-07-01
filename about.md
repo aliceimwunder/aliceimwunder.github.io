@@ -21,7 +21,7 @@ Buche Dir eine Begleitung von 1-3 Terminen. Der erste Termin ist kostenfrei:
 
 oder schreibe mir eine Email: alicewindolf@web.de.
 
-Folgesessions zu Corona für kurze Zeit nur 80,-€.
+Folgesessions zu Corona für kurze Zeit 80,-€.
 
 
 ## Mein Weg in die 5. Dimension
