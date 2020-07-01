@@ -10,7 +10,7 @@ Photo by Levi XU on Unsplash
 Bereits eine Session kann Deine Schwingung sanft erhöhen und zu mehr Klarheit in Deinem Energiekörper führen. Geerdeter. Dadurch können sich schneller Lösungen im Alltag zu Blockaden finden lassen. Du kannst leichter zu Deinen Energiequellen finden. Zusätzlich bringen Dir Deine Energiequellen wieder mehr Nutzen. Wie bei einem Akku: wenn er ganz ausgenudelt ist, dauert es viel länger, ihn mit Energie zu laden. Letztlich wissen wir alle - zeitsparender ist es, die eigenen Akkus regelmäßig zu regenerieren. Im Alltag anwenden ist das Schwierige. ;-)
 
 # Angebot zu Corona: erste Online-Session kostenfrei
-Nachdem der Energiekörper von so vielen unter den Nachwirkungen von Lockdown und sozialer Isolation gelitten haben, biete ich eine Session kostenfrei. Meine Sessions finden zurzeit per Video-Call statt. Sozusagen Selbstfürsorge gemütlich zu Hause auf dem Sofa. 
+Nachdem der Energiekörper von so vielen unter den Nachwirkungen von Lockdown und sozialer Isolation gelitten haben, biete ich eine Session kostenfrei. Meine Sessions finden zurzeit per Video-Call statt. Sozusagen Selbstfürsorge gemütlich zu Hause auf dem Sofa. Dauer ca. 50-60 min.
  
 # Termin buchen
 Grundsätzlich empfehle ich zu einem konkreten belastenden Thema drei Sessions in Folge. Doch schon eine Session kann zu einer spürbaren Entlastung führen. 
@@ -21,7 +21,7 @@ Buche Dir hier Deine kostenfreie Session.
 
 oder schreibe mir eine Email: alicewindolf@web.de.
 
-Jede weitere Session 80,-€. Dauer ca. 50-60 min.
+
 
 Nimm Dir bitte ungefähr **eine Stunde ungestörte Zeit** für die Session. Ideal hat sich für die Onlinesessions herausgestellt, wenn Du zwar bequem aber doch aufrecht sitzen kannst, während Du auf Deinen Bildschirm schaust.  
 Wenn Du danach die Möglichkeit hast, Dich für eine halbe Stunde hinzulegen und die Session nachwirken zu lassen, wäre das großartig. 
