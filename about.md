@@ -14,13 +14,15 @@ Ich helfe Dir dabei. Ich arbeite gerne mit Menschen, die ganzheitliche Lösungen
 - **5.-Dimensions-Begleiterin**
 
 Buche Dir eine Begleitung von 1-3 Terminen. Der erste Termin ist kostenfrei: 
-Folgesessions für kurze Zeit nur 80,-€.
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Termin buchen](https://alicewindolf.youcanbook.me)
 </span>
 
 oder schreibe mir eine Email: alicewindolf@web.de.
+
+Folgesessions zu Corona für kurze Zeit nur 80,-€.
+
 
 ## Mein Weg in die 5. Dimension
 Ich lebe heute im Osten von Berlin. Direkt am Wald fast ohne jeden Straßenverkehr mit riesigem Garten. 
