@@ -13,7 +13,8 @@ Ich helfe Dir dabei. Ich arbeite gerne mit Menschen, die ganzheitliche Lösungen
 - **Traumatherapeutin, HP psych.**
 - **5.-Dimensions-Begleiterin**
 
-Mein Beitrag zur Corona-Krise: Buche Dir eine Begleitung von 1-3 Terminen. Der erste Termin ist kostenfrei: 
+Buche Dir eine Begleitung von 1-3 Terminen. Der erste Termin ist kostenfrei: 
+Folgesessions für kurze Zeit nur 80,-€.
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Termin buchen](https://alicewindolf.youcanbook.me)
