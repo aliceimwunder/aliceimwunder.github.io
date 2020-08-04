@@ -38,13 +38,12 @@ Zunächst an der Situation hat niemand Schuld, weder der/diejenige, der oder die
 - Derjenige, der Deine Knöpfe drückt, bekommt "nur" Dein perfekt einstudiertes, wie am Schnürchen ablaufendes Programm vorgesetzt. Sind das Beziehungen mit wenig bis keiner Intimität, wie im Büro oder zu Kunden, dann ist das den Nutznießern Deiner Druckknöpfe komplett egal. Cool, mehr Leistung bekommen werden sich die anderen denken. 
 - In einer intimen Partnerschaft kann es sein, dass der Partner oder die Partnerin mehr drückt, weil er oder sie statt echte Nähe das Programm “pleasen” vorgesetzt bekommt. Ergebnis: Er oder sie drückt noch mehr. Das ist ein Fass ohne Boden. Oder es gibt irritierte Nachfragen, wer Du eigentlich wirklich bist und was Du ganz persönlich gerne magst. Bis hinzu: jetzt lass das doch mal und umgehe nicht jeden Streit damit, dass Du versuchst, es mir irgendwie recht zu machen.
 
-Der- oder diejenige, der oder die dem Besteller der Leistung "pleased", läuft langsam aber sicher leer. Er oder sie findet sich selbst nicht mehr.
+Der- oder diejenige, der oder die dem Besteller der Leistung "pleased", läuft langsam aber sicher leer. Er oder sie findet sich selbst nicht.
+
+--> **Der Pleaser hat die ungemütlichere Situation**, die schneller nach Änderung verlangt. Daher ist in dieser Beziehungsdynamik in der Regel der Pleaser, der etwas ändern will oder schlicht muss, weil er oder sie sonst untergeht.
+
+Und wenn Du wissen willst, wie Du Boden unter die Füße bekommst, dann lies Teil 2.
 
 ![2020-08-01-untergehender Mensch](/assets/2020-08-01-untergehender Mensch.jpg)
 <span>Photo by <a href="https://unsplash.com/@rozumna?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Anastasiia Rozumna</a> on <a href="https://unsplash.com/s/photos/helping?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
-
---> **Der Pleaser hat die deutlich ungemütlichere Situation**, die schneller nach Änderung verlangt. Daher ist in dieser Beziehungsdynamik in der Regel der Pleaser, der etwas ändern will oder schlicht muss, weil er oder sie sonst untergeht.
-
-Und wenn Du wissen willst, wie Du am besten aus der Nummer aussteigst, dann lies Teil 2.
-
 
