@@ -2,12 +2,10 @@
 title: Deine Garantie für einen Burnout. Wenn Du allen gefallen willst! Teil 1
 ---
 
-![2020-08-01-Frau sehr hilfsbereit](assets/2020-08-01-Frau sehr hilfsbereit)
+![2020-08-01-Frau sehr hilfsbereit](/assets/2020-08-01-Frau sehr hilfsbereit.jpeg)
 <span>Photo by <a href="https://unsplash.com/@annaelizaearl?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Anna Earl</a> on <a href="https://unsplash.com/s/photos/helping?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 # Die Selbstverständlichkeit, es für andere noch schnell zu erledigen
-Kennst du diese oder ähnliche Alltagssituationen?
-
 Im Projekt läuft eine Frist ab. Das sollte noch schnell erledigt werden. Eigentlich nicht in Deiner Verantwortung. Das wird am Morgen für ungemütliche Stimmung sorgen, sobald auffiele, dass die Frist im Team verbosselt wurde. Irgendwie sind alle schon aus dem Büro verschwunden. Also kümmerst Du Dich noch schnell drum (was heißt, 2h länger sitzen.)
 
 Boah, endlich geschafft! Zu Hause anzukommen! Nur leider hat Dein Partner / Deine Partnerin heute einen schlechten Tag im Büro gehabt. Am besten, Du kochst dann doch etwas Gutes, damit er oder sie sich wieder auflädt. Sonst hängt der Haussegen für den Rest des Abends schief und mit auf dem Sofa entspannen würde nichts.
