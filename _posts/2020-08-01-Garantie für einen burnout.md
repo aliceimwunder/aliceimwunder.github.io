@@ -1,5 +1,5 @@
 ---
-title: Deine Garantie für einen Burnout: Wenn Du allen gefallen willst! Teil 1
+title: Deine Garantie für einen Burnout. Wenn Du allen gefallen willst! Teil 1
 ---
 
 ![2020-08-01-Frau sehr hilfsbereit](assets/2020-08-01-Frau sehr hilfsbereit)
