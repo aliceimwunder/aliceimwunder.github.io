@@ -3,30 +3,42 @@ title: Deine Garantie für einen Burnout: Wenn Du allen gefallen willst! Teil 1
 ---
 
 # Die Selbstverständlichkeit, es für andere noch schnell zu erledigen
-Also da läuft die Frist ab, das muss noch schnell erledigt werden. Das wird morgen für ungemütliche Stimmung sorgen, wenn morgen auffiele, dass die Frist verbosselt wurde. Eigentlich sind schon alle nach Hause gegangen. 
+Kennst du diese oder ähnliche Alltagsituationen?
 
-Boh, endlich geschafft zu Hause anzukommen. Nur leider hat Dein Partner / Deine Partnerin heute einen schlechten Tag im Büro gehabt. Am besten, Du kochst dann doch noch etwas Gutes, damit er oder sie sich wieder auflädt. Sonst hängt der Haussegen für den Abend schief und mit auf dem Sofa entspannen wird nichts. Kennst Du diese oder ähnliche Situationen? Es gibt sie in ganz unterschielichen Varianten. Man geht noch schnell für die Mutter abends einkaufen, weil sie gerade gesundheitlich nicht kann, obwohl der eigene Tag lang war. Man lässt sich im Meeting zu etwas aus dem anderen Arbeitsgebiet überreden, weil man es doch auch so gut kann und der andere schon so überlastet (komisch, die eigene Arbeitsbelastung wurde gar nicht mit berücksichtigt). Es ist gerade so dicke Luft zu Hause, da sorge ich doch besser dafür, dass es besser wird. Sonst nervt es so... 
+Im Projekt läuft eine Frist ab. Das sollte noch schnell erledigt werden. Eigentlich nicht in Deiner Verantwortung. Das wird am Morgen für ungemütliche Stimmung sorgen, sobald auffiele, dass die Frist im Team verbosselt wurde. Irgendwie sind alle schon aus dem Büro verschwunden. Also kümmerst Du Dich noch schnell drum (was heißt, 2h länger sitzen.) 
 
-Meist ist man mit der Zeit in vielen Bereichen (beruflich wie privat) richtig gut geworden, um so schnell wie möglich abzuarbeiten. Darauf kann man richtig stolz sein, so viel zu reißen. 
+Boh, endlich geschafft! Zu Hause anzukommen! Nur leider hat Dein Partner / Deine Partnerin heute einen schlechten Tag im Büro gehabt. Am besten, Du kochst dann doch etwas Gutes, damit er oder sie sich wieder auflädt. Sonst hängt der Haussegen für den Rest des Abends schief und mit auf dem Sofa entspannen würde nichts. 
 
-Nur weißt Du noch, wie das geht, etwas für dich ganz persönlich zu tun? Oder weißt Du überhaupt, was Du für Dich tun willst? Und kommt Deine Erholung nicht irgendwie permanent zu kurz?
+Wer sorgt dafür, dass die eher langweiligen Pflichtaufgaben auch miterledigt werden und lässt sich dafür auch noch annölen, obwohl man weder Teamleiter ist noch für die Aufgabenverteilung tatsächlich etwas kann? Oder die Büroleiterin hat sich mit ihrem Freund das 5. Mal in dieser Woche gestritten, sitzt jetzt auf ihrem Bürostuhl wie ein Häuflein Elend. Von Arbeitsfähigkeit keine Spur. Und wer hört sich das Leid an, weil gerade alle bei drei verschwunden sind?
+
+So oder so ähnlich? Es gibt sie in ganz unterschielichen Varianten. Man geht noch schnell für die Mutter abends einkaufen, weil sie gerade gesundheitlich, Du weißt schon, ihr Fuß, ach das Alter und es wäre doch so wichtig... An sich ist Dein Tag lang. Das könnte man am Wochenende erledigen. 
+
+Man lässt sich im Meeting zu etwas aus dem anderen Arbeitsgebiet überreden, weil man doch effizient sei (blinzel, blinzel) und der andere schon so überlastet (komisch, die eigene Arbeitsbelastung wurde gar nicht mit berücksichtigt). Es ist gerade so dicke Luft zu Hause, da sorge ich doch besser dafür, dass es besser wird. Sonst nervt es/er/sie so und es macht weniger Aufwand darauf einzugehen, als einfach mal NEIN zu sagen... 
+
+# Ergebnis: Du bist richtig gut!
+Wenn Du ein echter people pleaser bist, dann hast Du wahrscheinlich zum effizienten Allrounder geworden. Darauf kannst Du stolz sein. So viel zu reißen, das schaffen nicht alle.  Das hat nur auch eine Kehrseite der Medaille oder richtig hart ausgedrückt: für jeden anderen bist Du die eierlegende Wollmilchsau... Und falls Du nicht den inneren Akku einer eierlegenden Wollmilchsau hast (so weit mir bekannt gibt's die genauso wenig wie das Perpetumobile), dann bist Du nicht nur richtig gut, sondern auch **irgendwann ausgebrannt**. 
+
+Weißt Du noch, wie das geht: etwas für dich ganz persönlich zu tun? Weißt Du überhaupt, was Du für Dich tun willst? Und kommt Deine Erholung nicht irgendwie permanent zu kurz? Und weißst Du, wie das geht zu sagen, "Nö, heute mal nicht. Morgen gerne wieder."?
 
 Es gibt viele Wege in den Burnout - das ist einer davon...
 
 # Die Last des Pleasers
-Kennst Du den Begriff: "Pleaser" in diesem Zusammenhang? Damit bezeichnet man Menschen, die schon von klein auf darauf gepolt sind (meist, weil sie das in ihrer Familie mussten, um als Kind in der Familie durchzukommen oder weil sie die Belastung der anderen Familienmitglieder empathisch so gut spüren konnten), alles zu tun, um anderen zu gefallen? Die härteste Variante davon ist, wenn während der frühen Kindheit Familienmitglieder mit Beziehungsabbruch gedroht haben. Also z.B. wenn Deine Mutter schon selbst völlig erschöpft aus dem Büro kam und sich kommentarlos in ihr Zimmer verzog, wenn nicht gestaubsaugt war. (oder, oder, oder, es gibt wie gesagt viele Varianten von diesem Thema). Dann ist das für ein Kind lebensbedrohlich, weil Kinder auf eine Beziehung zu ihren Bezugspersonen gepolt sein müssen. Davon hing früher ihr Überleben ab. 
+Kennst Du den Begriff: "Pleaser" in diesem Zusammenhang? 
 
-Je nach konkreter Spielart in der Familie entstehen daraus "Druckknöpfe", also psychische Muster, die andere benutzen können, um einen Pleaser dazu zu bekommen, weiterhin alles zu tun, um zu gefallen, auch wenn er oder sie schon lange erwachsen ist. 
+Damit bezeichnet man **Menschen, die schon von klein auf darauf gepolt sind** (meist, weil sie das in ihrer Familie mussten, um als Kind in der Familie durchzukommen oder weil sie die Belastung der anderen Familienmitglieder empathisch so gut spüren konnten), **alles zu tun, um anderen zu gefallen.** Zum unschlagbaren people pleaser wirst Du, wenn Dir während der frühen Kindheit Familienmitglieder gezielt mit Beziehungsabbruch gedroht haben. Das bedeutet nicht, dass es "böse" waren. Wenn Deine Mutter schon selbst völlig erschöpft aus dem Büro kam und sich kommentarlos in ihr Zimmer verzog, wenn nicht gestaubsaugt war. - Dann war sie schon selbst überfordert und hat vermutlich nicht geahnt, was sie damit anrichtet... Denn für Kinder fühlt sich Beziehungsabbruch nicht nur unangenehm sondern lebensbedrohlich an, weil Kinder auf eine Beziehung zu ihren Bezugspersonen gepolt sein müssen. Davon hing früher ihr Überleben ab. (Wobei man auch zum pleaser werden kann, wenn man so dem mobbing in der Schule ausweichen konnte oder die ewig streitenden Eltern versucht hat, zu befrieden...). 
 
-Es gibt unterschiedlichste Druckknöpfe, die andere dann **meist unterbewusst** (die Variante gezielte bewusste Manipulation gibt es natürlich auch) drücken können, um einen pleaser dazu zu bekommen, genau das zu tun was man haben will.
+Je nach konkreter Spielart in der Familie entstehen daraus "Druckknöpfe". Mit Druckknöpfen meine ich psychische (in der Regel vollkommen unbewusste Muster). Andere können sie benutzen, um einen Pleaser zum Springen zu bekommen. Die psychische Struktur gefallen zu wollen (bzw. auch schlicht es so gut zu können). Auch wenn er oder sie schon lange erwachsen ist. 
 
-Zunächst an der Situation hat niemand Schuld, weder der/diejenige, der oder die die Knöpfe beim anderen drückt. Noch der Pleaser, der dann sofort alles eigene stehen lässt, um dem anderen zu gefallen. Es ist einfach **eine Beziehungsdynamik**.
+Es gibt unterschiedlichste Druckknöpfe, die andere dann **meist unterbewusst** (die Variante gezielte bewusste Manipulation gibt es natürlich auch) drücken können, um einen pleaser dazu zu bekommen, genau das zu tun was man haben will. In der Regel **hängen sie von den eigenen Werten ab**. Ist Dein größter Wert z.B. Freiheit, dann kann es sein, dass Dir ein Chef mit mehr Kontrolle droht, wenn Du nicht doch noch mal ein bisschen über die Zeit hinaus seine Probleme löst. Oder Dein höchster Wert ist Teamgeist und schwups droht man Dir mit einem Einzelbüro, wo Du das Gefühl hättest, abgehängt zu werden. Die stärkste Waffe bleibt meist natürlich: die Bindung - man droht mit Bindungsverlust, in Form von Innerlich zurückziehen, unterschwelligem Androhen einer Versetzung oder ganz theatralisch: Dann verlasse ich Dich, wenn du nicht x,y,z für mich tust).
 
-# Für beide Seiten übrigens wenig befriedigend: 
-Derjenige, der den Knopf drückt, bekommt "nur" das gelernte Programm vorgesetzt, statt echte Nähe (Ergebnis: er oder sie drückt dann noch mehr...) 
-Und der oder diejenige, der oder die dem Besteller der Leistung "pleased", läuft langsam aber sicher leer und findet sich selbst nicht mehr. 
+Zunächst an der Situation hat niemand Schuld, weder der/diejenige, der oder die die Knöpfe beim anderen drückt. Noch der Pleaser, der dann sofort alles eigene stehen lässt, um dem anderen zu gefallen. Es ist einfach **eine Beziehungsdynamik**. Bitte berücksichtige dies. Es gibt keinen Schuldigen in dem Spiel. Anderen Vorwürfe machen oder selbst mit Bindungsabbruch drohen (also den Spieß umdrehen vor Wut) hilft überhaupt nichts.  
 
---> Wobei der pleaser die deutlich ungemütlichere Situation hat, die schneller nach Änderung verlangt. Daher ist in dieser Beziehungsdynamik in der Regel der Pleaser, der etwas ändern will oder schlicht muss, weil er oder sie sonst untergeht.
+# Für beide Seiten wenig befriedigend: 
+Derjenige, der Deine Knöpfe drückt, bekommt "nur" Dein perfekt einstudiertes, wie am Schnürchen ablaufendes Programm vorgesetzt. Sind das Beziehungen mit wenig bis keiner Intimität, wie im Büro oder zu Kunden, dann ist das den Nutznießern Deiner Druckknöpfe egal. Ist das ein intimer Partner, kann es sein, dass der Partner mehr drück, weil er oder sie statt echte Nähe das Programm vorgesetzt bekommt. Ergebnis: Er oder sie drückt noch mehr. Oder alternativ, es gibt irritierte Nachfragen, wer Du eigentlich wirklich bist und was Du ganz persönlich gerne magst. Bis hinzu: jetzt lass das doch mal und umgehe nicht jeden Streit damit, dass Du versuchst, es mir irgendwie recht zu machen. 
+
+Der- oder diejenige, der oder die dem Besteller der Leistung "pleased", läuft langsam aber sicher leer. Er oder sie findet sich selbst nicht mehr. 
+
+--> Wobei **der pleaser die deutlich ungemütlichere Situation hat, die schneller nach Änderung verlangt. Daher ist in dieser Beziehungsdynamik in der Regel der Pleaser, der etwas ändern will oder schlicht muss, weil er oder sie sonst untergeht.
 
 Und wenn Du wissen willst, wie Du am besten aus der Nummer aussteigst, dann lies Teil 2. 
 
