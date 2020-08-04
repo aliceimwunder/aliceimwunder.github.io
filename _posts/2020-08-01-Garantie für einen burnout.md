@@ -2,7 +2,7 @@
 title: Deine Garantie für einen Burnout. Wenn Du allen gefallen willst! Teil 1
 ---
 
-![2020-08-01-Frau sehr hilfsbereit](/assets/2020-08-01-Frau sehr hilfsbereit.jpeg)
+![2020-08-01-Frau sehr hilfsbereit](/assets/2020-08-01-Frau sehr hilfsbereit.jpg)
 <span>Photo by <a href="https://unsplash.com/@annaelizaearl?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Anna Earl</a> on <a href="https://unsplash.com/s/photos/helping?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 # Die Selbstverständlichkeit, es für andere noch schnell zu erledigen
@@ -17,7 +17,7 @@ So oder ganz anders aber doch vergleichbar? Man geht nur "schnell" für die Mutt
 Man lässt sich im Meeting zu etwas aus dem anderen Arbeitsgebiet überreden, weil man doch effizient sei (blinzel, blinzel) und der andere schon so überlastet (komisch, die eigene Arbeitsbelastung wurde gar nicht mit berücksichtigt). Es ist gerade so dicke Luft zu Hause, da sorge ich noch schnell, dass es besser wird. Sonst nervt es/er/sie so und es macht weniger Aufwand darauf einzugehen, als einfach mal NEIN zu sagen...
 
 # Ergebnis: Du bist richtig gut!
-Wenn Du ein echter people pleaser bist, dann hast Du wahrscheinlich zum effizienten Allrounder geworden. Darauf kannst Du stolz sein. So viel zu reißen, das schaffen nicht alle.  Das hat nur auch eine Kehrseite der Medaille oder richtig hart ausgedrückt: für jeden anderen bist Du die eierlegende Wollmilchsau... Und falls Du nicht den inneren Akku einer eierlegenden Wollmilchsau hast (so weit mir bekannt gibt's die genauso wenig wie das Perpetuum Mobile), dann bist Du nicht nur richtig gut, sondern auch **irgendwann ausgebrannt**. Nichtsdestotrotz: Bitte klopfe Dir als aller erstes selbst auf die Schulter. Du bist richtig gut und hast eine echte Superpower, die andere nicht haben. (unabhängig davon, dass die Superpower eben auch ihre downside hat. Die lässt sich beheben - s. Teil 2)
+Wenn Du ein echter people pleaser bist, dann hast Du wahrscheinlich zum **effizienten Allrounder** geworden. Darauf kannst Du stolz sein. So viel zu reißen, das schaffen nicht alle.  Das hat nur auch eine Kehrseite der Medaille oder richtig hart ausgedrückt: für jeden anderen bist Du die eierlegende Wollmilchsau... Und falls Du nicht den inneren Akku einer eierlegenden Wollmilchsau hast (so weit mir bekannt gibt's die genauso wenig wie das Perpetuum Mobile), dann bist Du nicht nur richtig gut, sondern auch **irgendwann ausgebrannt**. Nichtsdestotrotz: Bitte klopfe Dir als aller erstes selbst auf die Schulter. Du bist richtig gut und hast eine echte Superpower, die andere nicht haben. (unabhängig davon, dass die Superpower eben auch ihre downside hat. Die lässt sich beheben - s. Teil 2)
 
 Weißt Du noch, wie das geht: etwas für dich ganz persönlich zu tun? Weißt Du überhaupt, was Du für Dich tun willst? Kommt Deine Erholung permanent zu kurz? Weißt Du, wie das geht zu sagen, "Nö, heute mal nicht. Morgen gerne wieder."? (ohne schlechtes Gewissen!)
 
@@ -40,7 +40,7 @@ Zunächst an der Situation hat niemand Schuld, weder der/diejenige, der oder die
 
 Der- oder diejenige, der oder die dem Besteller der Leistung "pleased", läuft langsam aber sicher leer. Er oder sie findet sich selbst nicht mehr.
 
-![2020-08-01-untergehender Mensch](assets/2020-08-01-untergehender Mensch)
+![2020-08-01-untergehender Mensch](/assets/2020-08-01-untergehender Mensch.jpg)
 <span>Photo by <a href="https://unsplash.com/@rozumna?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Anastasiia Rozumna</a> on <a href="https://unsplash.com/s/photos/helping?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 --> **Der Pleaser hat die deutlich ungemütlichere Situation**, die schneller nach Änderung verlangt. Daher ist in dieser Beziehungsdynamik in der Regel der Pleaser, der etwas ändern will oder schlicht muss, weil er oder sie sonst untergeht.
