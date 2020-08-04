@@ -2,6 +2,9 @@
 title: Deine Garantie für einen Burnout: Wenn Du allen gefallen willst! Teil 1
 ---
 
+![2020-08-01-Frau sehr hilfsbereit](assets/2020-08-01-Frau sehr hilfsbereit)
+<span>Photo by <a href="https://unsplash.com/@annaelizaearl?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Anna Earl</a> on <a href="https://unsplash.com/s/photos/helping?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
+
 # Die Selbstverständlichkeit, es für andere noch schnell zu erledigen
 Kennst du diese oder ähnliche Alltagssituationen?
 
@@ -9,9 +12,9 @@ Im Projekt läuft eine Frist ab. Das sollte noch schnell erledigt werden. Eigent
 
 Boah, endlich geschafft! Zu Hause anzukommen! Nur leider hat Dein Partner / Deine Partnerin heute einen schlechten Tag im Büro gehabt. Am besten, Du kochst dann doch etwas Gutes, damit er oder sie sich wieder auflädt. Sonst hängt der Haussegen für den Rest des Abends schief und mit auf dem Sofa entspannen würde nichts.
 
-Wer sorgt dafür, dass die eher langweiligen Pflichtaufgaben auch miterledigt werden und lässt sich dafür auch noch annölen, obwohl man weder Teamleiter ist noch für die Aufgabenverteilung tatsächlich etwas kann? Oder die Büroleiterin hat sich mit ihrem Freund das 5. Mal in dieser Woche gestritten, sitzt jetzt auf ihrem Bürostuhl wie ein Häuflein Elend. Von Arbeitsfähigkeit keine Spur. Und wer hört sich das Leid an, weil gerade alle bei drei verschwunden sind?
+Wer sorgt dafür, dass die eher langweiligen Pflichtaufgaben auch miterledigt werden und lässt sich dafür auch noch annölen, obwohl man weder Teamleiter ist noch für die Aufgabenverteilung tatsächlich etwas kann? Oder die Büroleiterin hat sich mit ihrem Freund das 5. Mal in dieser Woche gestritten, sitzt jetzt auf ihrem Bürostuhl wie ein Häuflein Elend. Von Arbeitsfähigkeit keine Spur. Und wer hört sich das Leid an, weil gerade alle bei drei verschwunden sind? Gesehen habe ich auch schon den Rechtsanwalt, der es nicht übers Herz bringt, seinem Klienten nicht nur sagen, dass der Rechtsstreit nichts bringen wird (und der Anwalt nichts daran verdient), sondern auch klar zu machen, dass er ganz sicher nicht die Klageschrift aufsetzen wird. 
 
-So oder so ähnlich? Es gibt sie in ganz unterschiedlichen Varianten. Man geht noch schnell für die Mutter abends einkaufen, weil sie gerade gesundheitlich, Du weißt schon, ihr Fuß, achja, das Alter und es wäre doch so wichtig... An sich ist Dein Tag lang. Das könnte man am Wochenende erledigen. Ja, aber Du würdest ihr doch so eine Freude machen, wenn...
+So oder ganz anders aber doch vergleichbar? Man geht nur "schnell" für die Mutter abends einkaufen, weil sie gerade gesundheitlich, Du weißt schon, ihr Fuß, achja, das Alter und es wäre doch sooo wichtig... An sich ist Dein Tag lang genug. Das könnte man mit einem Großeinkauf am Wochenende erledigen. Ja, aber Du würdest ihr doch so eine Freude machen, wenn...
 
 Man lässt sich im Meeting zu etwas aus dem anderen Arbeitsgebiet überreden, weil man doch effizient sei (blinzel, blinzel) und der andere schon so überlastet (komisch, die eigene Arbeitsbelastung wurde gar nicht mit berücksichtigt). Es ist gerade so dicke Luft zu Hause, da sorge ich noch schnell, dass es besser wird. Sonst nervt es/er/sie so und es macht weniger Aufwand darauf einzugehen, als einfach mal NEIN zu sagen...
 
