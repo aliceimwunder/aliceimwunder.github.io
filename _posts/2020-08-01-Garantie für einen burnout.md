@@ -39,9 +39,10 @@ Zunächst an der Situation hat niemand Schuld, weder der/diejenige, der oder die
 
 Der- oder diejenige, der oder die dem Besteller der Leistung "pleased", läuft langsam aber sicher leer. Er oder sie findet sich selbst nicht mehr.
 
+![2020-08-01-untergehender Mensch](assets/2020-08-01-untergehender Mensch)
 <span>Photo by <a href="https://unsplash.com/@rozumna?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Anastasiia Rozumna</a> on <a href="https://unsplash.com/s/photos/helping?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
---> Wobei **der Pleaser die deutlich ungemütlichere Situation hat, die schneller nach Änderung verlangt. Daher ist in dieser Beziehungsdynamik in der Regel der Pleaser, der etwas ändern will oder schlicht muss, weil er oder sie sonst untergeht.
+--> **Der Pleaser hat die deutlich ungemütlichere Situation**, die schneller nach Änderung verlangt. Daher ist in dieser Beziehungsdynamik in der Regel der Pleaser, der etwas ändern will oder schlicht muss, weil er oder sie sonst untergeht.
 
 Und wenn Du wissen willst, wie Du am besten aus der Nummer aussteigst, dann lies Teil 2.
 
