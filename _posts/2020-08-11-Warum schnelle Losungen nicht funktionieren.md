@@ -2,7 +2,7 @@
 title: Warum schnelle Lösungen bei Burnout nicht funktionieren
 ---
 
-![nachdenklicher Mann](/assets/2020-08-11-nachdenklicher Mann.png)
+![nachdenklicher Mann](/assets/2020-08-11-nachdenklicher Mann.jpg)
 <span>Photo by <a href="https://unsplash.com/@benwhitephotography?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Ben White</a> on <a href="https://unsplash.com/s/photos/fatigue?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 # Burnout und der Wunsch nach schneller Besserung
@@ -84,7 +84,7 @@ Mehr nicht. Nach fünf Minuten Aufmerksamkeit hüpfte sie wieder fröhlich herum
 Punkt!!! **Trost ist tatsächlich eine echte Schnelllösung**: Denn Kinder heilen in Minuten, soweit es um Alltagsverletzungen geht. Statt uns das zu gönnen, 
 verwehren wir Trost unseren Kindern und suchen nach Schnelllösungen im Erwachsenenalter. 
 
-![liegendes Kind](/assets/2020-08-11-liegendes Kind.png)
+![liegendes Kind](/assets/2020-08-11-liegendes Kind.jpg)
 <span>Photo by <a href="https://unsplash.com/@nicotitto?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">nrd</a> on <a href="https://unsplash.com/s/photos/fatigue?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 Nun sind unter normalen Umständen **seelische Verletzungen genauso auf Heilung eingestellt wie körperliche**. Nur haben wir seelische Verletzungen über zum Teile 
