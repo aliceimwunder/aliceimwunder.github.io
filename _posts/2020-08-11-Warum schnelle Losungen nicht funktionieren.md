@@ -2,6 +2,9 @@
 title: Warum schnelle Lösungen bei Burnout nicht funktionieren
 ---
 
+![nachdenklicher Mann](/assets/2020-08-11-Mann nachdenklich.png)
+<span>Photo by <a href="https://unsplash.com/@benwhitephotography?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Ben White</a> on <a href="https://unsplash.com/s/photos/fatigue?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
+
 # Burnout und der Wunsch nach schneller Besserung
 Als ich in meinen Burnouts festsaß, **wünschte ich mir nichts mehr, als endlich mehr Energie**. Und zwar sofort und auf der Stelle! 
 Ich dachte, ich würde irre, weil die üblichen Krankschreibungszeiten hinten und vorne nicht mehr reichten. 
