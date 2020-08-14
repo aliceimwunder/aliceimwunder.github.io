@@ -2,7 +2,7 @@
 title: "Test-KlientInnen gesucht"
 ---
 
-![TestklientInnen gesucht](/assets/2020-08-14-TestklientInnen gesucht.jpg)
+![TestklientInnen gesucht](/assets/2020-08-14-TestklientInnen gesucht.jpeg)
 
 **Burnout meets Spirituality**
 
