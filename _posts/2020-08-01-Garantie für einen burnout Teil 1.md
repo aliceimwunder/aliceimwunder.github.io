@@ -51,7 +51,7 @@ In einer intimen Partnerschaft kann es sein, dass der Partner oder die Partnerin
 
 --> **Als Pleaser hast Du wahrscheinlich die ungemütlichere Situation**, die schneller nach Änderung verlangt. Daher ist in dieser Beziehungsdynamik in der Regel der Pleaser, der etwas ändern will oder schlicht muss, weil er oder sie sonst untergeht.
 
-Und wenn Du wissen willst, wie Du Boden unter die Füße bekommst, dann lies Teil 2 (demnächst).
+Und wenn Du wissen willst, wie Du Boden unter die Füße bekommst, dann lies [Teil 2](/2020/08/04/Garantie-f%C3%BCr-einen-Burnout-Teil-2.html).
 
 ![2020-08-01-untergehender Mensch](/assets/2020-08-01-untergehender Mensch.jpg)
 <span>Photo by <a href="https://unsplash.com/@rozumna?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Anastasiia Rozumna</a> on <a href="https://unsplash.com/s/photos/helping?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
