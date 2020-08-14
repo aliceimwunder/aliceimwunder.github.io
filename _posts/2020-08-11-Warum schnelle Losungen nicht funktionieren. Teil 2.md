@@ -1,5 +1,5 @@
 ---
-title: Warum schnelle Lösungen bei Burnout nicht funktionieren
+title: Warum schnelle Lösungen bei Burnout nicht funktionieren, Teil 2
 ---
 
 ![nachdenklicher Mann](/assets/2020-08-11-nachdenklicher Mann.jpg)
@@ -8,13 +8,15 @@ title: Warum schnelle Lösungen bei Burnout nicht funktionieren
 # Burnout und der Wunsch nach schneller Besserung
 Als ich in meinen Burnouts festsaß, **wünschte ich mir nichts mehr, als endlich mehr Energie**. Und zwar sofort und auf der Stelle! 
 Ich dachte, ich würde irre, weil die üblichen Krankschreibungszeiten hinten und vorne nicht mehr reichten. 
-Ärzte legten mir den Gang zum Psychiater nahe. Übersetzt: Mädel, das bildest Du Dir alles nur ein.
+Ärzte legten mir den Gang zum Psychiater nahe. Übersetzt: Mädel, das bildest Du Dir alles nur ein. 
 
 Erholung wollte sich nicht einstellen. Egal was ich angestellte. All die schönen Ratschläge, die ich (un)freiwillig bekam - nichts davon wollte funktionieren. 
 
 **Die Hoffnung stirbt zuletzt.** Ich rannte also der schnellen Lösung für mehr Energie hinterher und probierte Vieles. 
 
-Manches davon hat auch ein bisschen geholfen, v.a. am Anfang. Manches nutze ich sogar bis heute. Ich gehe z.B. regelmäßig zu Akupunktursitzungen gegen Muskelschmerzen. Ich würde schnelle Lösungen so betrachten: Kein Mensch muss mit Zahnschmerzen herumlaufen. Bekommt man am Wochenende Zahnschmerzen, auf Notfallklinik hat man keine Lust und der Zahnarztbesuch ist erst am Wochenbeginn möglich. Dann schmeiße ich mir eine oder auch mehrer Schmerztabletten ein. Zu erwarten allerdings, dass die Schmerztabletten auf Dauer das Problem "Zahnschmerzen" löst, wird wohl leider nichts bringen. Insofern haben kurzfristige Lösungen durchaus ihren Platz und es ist ok, wenn man gerade akute Probleme hat, diese auch entsprechend schnell anzugehen.
+Manches davon hat auch ein bisschen geholfen, v.a. am Anfang. Manches nutze ich sogar bis heute. Ich gehe z.B. regelmäßig zu Akupunktursitzungen gegen Muskelschmerzen. 
+
+Ich würde schnelle Lösungen so betrachten: Kein Mensch muss mit Zahnschmerzen herumlaufen. Bekommt man am Wochenende Zahnschmerzen, auf Notfallklinik hat man keine Lust und der Zahnarztbesuch ist erst am Wochenbeginn möglich. Dann schmeiße ich mir eine oder auch mehrer Schmerztabletten ein. Zu erwarten allerdings, dass die Schmerztabletten auf Dauer das Problem "Zahnschmerzen" löst, wird wohl leider nichts bringen. **Kurzfristige Lösungen haben ihren Platz.** Es ist vollkommen ok, wenn man gerade akute Probleme hat, diese auch entsprechend schnell anzugehen. Vom Leiden kann sich auch niemand etwas kaufen. 
 
 # Der lange Weg in einen Burnout
 Nun hat man meistens Glück und Zahnschmerzen sind zügig behoben. Einen Burnout hingegen hat man sich nicht über Nacht geholt. Er geht nicht über Nacht. Heilung kommt nicht schneller, nur weil man überall herumrennt 
