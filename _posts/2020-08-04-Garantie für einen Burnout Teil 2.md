@@ -1,6 +1,8 @@
 ---
-title: Deine Garantie für einen Burnout: Wenn Du allen gefallen willst. Teil 2
+title: "Deine Garantie für einen Burnout: Wenn Du allen gefallen willst. Teil 2"
 ---
+Wie du aus dem Dasein als People Pleaser erfolgreich aussteigst: 
+Hier geht es zu [Teil 1](/posts/)
 
 # Grenzen sich selbst zugestehen
 Das, was dann hilft, ist sich als allererstes seiner eigenen Grenzen bewusst zu werden. Erstmal nur bewusst werden. Schon schwierig genug! Da kommen gefühlt 1000 Glaubenssätze hoch, die schon verhindern wollen, dass man überhaupt Grenzen hat, das der eigene Körper, die Seele, der Geist Grenzen der Leistungsfähigkeit hat. Gerade auf die daraus entstandene Leistungsfähigkeit ist man ja besonders stolz. Und überhaupt ist es einfacher, schnell noch x oder y zu erledigen, als sich selbst gegenüber einzugestehen, es ist genug - und zwar zu einem Zeitpunkt, wo man nur ein bisschen müde ist und nicht komplett auf den Felgen läuft und es wirklich für jeden 10km gegen den Wind zu sehen ist, dass es nicht mehr geht (ach, aber eigentlich könntest Du noch ganz schnell... Du kannst das so gut und ich habe doch gerade Problem x, und Du weißt doch, wie schwer es mir dann fällt...)
