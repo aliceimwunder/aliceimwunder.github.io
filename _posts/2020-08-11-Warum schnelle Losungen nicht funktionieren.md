@@ -1,5 +1,5 @@
 ---
-title: Warum schnelle Lösungen bei Burnout nicht funktionieren, Teil 2
+title: Warum schnelle Lösungen bei Burnout nicht funktionieren
 ---
 
 ![nachdenklicher Mann](/assets/2020-08-11-nachdenklicher Mann.jpg)
