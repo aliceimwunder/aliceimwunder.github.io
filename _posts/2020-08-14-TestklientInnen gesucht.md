@@ -1,6 +1,7 @@
 ---
-title: Test-KlientInnen gesucht
+title: "Test-KlientInnen gesucht"
 ---
+
 ![TestklientInnen gesucht](/assets/2020-08-14-TestklientInnen gesucht)
 
 **Burnout meets Spirituality**
