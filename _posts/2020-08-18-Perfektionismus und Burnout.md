@@ -3,6 +3,7 @@ Title: “Perfekt - Aber ausgebrannt - Warum wir Perfektionismus nicht einfach l
 ---
 
 ![Mann in Stresshaltung](/assets/2020-08-18-Mann in Stresshaltung.jpg)
+
 <span>Photo by <a href="https://unsplash.com/@rosam2020?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Roland Samuel</a> on <a href="https://unsplash.com/t/business-work?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 Perfektionismus ist ein guter Weg in einen Burnout und in schlechten Schlaf oben drein. Leider kann man Perfektionsmus nicht einfach abstellen. Geht es dir auch so? 
