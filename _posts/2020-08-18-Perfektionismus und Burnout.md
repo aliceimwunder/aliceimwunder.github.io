@@ -1,10 +1,10 @@
 ---
-Title: “Perfekt - Aber ausgebrannt - Warum wir Perfektionismus nicht einfach loslassen könne." 
+Title: “Perfekt - Aber ausgebrannt - Warum wir Perfektionismus nicht einfach loslassen können." 
 ---
 
 Perfektionismus ist ein guter Weg in einen Burnout und in schlechten Schlaf oben drein. Leider kann man Perfektionsmus nicht einfach abstellen. Geht es dir auch so? 
 
-**Eigentlich möchtest Du lieber glücklich/effektiv/vielseitig/... als perfekt sein?** Das klappt aber irgendwie nicht? 
+**Eigentlich möchtest Du lieber glücklich/effektiv/vielseitig/... als perfekt sein?** Das klappt aber irgendwie nicht? Einfach mal locker lassen?
 
 # Ein Glaubenssatz, warum wir nicht einfach aufhören können, perfekt zu sein
 Der unterschwellige Glaubenssatz,, den wir meist gar nicht merken, lautet: *ich bin erst liebenswert/anerkannt/respektiert/...,* wenn ich alles perfekt mache. 
