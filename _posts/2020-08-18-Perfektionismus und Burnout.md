@@ -2,6 +2,9 @@
 Title: “Perfekt - Aber ausgebrannt - Warum wir Perfektionismus nicht einfach loslassen können." 
 ---
 
+![Mann in Stresshaltung](/assets/2020-08-18-Mann in Stresshaltung.jpg)
+<span>Photo by <a href="https://unsplash.com/@rosam2020?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Roland Samuel</a> on <a href="https://unsplash.com/t/business-work?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
+
 Perfektionismus ist ein guter Weg in einen Burnout und in schlechten Schlaf oben drein. Leider kann man Perfektionsmus nicht einfach abstellen. Geht es dir auch so? 
 
 **Eigentlich möchtest Du lieber glücklich/effektiv/vielseitig/... als perfekt sein?** Das klappt aber irgendwie nicht? Einfach mal locker lassen?
@@ -41,3 +44,5 @@ Wenn man sich im Überlebensmodus wieder findet, ist der Neo-Kortex - unser Gro�
 Was sind Deine Erfahrungen mit Perfektionismus? Bringt es Dich in Erschöpfung und Überforderung mit den täglichen Anforderungen? Brauchst Du ihn manchmal, manchmal wäre es schön, wenn Du ihn abstellen könntest? Teile Deine Erfahrung dazu gerne mit und schreibe unten einen Kommentar. 
 
 Wenn Du  wissen willst, was hilft, dann lies den nächsten Post. Dort verrate ich Dir, wie Du aus dem Flucht-und-Kampf-Modus beruhigst, dafür Deinen Neo-Kortex anstellst. Damit wird Perfektionismus zur Superpower, die Du bewusst ansteuern kannst, wenn Du sie brauchst und sie abstellst, wenn Du gerade etwas anderes brauchst. (demnächst).
+
+PS: Der Mann auf dem Bild oben hat übrigens (wahrscheinlich ganz unbewusst) eine volle Stresshaltung eingenommen. Genauer gesagt, mit dieser Haltung - beide Hände vesschränkt unter die Achseln klemmen - kann man aus der Sicht traditioneller chinesischer Medizin den Dreifacherwärmer (für unseren Stresshaushalt zuständig) und den Milzmeridian (zuständig für die Verarbeitung von Input - egal ob Essen oder seelischen Eindrücken) ausgleichen. Dadurch fährt die Stressreaktion im Körper etwas runter und man ist denkfähiger. Sieht man häufiger in Meetings, dass Leute solche Haltungen einnehmen.  
