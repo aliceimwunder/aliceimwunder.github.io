@@ -30,10 +30,13 @@ Drei Tage später, im Krankenhausbett bot sich mir eine ganz neue Aussicht: Dial
 
 # Ich entschied mich in diesem Bett: 
 **Jetzt reichts! Ich gehe auf meinen eigenen zwei Beinen aus diesem Krankenhaus und ich ändere mein Leben grundlegend. Ich gehe alles Denkbare an, um zu heilen. Ich drehe jeden Stein um. Auf Glaubenssätze, Konventionen und väterliche Ratschläge “Kind, Du musst doch von was leben.”, schei… ich ab jetzt. Ich lasse meine fünfjährige Tochter nicht ohne Mutter auf diesem Planeten! Und ich finde heraus, was ich wirklich will. Jetzt! Naja, zumindest zeitnah…**
+
 # Mein Weg aus der Verzweiflung
 Nach 16 Tagen hatte ich den ersten Punkt auf meiner neuen To-do-Liste erreicht. Ich ging auf meinen eigenen Beinen mit zwar angeschlagenen, aber funktionierenden Organen aus dem Krankenhaus. 
 
-Für die Ärzte war ich ein nicht mehr zu verstehender Fall von Wunderheilung. Sie fanden trotz zum Teil gruseligsten Untersuchungsmethoden keine sinnvolle Erklärung für die zwei Herzinfarkte hintereinander. Medikamente ließen sich nicht einstellen, die Blutwerte spielten verrückt. Das MRT behauptete, ich hätte keinen Herzinfarkt gehabt, obwohl die Ärzte nur wenige Tage zuvor um mein Leben mit gleich zwei Herzinfarkten hintereinander gekämpft hatten. Sie unterstellten sich gegenseitig schlampige Arbeit. Irgendwie taten mir die Ärzte leid. Ich hatte eine Form von Vertrauen ins Leben gefunden, die mich vom Patienten zum Zaungast dieser Veranstaltung hatte werden lassen. 
+Für die Ärzte war ich ein nicht mehr zu verstehender Fall von Wunderheilung. Sie fanden trotz zum Teil gruseligsten Untersuchungsmethoden keine sinnvolle Erklärung für die zwei Herzinfarkte hintereinander. Medikamente ließen sich nicht einstellen, die Blutwerte spielten verrückt. Das MRT behauptete, ich hätte keinen Herzinfarkt gehabt, obwohl die Ärzte nur wenige Tage zuvor um mein Leben mit gleich zwei Herzinfarkten hintereinander gekämpft hatten. Sie unterstellten sich gegenseitig schlampige Arbeit. 
+
+Irgendwie taten mir die Ärzte leid. Ich hatte eine Form von **Vertrauen ins Leben gefunden, die mich vom Patienten zum Zaungast dieser Veranstaltung hatte werden lassen.** 
 
 # Wie war ich da eigentlich gelandet?
 Mein Herzinfarkt hatte sich auf den mittlerweile dritten Burnout gesetzt. Die Erschöpfungsphasen waren schön mit großem Abstand gekommen. Jeweils 10 Jahre, sodass ich den vorherigen immer schon ein wenig vergessen hatte. 
@@ -54,15 +57,17 @@ Auf meinen Wegen mit den unterschiedlichen Arten und Ursachen von Erschöpfung h
 - sich selbst unter widrigen Bedingungen auf das zu konzentrieren, was die eigene Seele nährt, laserscharfen Fokus auf die eigenen Träume und Ideale legt... 
 
 # Mein Leben heute
-Heute arbeite ich von zu Hause - mit sehr viel Erholung um mich herum. Ich lebe direkt am Wald fast ohne jeden Straßenverkehr mit riesigem Garten. Dafür mit Bahnanschluss nach Berlin. Gelebt hatte ich schon in Berlin, Florenz, Straßburg, Paris, an der Nordsee, Bayern und Cornwall/GB. Beruflich war ich haupt- und nebenberuflich schon alles Mögliche. Jetzt bin ich angekommen. 
+Heute arbeite ich von zu Hause - mit sehr viel Erholung um mich herum. Ich lebe direkt am Wald fast ohne jeden Straßenverkehr mit riesigem Garten. Dafür mit Bahnanschluss nach Berlin. Gelebt hatte ich schon in Berlin, Florenz, Straßburg, Paris, an der Nordsee, Bayern und Cornwall/GB. Beruflich war ich haupt- und nebenberuflich schon alles Mögliche. Nun fühle ich mich angekommen. 
 
 Ich liebe die Natur, Berlin ist meine Heimat. Jetzt habe ich beides. Wie Ferien für immer!
 
-## Und dazu obendrein 
+# Und dazu obendrein 
 
-Menschen mit etwas helfen, was sie wirklich weiterbringt. Manchmal weiß ich gar nicht, wohin mit meinem Glück. Die Vorstellung, meinem Körper später einmal wieder 30 oder gar 40 Stunden pro Woche Arbeit in einem Büro abzuverlangen? Das wird vermutlich nichts mehr. Es sei denn, ich will mir schon mal ein schönes Plätzchen auf einem Friedhof suchen… Auf mehr als eine Wunderheilungen in einem Leben zu bauen ist unlogischer als jede spirituelles Tool, das ich mir angeeignet habe.
+Menschen mit etwas helfen, was sie wirklich weiterbringt. Manchmal weiß ich gar nicht, wohin mit meinem Glück. 
 
-## Äußerlich sah mein Weg ungefähr so aus: 
+Die Vorstellung, meinem Körper später einmal wieder 30 oder gar 40 Stunden pro Woche Arbeit in einem Büro abzuverlangen? Das wird vermutlich nichts mehr. Es sei denn, ich will mir schon mal ein schönes Plätzchen auf einem Friedhof suchen… Auf mehr als eine Wunderheilungen in einem Leben zu bauen ist unlogischer als jede spirituelles Tool, das ich mir angeeignet habe.
+
+# Äußerlich sah mein Weg ungefähr so aus: 
 Besuch vieler Seminare zur Persönlichkeitsbildung, wie z.B. Elite-Business-Master von Dirk Michael Lambert, 
 Aufstellungsarbeit, walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie)
 
