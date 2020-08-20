@@ -15,19 +15,20 @@ Hier findest Du mein Angebot.
 - Traumatherapeutin, HP psych.
 - 5.-Dimensions-Begleiterin
 
-Wie komme ich dazu, Menschen zu helfen, die sich ausgebrannt und erschöpft fühlen? Die das Gefühl haben, das eigene Leben wirke leer und sinnlos, als ob das Leben fremdgesteuert sei. Überforderung, unterschwellige Ängste, Gereitzheit? Übliche Erholungszeiten wie Urlaub und AU helfen nicht?
+Wie komme ich dazu, Menschen zu helfen, die sich ausgebrannt und erschöpft fühlen? Die das Gefühl haben, das eigene Leben wirke leer und sinnlos, als ob das Leben fremdgesteuert sei. Überforderung, unterschwellige Ängste, Gereitzheit. Übliche Erholungszeiten wie Urlaub und AU helfen nicht.
 
 # Nach außen sah es aus wie ein gutes Leben
-Superniedliche Tochter, liebevoller Partner, ruhig und zentral gelegene Stadtwohnung mit Garten. Nette Restaurants in der Nähe, gutes Essen zu Hause. Für Berlin kurzer direkter Arbeitsweg, eine an sich sinnstiftende Arbeit in Teilzeit sogar mit Karriereaussichten. Schöne Urlaube. Was will man mehr?
+Superniedliche Tochter, liebevoller Partner, ruhige Stadtwohnung mit Garten. Nette Restaurants in der Nähe, gutes Essen zu Hause. Für Berlin kurzer direkter Arbeitsweg, eine an sich sinnstiftende Arbeit in Teilzeit sogar mit Karriereaussichten. Schöne Urlaube. Was will man mehr?
 
-**Wäre da nicht diese sich langsam von hinten anschleichende Erschöpfung und Gereiztheit...** Und wären da nicht diese Gedanken, dass andere meinen Beruf sinnstiftender finden als ich... Nur ich habe keine Ahnung, was ich wirklich will...
+**Wäre da nicht diese sich langsam von hinten anschleichende Erschöpfung und Gereiztheit...** Und wären da nicht diese Gedanken, dass andere meinen Beruf sinnstiftender finden als ich... Nur ich habe keine Ahnung, was ich wirklich will (und würde ich eine Ahnung in mir zulassen, wäre es sicherlich nicht so eine sichere Einnahmequelle wie mein Beruf...
 
-## Ende 2018 - ich war Anfang 40 - rief mein Mann eines Nachts den Notarzt. 
-Die Meldung des Rettungsarztes an meinen Mann: “Ihre Frau hat einen Herzinfarkt! Wir nehmen sie jetzt mit!” Das letzte, woran ich mich noch erinnerte, war, um mich zu schauen und mich zu fragen, welche Frau er damit wohl meinte…” Dann wurde alles schwarz. 
+Ende 2018 - ich war Anfang 40 - rief mein Mann eines Nachts den Notarzt. 
+
+Die Meldung des Rettungsarztes an meinen Mann: “**Ihre Frau hat einen Herzinfarkt!** Wir nehmen sie jetzt mit!” Das letzte, woran ich mich noch erinnerte, war, um mich zu schauen und mich zu fragen, welche Frau er damit wohl meinte…” Dann wurde alles schwarz. 
 
 Drei Tage später, im Krankenhausbett bot sich mir eine ganz neue Aussicht: Dialyse wegen Nierenversagen. Herztransplantation nach fast vollständigem Herzverschluss. Drohender Verlust weiterer Organe aufgrund schwerer innerer Blutungen. Gar nicht Überleben wegen Leberversagen...
 
-## Ich entschied mich in diesem Bett: 
+# Ich entschied mich in diesem Bett: 
 **Jetzt reichts! Ich gehe auf meinen eigenen zwei Beinen aus diesem Krankenhaus und ich ändere mein Leben grundlegend. Ich gehe alles Denkbare an, um zu heilen. Ich drehe jeden Stein um. Auf Glaubenssätze, Konventionen und väterliche Ratschläge “Kind, Du musst doch von was leben.”, schei… ich ab jetzt. Ich lasse meine fünfjährige Tochter nicht ohne Mutter auf diesem Planeten! Und ich finde heraus, was ich wirklich will. Jetzt! Naja, zumindest zeitnah…**
 # Mein Weg aus der Verzweiflung
 Nach 16 Tagen hatte ich den ersten Punkt auf meiner neuen To-do-Liste erreicht. Ich ging auf meinen eigenen Beinen mit zwar angeschlagenen, aber funktionierenden Organen aus dem Krankenhaus. 
@@ -35,9 +36,9 @@ Nach 16 Tagen hatte ich den ersten Punkt auf meiner neuen To-do-Liste erreicht. 
 Für die Ärzte war ich ein nicht mehr zu verstehender Fall von Wunderheilung. Sie fanden trotz zum Teil gruseligsten Untersuchungsmethoden keine sinnvolle Erklärung für die zwei Herzinfarkte hintereinander. Medikamente ließen sich nicht einstellen, die Blutwerte spielten verrückt. Das MRT behauptete, ich hätte keinen Herzinfarkt gehabt, obwohl die Ärzte nur wenige Tage zuvor um mein Leben mit gleich zwei Herzinfarkten hintereinander gekämpft hatten. Sie unterstellten sich gegenseitig schlampige Arbeit. Irgendwie taten mir die Ärzte leid. Ich hatte eine Form von Vertrauen ins Leben gefunden, die mich vom Patienten zum Zaungast dieser Veranstaltung hatte werden lassen. 
 
 # Wie war ich da eigentlich gelandet?
-Mein Herzinfarkt hatte sich auf den mittlerweile dritten Burnout gesetzt. Die Burnouts waren schön mit großem Abstand gekommen, jeweils 10 Jahre, sodass ich den vorherigen immer schon ein wenig vergessen hatte. 
+Mein Herzinfarkt hatte sich auf den mittlerweile dritten Burnout gesetzt. Die Erschöpfungsphasen waren schön mit großem Abstand gekommen. Jeweils 10 Jahre, sodass ich den vorherigen immer schon ein wenig vergessen hatte. 
 
-Meine Ursachen? Die Klassiker: zu viel Arbeit, zu wenig Erholung, zu viele Baustellen auf einmal, zu viele seelische Altlasten, zu wenig Sinn für mich persönlich in dem, was mich viel Energie kostete. Häufige Infekte...
+*Meine Ursachen?* Die Klassiker: zu viel Arbeit, zu wenig Erholung, zu viele Baustellen auf einmal, zu viele seelische Altlasten, zu wenig Sinn für mich persönlich in dem, was mich viel Energie kostete. Häufige Infekte...
 
 # Burnout meets spirituality
 Nachdem ich wider jeder Prognose aus dem Krankenhaus auf meinen eigenen zwei Beinen lief, war mir schnurz, dass mein nüchterner Verstand sich vielleicht als Hobby aber sicher nicht beruflich auf Astrologie, Quantenheilung oder gar Channelings verlässt. Ich fragte jeden spirituellen Ratgeber um Rat, der mir als vertrauensvolle Quelle erschien und den ich bezahlen konnte. Ich stolperte über Pavlina Klemms Seminare und mit ihr über die Quantenheilung. 
