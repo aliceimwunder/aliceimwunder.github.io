@@ -6,44 +6,60 @@ permalink: /about/
 
 Du willst schnell und effizient aus **Burnout, Erschöpfung, Überforderung**, aus dem Gefühl, in einer ewigen, negativen Zeitschleife festzustecken, aussteigen? Du willst aus Deiner Mitte heraus mit **Leichtigkeit Erfolg magnetisch anziehen**? 
 
-Ich helfe Dir dabei. Ich arbeite gerne mit Menschen, die ganzheitliche Lösungen für sich suchen. Wissenschaftlich basiert und spirituell erweiterternd: 
+Ich helfe Dir dabei. Ich arbeite gerne mit Menschen, die ganzheitliche Lösungen für sich suchen. Wissenschaftlich basiert und spirituell erweiterternd. 
 
-## Wer bin ich, Alice Windolf?
-- **Burnout Coach**
-- **Traumatherapeutin, HP psych.**
-- **5.-Dimensions-Begleiterin**
+Hier findest Du mein Angebot. 
 
-Buche Dir eine Begleitung von 1-3 Terminen. Der erste Termin ist kostenfrei: 
+# Wer bin ich, Alice Windolf?
+- Burnout Coach
+- Traumatherapeutin, HP psych.
+- 5.-Dimensions-Begleiterin
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Termin buchen](https://alicewindolf.youcanbook.me)
-</span>
+Wie komme ich dazu, Menschen zu helfen, die sich ausgebrannt und erschöpft fühlen? Die das Gefühl haben, das eigene Leben wirke leer und sinnlos, als ob das Leben fremdgesteuert sei. Überforderung, unterschwellige Ängste, Gereitzheit? Übliche Erholungszeiten wie Urlaub und AU helfen nicht?
 
-oder schreibe mir eine Email: alicewindolf@web.de.
+# Nach außen sah es aus wie ein gutes Leben
+Superniedliche Tochter, liebevoller Partner, ruhig und zentral gelegene Stadtwohnung mit Garten. Nette Restaurants in der Nähe, gutes Essen zu Hause. Für Berlin kurzer direkter Arbeitsweg, eine an sich sinnstiftende Arbeit in Teilzeit sogar mit Karriereaussichten. Schöne Urlaube. Was will man mehr?
 
-Folgesessions zu Corona für kurze Zeit 80,-€.
+**Wäre da nicht diese sich langsam von hinten anschleichende Erschöpfung und Gereiztheit...** Und wären da nicht diese Gedanken, dass andere meinen Beruf sinnstiftender finden als ich... Nur ich habe keine Ahnung, was ich wirklich will...
 
+## Ende 2018 - ich war Anfang 40 - rief mein Mann eines Nachts den Notarzt. 
+Die Meldung des Rettungsarztes an meinen Mann: “Ihre Frau hat einen Herzinfarkt! Wir nehmen sie jetzt mit!” Das letzte, woran ich mich noch erinnerte, war, um mich zu schauen und mich zu fragen, welche Frau er damit wohl meinte…” Dann wurde alles schwarz. 
 
-## Mein Weg in die 5. Dimension
-Ich lebe heute im Osten von Berlin. Direkt am Wald fast ohne jeden Straßenverkehr mit riesigem Garten. 
-Gelebt habe ich in Berlin, Florenz, Straßburg, Paris, Bayern und Cornwall/GB. Ich liebe Berlin und ich liebe die Natur. Nun habe ich ein Holzhaus entwerfen lassen und jeden Bauschritt energetisch begleitet, sodass wir, mein Mann und unsere Tochter, (zwar mit einigem Zeitaufwand aber fast ohne jede Baupanne) unser Traumhaus in einem Traumgarten bewohnen können. Wie Ferien für immer. ;-)
+Drei Tage später, im Krankenhausbett bot sich mir eine ganz neue Aussicht: Dialyse wegen Nierenversagen. Herztransplantation nach fast vollständigem Herzverschluss. Drohender Verlust weiterer Organe aufgrund schwerer innerer Blutungen. Gar nicht Überleben wegen Leberversagen...
 
-Viel bin ich umgezogen, ausgiebig habe ich an unterschiedlichsten Ecken Berlins gewohnt. Nun habe ich das Gefühl, angekommen zu sein, meine Inspirationsquelle Wald vor meiner Nase und die Inspiration Großstadt nur 45min mit dem Zug entfernt. Klar ist Brandenburg nicht die Karibik. Darauf hatte mein Mann keine Lust (und wenn ich ehrlich bin, ich bin nicht tropentauglich). Manchmal liegt das Gute so nah.
+## Ich entschied mich in diesem Bett: 
+**Jetzt reichts! Ich gehe auf meinen eigenen zwei Beinen aus diesem Krankenhaus und ich ändere mein Leben grundlegend. Ich gehe alles Denkbare an, um zu heilen. Ich drehe jeden Stein um. Auf Glaubenssätze, Konventionen und väterliche Ratschläge “Kind, Du musst doch von was leben.”, schei… ich ab jetzt. Ich lasse meine fünfjährige Tochter nicht ohne Mutter auf diesem Planeten! Und ich finde heraus, was ich wirklich will. Jetzt! Naja, zumindest zeitnah…**
+# Mein Weg aus der Verzweiflung
+Nach 16 Tagen hatte ich den ersten Punkt auf meiner neuen To-do-Liste erreicht. Ich ging auf meinen eigenen Beinen mit zwar angeschlagenen, aber funktionierenden Organen aus dem Krankenhaus. 
 
-Leidenschaftlich gerne möchte ich Dir zeigen, wie Du in Deine Lebenskraft kommst. Wie Phönix aus der Asche dürfen sich Erschöpfung und Hamsterrad mit Leichtigkeit in Dein Traumleben verwandeln. Auch Du kannst Dein Leben so leben, wie es geplant war, als Tanz und Freude an der Gestaltung einer physischen Welt, in der Wir unsere Schöpfungen jeden Tag bewundern, anfassen und genießen dürfen. Wir alle sind Schöpfer und damit haben wir die Macht, unser Leben so zu gestalten, dass unsere Seele gerne bei uns einzieht - mit Liebe und Dankbarkeit. 
+Für die Ärzte war ich ein nicht mehr zu verstehender Fall von Wunderheilung. Sie fanden trotz zum Teil gruseligsten Untersuchungsmethoden keine sinnvolle Erklärung für die zwei Herzinfarkte hintereinander. Medikamente ließen sich nicht einstellen, die Blutwerte spielten verrückt. Das MRT behauptete, ich hätte keinen Herzinfarkt gehabt, obwohl die Ärzte nur wenige Tage zuvor um mein Leben mit gleich zwei Herzinfarkten hintereinander gekämpft hatten. Sie unterstellten sich gegenseitig schlampige Arbeit. Irgendwie taten mir die Ärzte leid. Ich hatte eine Form von Vertrauen ins Leben gefunden, die mich vom Patienten zum Zaungast dieser Veranstaltung hatte werden lassen. 
 
-Lange habe ich gesucht, wie ich aus Burnout, Erschöpfung, Depression und chronische Krankheit aussteige. Irgendwann war sie da, die Schwingung der 5. Dimension, in die ich jeden Tag ein wenig mehr hinein lebe und -transformiere: Glückseligkeit und Freude aus dem Inneren ohne Grund, bedingungslose Liebe zu Allem, was ist, Manifestation des Erträumten. Das hat sehr, sehr wenig mit dem zu tun, was ich studiert hatte und womit ich meine Brötchen verdiente und was mir den direkten Weg zu Burnout und Herzinfarkt ebnete: Rechtswissenschaft. 
+# Wie war ich da eigentlich gelandet?
+Mein Herzinfarkt hatte sich auf den mittlerweile dritten Burnout gesetzt. Die Burnouts waren schön mit großem Abstand gekommen, jeweils 10 Jahre, sodass ich den vorherigen immer schon ein wenig vergessen hatte. 
 
-Mein Wissen über den Weg in die 5. Dimension gebe ich gerne weiter. Natürlich habe auch ich noch viel Weg vor mir. Ich staune jeden Tag wieder darüber, wie viel noch zu erleben gilt. Wenn ich doch wieder ein Stück zurückfalle? Egal, dann stehe ich eben wieder auf, klopfe mir den Staub aus der Kleidung und danke der Erfahrung. Darin habe ich viel Erfahrung (oh man, was es doch fürn Mist auf diesem Planeten gibt… :-)))
+Meine Ursachen? Die Klassiker: zu viel Arbeit, zu wenig Erholung, zu viele Baustellen auf einmal, zu viele seelische Altlasten, zu wenig Sinn für mich persönlich in dem, was mich viel Energie kostete. Häufige Infekte...
 
-Häufig tragen wir unpassende Strukturen aus der Familie in unseren “Broterwerb” und dann trotz all der Mühe und Anstrengung, steht am Ende des Tages nicht der wohl verdiente, gemütlicher Feierabend, sondern Erschöpfung und Überforderung, v.a. wenn man noch Kinder zu versorgen hat. 
+# Burnout meets spirituality
+Nachdem ich wider jeder Prognose aus dem Krankenhaus auf meinen eigenen zwei Beinen lief, war mir schnurz, dass mein nüchterner Verstand sich vielleicht als Hobby aber sicher nicht beruflich auf Astrologie, Quantenheilung oder gar Channelings verlässt. Ich fragte jeden spirituellen Ratgeber um Rat, der mir als vertrauensvolle Quelle erschien und den ich bezahlen konnte. Ich stolperte über Pavlina Klemms Seminare und mit ihr über die Quantenheilung. 
 
-Lass uns daran zusammenarbeiten, dass Du Deinen gemütlichen Feierabend mit Deinen Liebsten nach Deinem großartigen Tag voller Lebenskraft genießen kannst, dass Du auf Deinen Tag mit tief empfundener Dankbarkeit blicken kannst. 
+**Das klappte**!!! Wow, am liebsten wäre ich durch die Seminarräume gehüpft, hätte ein Indianergeheul losgelassen und jeden im Raum geknutscht. Menschen fühlten sich plötzlich von mir unterstützt und wohler als vor der Begegnung mit mir. Unmittelbar!
 
-## Wer noch ein paar Fakten für sich benötigt: 
-Zum Burnout Coach und Traumatherapeutin bin ich geworden, nachem ich drei lange Burnout Phasen, häufige zum Teil tiefsitzende Infektionen und einen schweren Herzinfarkt endgültig hinter mir gelassen habe (bei letzterem kamen die behandelnden Ärzte zu dem Schluss, dass es dafür keine körperliche Ursache gebe und mir keine großen Überlebenschancen eingeräumt hatten). 
+# Neuer Berufsstart
+Auf meinen Wegen mit den unterschiedlichen Arten und Ursachen von Erschöpfung hatte ich mehr und mehr Wege gefunden, 
+- wie man sich bei körperlicher Erschöpfung wieder auf die Beine stellt. 
+- seelische Altlasten und erschöpfende Grundmuster loslässt.
+- das eigene Leben tiefer genießt. 
+- gesellschaftliche Konventionen überwindet, ohne innerlich in einen Krieg gegen solche Strukturen zu ziehen. (bringt nix, ist nur erschöpfend!)
+- sich selbst unter widrigen Bedingungen auf das zu konzentrieren, was die eigene Seele nährt, laserscharfen Fokus auf die eigenen Träume und Ideale legt... 
 
-Nun gehe ich ein vollkommen neuen Weg: Ich bin aus meiner langjährigen Karriere als Juristin ausgestiegen. Ich bin als häufig umziehendes Stadtkind zur geerdeten Naturliebhaberin geworden, die genau weiß, wie sie ihre Kraft jeden Tag von Neuem pflegt. Ich begleite Menschen dabei, aus alten, kraftkostenden Mustern und Glaubenssätzen auszusteigen, ihre Schwingung zu erhöhen und in ihre eigene Schaffenskraft zurückzukommen. 
+# Mein Leben heute
+Heute arbeite ich von zu Hause - mit sehr viel Erholung um mich herum. Ich lebe direkt am Wald fast ohne jeden Straßenverkehr mit riesigem Garten. Dafür mit Bahnanschluss nach Berlin. Gelebt hatte ich schon in Berlin, Florenz, Straßburg, Paris, an der Nordsee, Bayern und Cornwall/GB. Beruflich war ich haupt- und nebenberuflich schon alles Mögliche. Jetzt bin ich angekommen. 
+
+Ich liebe die Natur, Berlin ist meine Heimat. Jetzt habe ich beides. Wie Ferien für immer!
+
+## Und dazu obendrein 
+
+Menschen mit etwas helfen, was sie wirklich weiterbringt. Manchmal weiß ich gar nicht, wohin mit meinem Glück. Die Vorstellung, meinem Körper später einmal wieder 30 oder gar 40 Stunden pro Woche Arbeit in einem Büro abzuverlangen? Das wird vermutlich nichts mehr. Es sei denn, ich will mir schon mal ein schönes Plätzchen auf einem Friedhof suchen… Auf mehr als eine Wunderheilungen in einem Leben zu bauen ist unlogischer als jede spirituelles Tool, das ich mir angeeignet habe.
 
 ## Äußerlich sah mein Weg ungefähr so aus: 
 Besuch vieler Seminare zur Persönlichkeitsbildung, wie z.B. Elite-Business-Master von Dirk Michael Lambert, 
