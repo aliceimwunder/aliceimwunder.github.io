@@ -44,6 +44,9 @@ Wenn man sich im Überlebensmodus wieder findet, ist der Neo-Kortex - unser Gro�
 
 Was sind Deine Erfahrungen mit Perfektionismus? Bringt es Dich in Erschöpfung und Überforderung mit den täglichen Anforderungen? Brauchst Du ihn manchmal, manchmal wäre es schön, wenn Du ihn abstellen könntest? Teile Deine Erfahrung dazu gerne mit und schreibe unten einen Kommentar. 
 
-Wenn Du  wissen willst, was hilft, dann lies den nächsten [Post](2020/08/24/Perfektionismus-und-Burnout-Teil-2.html). Dort verrate ich Dir, wie Du aus dem Flucht-und-Kampf-Modus beruhigst. Anstelle dessen Deinen Neo-Kortex anstellst. Damit Dein Perfektionismus zur Superpower wird, die Du bewusst ansteuern kannst, wann immer Du sie brauchst und abstellst, wenn Du gerade etwas anderes brauchst. 
+# Perfekt gegen die Perfektionismus: die praktische Arbeit
+Wenn Du  wissen willst, was hilft, dann lies den nächsten [Post](/2020/08/24/Perfektionismus-und-Burnout-Teil-2.html). 
+
+Dort verrate ich Dir, wie Du aus dem Flucht-und-Kampf-Modus beruhigst. Anstelle dessen Deinen Neo-Kortex anstellst. Damit Dein Perfektionismus zur Superpower wird, die Du bewusst ansteuern kannst, wann immer Du sie brauchst und abstellst, wenn Du gerade etwas anderes brauchst. 
 
 PS: Der Mann auf dem Bild oben hat übrigens (wahrscheinlich ganz unbewusst) eine volle Stresshaltung eingenommen. Genauer gesagt, mit dieser Haltung - beide Hände vesschränkt unter die Achseln klemmen - kann man aus der Sicht traditioneller chinesischer Medizin den Dreifacherwärmer (für unseren Stresshaushalt zuständig) und den Milzmeridian (zuständig für die Verarbeitung von Input - egal ob Essen oder seelischen Eindrücken) ausgleichen. Dadurch fährt die Stressreaktion im Körper etwas runter und man ist denkfähiger. Sieht man häufiger in Meetings, dass Leute solche Haltungen einnehmen.  
