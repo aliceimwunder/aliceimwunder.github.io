@@ -1,4 +1,5 @@
-**Perfekt - Aber ausgebrannt?**
+---
+title: "Perfekt - Aber ausgebrannt? Was wirklich hilft!"
 
 Du bist perfektionistisch und kannst nicht hin und wieder alle Fünfe gerade lassen? Was das mit Burnout zu tun haben kann und warum wir nicht einfach beschließen können, nicht mehr so perfektionistisch unterwegs zu sein, findest Du in diesem [Post.](/2020/08/18/Perfektionismus-und-Burnout.html) 
 
