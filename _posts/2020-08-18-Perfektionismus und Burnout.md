@@ -1,5 +1,5 @@
 ---
-Title: “Perfekt - Aber ausgebrannt - Warum wir Perfektionismus nicht einfach loslassen können." 
+title: “Perfekt - aber ausgebrannt - Warum wir Perfektionismus nicht einfach loslassen können." 
 ---
 
 ![Mann in Stresshaltung](/assets/2020-08-18-Mann in Stresshaltung.jpg)
