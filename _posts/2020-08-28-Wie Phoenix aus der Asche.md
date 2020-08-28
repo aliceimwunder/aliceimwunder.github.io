@@ -4,6 +4,8 @@ title: “Aus der Asche des Burnouts - Mein Traumleben erschaffen”
 
 ![Erste Pflanzen auf Vulkanasche](/assets/2020-08-28-Erste Pflanzen auf Vulkanasche.jpg)
 
+<span>Photo by <a href="https://unsplash.com/@eduandebruijne?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Eduan de Bruijne</a> on <a href="https://unsplash.com/s/photos/vulcano?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
+
 
 Im Programm “Aus der Asche des Burnouts - Mein Traumleben erschaffen” geht es darum, Dich **aus der negativen Zeitschleife** von Erschöpfung, Überforderung und Sinn entleertem Leben herauszuholen. Dafür herauszufinden, **wofür Du Deine neue gewonnene Energie einsetzen** willst. 
 
