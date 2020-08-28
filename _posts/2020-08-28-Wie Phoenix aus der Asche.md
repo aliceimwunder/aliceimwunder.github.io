@@ -9,7 +9,7 @@ title: “Aus der Asche des Burnouts - Mein Traumleben erschaffen”
 
 Im Programm “Aus der Asche des Burnouts - Mein Traumleben erschaffen” geht es darum, Dich **aus der negativen Zeitschleife** von Erschöpfung, Überforderung und Sinn entleertem Leben herauszuholen. Dafür herauszufinden, **wofür Du Deine neue gewonnene Energie einsetzen** willst. 
 
-Nicht einfach nur so schnell wie möglich Energie schöpfen und ins alte Lebenssystem stecken. Nein!
+Nicht einfach nur so schnell wie möglich Energie herholen und ins alte Lebenssystem stecken.
 
 Die Krise zur Wandlung nutzen. 
 
