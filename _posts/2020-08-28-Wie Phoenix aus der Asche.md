@@ -108,7 +108,7 @@ Cool, ich buche mir hier mein kostenloses Vorgespräch!
 
 
 # 12 Wochen - 12 Module
-** 1. Woche: Get ready**
+**1. Woche: Get ready**
 
 - Coachingcall zum Fahrplan auf Teilnehmerbedürfnisse einstellen
 - Küche ausstatten, erste Schritte
@@ -185,7 +185,6 @@ Cool, ich buche mir hier mein kostenloses Vorgespräch!
 
 - Coachingcall: Heilmeditation und gemeinsamer Abschluss
 - Manifestieren als tägliche day-to-day Erfahrung
-
 
 
 # Beta-Status - der Preis
