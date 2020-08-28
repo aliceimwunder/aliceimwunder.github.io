@@ -109,58 +109,80 @@ Cool, ich buche mir hier mein kostenloses Vorgespräch!
 
 # 12 Wochen - 12 Module
 ** 1. Woche: Get ready**
+
 - Coachingcall zum Fahrplan auf Teilnehmerbedürfnisse einstellen
 - Küche ausstatten, erste Schritte
 - Erste Stressreduktionstechniken
 - Meditation für Faule I
+
 **2. Woche: Energiekörper stabilisieren**
+
 - Coachingcall: Alte Gefühle loslassen
 - Die Meditation für Faule II
 - Energiekörper mit einer einfachen Routine stabilisieren
 - Den Körper bei Erschöpfung entgiften, wie geht das?
+
 **3. Woche: Stimmung stabilisieren**
+
 - Stimmung mit einer einfachen Routine stabilisieren
 - Minimalismus: Was darf/kann entrümpelt werden?  
 - Mehr Wissen zu entgiftendem Essen, Rezepte
 - Meditation für Faule III
+
 **4. Woche: Die Macht Dankbarkeit**
 - Coachingcall: Erschöpfung aus dem Energiekörper lösen
 - Die Macht der Dankbarkeit auf unsere Gesundheit nutzen
 - Heart-Brain-Coherence
 - Körper weiter entgiften
+
 **5. Woche: Die eigenen Werte ermitteln**
+
 - Reiz-Input reduzieren
 - Meine Werte ermitteln
 - Was passt angesichts meiner eigenen Werte nicht in mein Leben?
 - Mehr Rezepte fürs körperliche Wohlbefinden
+
 **6. Woche: Meinen Lebenssinn erforschen, Teil 1**
+
 - Coachingcall: Erschöpfung aus dem Energiekörper lösen
 - Welche Lebensbereiche sind mir wichtig?
 - Grenzen setzen, sich und anderen gegenüber
 - Mehr Wissen zur körperlichen Entgiftung
+
 **7. Woche: Meinen Lebenssinn erforschen, Teil 2**
+
 - Coachingcall: Erschöpfung aus dem Energiekörper lösen
 - Glaubenssätze zu verschiedenen Lebensbereiche erforschen
 - Grenzen setzen - umsetzen
+
 **8. Woche: Meinen Lebenssinn erforschen, Teil 3**
+
 - Erdung
 - Visionen zu den verschiedenen Lebensbereichen entwickeln
 - Neue Rezepte
+
 **9. Woche: Meinen Lebenssinn erforschen, Teil 4**
+
 - Coaching Call: Erschöpfte Innenanteile integrieren
 - Inneren Halt erarbeiten
 - Strategien zu den verschiedenen Lebensbereichen entwerfen
 - Entgiftung fortsetzen - für körperlich stark eingeschränkte Klienten: Möglichkeit, die Entgiftung für die nächsten 4 Wochen verstärken
+
 **10. Woche: Konkrete Ziele erschaffen**
+
 - Coachingcall: Erschöpfte Innenanteile integrieren
 - Die Macht der Vergebung: Ho’oponopono
 - Wie setze ich um ohne mich zu überfordern?
 - Was ist das Wichtigste für mich persönlich?
+
 **11. Manifestieren**
+
 - Erschöpfte Seelenanteile selbständig integrieren
 - Das 1x1 des Manifestierens
 - Üben, üben, üben
+
 **12. Woche: Abschluss**
+
 - Coachingcall: Heilmeditation und gemeinsamer Abschluss
 - Manifestieren als tägliche day-to-day Erfahrung
 
