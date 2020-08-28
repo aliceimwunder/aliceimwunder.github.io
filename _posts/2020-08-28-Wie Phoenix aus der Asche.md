@@ -1,5 +1,5 @@
 ---
-title: “Aus der Asche des Burnouts - Mein Traumleben erschaffen”
+title: Aus der Asche des Burnouts - Mein Traumleben erschaffen
 ---
 
 ![Erste Pflanzen auf Vulkanasche](/assets/2020-08-28-Erste Pflanzen auf Vulkanasche.jpg)
