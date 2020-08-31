@@ -46,4 +46,4 @@ Nicht über Nacht. Nicht ohne eigenes Tun. Dafür nachhaltig ohne Nebenwirkungen
 
 Die Liste in diesem Beitrag erhebt nicht den Anspruch, in irgendeiner Weise abschließend oder absolut wahr zu sein. Soweit Du Dich gerade in einer extremen emotionalen Lage befindest und von den vielen Inspirationen aus dem Internet nichts umsetzbar erscheint, dann nimm Dich bitte ernst. Geh zum entsprechenden Psychiater oder Therapeuten. 
 
-
+Du hast schon andere Inspirationen erfolgreich umgesetzt?
