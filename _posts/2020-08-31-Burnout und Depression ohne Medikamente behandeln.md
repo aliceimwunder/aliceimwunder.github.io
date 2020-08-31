@@ -46,4 +46,6 @@ Nicht über Nacht. Nicht ohne eigenes Tun. Dafür nachhaltig ohne Nebenwirkungen
 
 Die Liste in diesem Beitrag erhebt nicht den Anspruch, in irgendeiner Weise abschließend oder absolut wahr zu sein. Soweit Du Dich gerade in einer extremen emotionalen Lage befindest und von den vielen Inspirationen aus dem Internet nichts umsetzbar erscheint, dann nimm Dich bitte ernst. Geh zum entsprechenden Psychiater oder Therapeuten. 
 
-Du hast schon andere Inspirationen erfolgreich umgesetzt?
+Du willst lieber mit Begleitung Deinen Weg gehen und hast Interesse, Dich von mir unterstützen zu lassen? Dann findest Du hier mein [Angebot](/2020/08/28/Wie-Phoenix-aus-der-Asche.html). 
+
+Du hast schon andere Inspirationen erfolgreich umgesetzt? Oder findest hier gute Ansätze? Dann hinterlasse gerne unten einen Kommentar. 
