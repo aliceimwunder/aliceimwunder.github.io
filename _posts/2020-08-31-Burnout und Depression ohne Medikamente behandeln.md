@@ -4,6 +4,8 @@ title: Lassen sich Burnout und Depression ohne Medikamente behandeln?
 
 ![Frau am Fenster](/assets/2020-08-31-Frau am Fenster.jpg)
 
+<span>Photo by <a href="https://unsplash.com/@anthonytran?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Anthony Tran</a> on <a href="https://unsplash.com/s/photos/sadness?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
+
 # Ja klar geht das. 
 Vorab gesagt, Burnout gilt nicht als Krankheit. Warum? Dazu in einem späteren Post. Depression ist eine Krankheit. Sie tritt in verschiedenen Schweregraden auf. Bei schweren Verläufen kann die Alltagsbewältigung leiden. Dann bedarf es stärkerer Intervention. Vielleicht sogar den Aufenthalt in einer Akutklinik. 
 
