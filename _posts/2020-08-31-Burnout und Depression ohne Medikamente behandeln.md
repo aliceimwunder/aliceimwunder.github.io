@@ -1,5 +1,6 @@
 ---
-Lassen sich Burnout und Depression ohne Medikamente behandeln?
+title: Lassen sich Burnout und Depression ohne Medikamente behandeln?
+---
 
 ![Frau am Fenster](/assets/2020-08-31-Frau am Fenster.jpg)
 
