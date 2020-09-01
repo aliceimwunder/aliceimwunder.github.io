@@ -3,6 +3,8 @@ title: Bunrout? Ausgebrannt? Und kein Verständnis aus Deinem Umfeld?
 ---
 ![Frau in Schwarz](/assets/2020-09-01-Frau in Schwarz.jpg)
 
+<span>Photo by <a href="https://unsplash.com/@thenewmalcolm?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Obi Onyeador</a> on <a href="https://unsplash.com/s/photos/serious?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
+
 # Ausgebrannt? Kopfschmerzen? Nackenschmerzen? Übelkeit? Infektanfällig?
 Du fühlst Dich ausgebrannt? Deine Batterien sind leer? Du dachtest, Dein Beruf macht Dir Spaß, aber jetzt gehst Du schon mit Übelkeit ins Büro? Es ist auch schon eine Weile her, dass Du gut durchgeschlafen hast?
 
@@ -23,7 +25,7 @@ Wenn die Antwort für einen Arzt nicht so offensichtlich ist, wie z. B.: “Sie 
 Dann ist es besonders wichtig, sich selbst nicht zu verlassen. **Sich selbst Unterstützung geben**, dass man sich die Symptome nicht ausdenkt. Zufällig nicht an einer Wahnvorstellung leidet. Und das mit der Autoimmunerkrankung kann stimmen oder auch nicht. Eine zweite Fachmeinung von jemand Unabhängigen einholen ist dann ratsam. 
 
 # Meine Empfehlung 
-Nicht einfach aufzugeben. **Sei selbst Dein bester Freund.** Sich genau anzuschauen, welcher Arzt vor einem sitzen soll. Ärzte, die Stressbehandlung und/oder einen Schwerpunkt für Naturheilverfahren haben, sind häufig sozial kompetenter und unterstützender. Sie sind meist mit einem viel längeren Atem ausgestattet, wenn es um geduldiges Suchen und die richtigen Therapieform geht. 
+Nicht einfach aufzugeben. **Sei selbst Dein bester Freund.** Sich genau anzuschauen, welcher Arzt vor einem sitzen soll. Ärzte, einen Schwerpunkt in der  Stressbehandlung und/oder für Naturheilverfahren haben, sind häufig bei anhaltender Erschöpfung sozial kompetenter und unterstützender. Es ist wahrscheinlicher, dass sie mit einem längeren Atem ausgestattet sind, wenn es um geduldiges Suchen und die richtigen Therapieform geht. 
 
 Pampt der Arzt Dich an? Dann liegt es daran, **dass er einen schlechten Tag hat und nicht an Dir**. Die Krönung, die ich einmal erlebt habe, war: Also so lange könne man gar nicht erschöpft sein. Also ich bräuchte da wohl eher etwas Leichteres. Und dann bekam ich einen Handzettel mit Werbung für eine evangelikale Heilung-Durch-Handauflegen-Gruppe in die Hand gedrückt. Trotz totaler Erschöpfung war ich so wütend, dass ich es geschafft hatte, nicht nur nach Hause zu kommen, sondern sogar mein Klo anschließend zu schrubben. Das war auch dringend nötig. Ich war mangels Energie seit Wochen nicht mehr dazu gekommen. Hatte also auch was Positives, die Begegnung mit diesem Herren. Und ja, ich glaube, er hatte eine ganz normale Approbation. Er war ein niedergelassener Hausarzt. Das ist sicherlich nur ein Extremfall. 
 
@@ -36,14 +38,4 @@ Normalerweise bin ich kein Fan von Facebook. Allerdings um sich etwas Zuspruch z
 Welche Erfahrungen hattest Du bisher mit Ärzten, Familie und Kollegen, wenn es um anhaltende Burnout-Symptome ging? Schreibe gerne einen Kommentar. 
 
 **Ich wünsche Dir allen Erfolg dieser Welt.** 
-
-
-
-
-
-
-
-
-
-
 
