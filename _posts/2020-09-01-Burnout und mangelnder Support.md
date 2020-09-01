@@ -6,7 +6,8 @@ title: Bunrout? Ausgebrannt? Und kein Verständnis aus Deinem Umfeld?
 # Ausgebrannt? Kopfschmerzen? Nackenschmerzen? Übelkeit? Infektanfällig?
 Du fühlst Dich ausgebrannt? Deine Batterien sind leer? Du dachtest, Dein Beruf macht Dir Spaß, aber jetzt gehst Du schon mit Übelkeit ins Büro? Es ist auch schon eine Weile her, dass Du gut durchgeschlafen hast?
 
-**Und dann kommt Dein Umfeld**
+**Und dann kommt Dein Umfeld.**
+
 Dein Chef sieht keine Möglichkeit, Arbeitsprozesse mit weniger Druck zu gestalten? Die Konkurrenz, die gesetzlichen Vorgaben - whatever -  gäben das Tempo vor. Deine Eltern stellen fest, dass das heutzutage nunmal so ist. Es ist überall Stress. Da müsse man durch. Dein Partner oder Partnerin hat auch nicht gerade großes Verständnis. Macht sich mehr Sorgen um die Miete, die vielleicht nicht mehr reinkommt, wenn Dein Einkommen wegbricht, als um Deine Gesundheit. Oder noch fataler: Na, dann mach doch mal einen schönen Wellness-Urlaub, dann bist Du wieder fit. Ja. aber das hast Du schon ausprobiert, viel Geld ausgegeben und nach dem Urlaub am Montagmorgen war es eigentlich noch schlimmer als vorher … 
 
 Vielleicht ist da auch die **eigene innere Stimme**? Die ist meist härter als alle anderen zusammen. Das muss man heute einfach bringen! Sonst bist Du raus! Jetzt hab Dich nicht so! Das ist jetzt wirklich nicht so schlimm! Nur leider wird abends das Glas Rotwein größer und größer, um runterzukommen? Am nächsten Morgen der Kaffeepot größer und größer? Es ist so bleischwer, im Büro täglich anzutreten? 
@@ -22,17 +23,19 @@ Wenn die Antwort für einen Arzt nicht so offensichtlich ist, wie z. B.: “Sie 
 Dann ist es besonders wichtig, sich selbst nicht zu verlassen. **Sich selbst Unterstützung geben**, dass man sich die Symptome nicht ausdenkt. Zufällig nicht an einer Wahnvorstellung leidet. Und das mit der Autoimmunerkrankung kann stimmen oder auch nicht. Eine zweite Fachmeinung von jemand Unabhängigen einholen ist dann ratsam. 
 
 # Meine Empfehlung 
-Nicht einfach aufzugeben. Sich genau anzuschauen, welcher Arzt vor einem sitzen soll. Ärzte, die Stressbehandlung und/oder einen Schwerpunkt für Naturheilverfahren haben, sind häufig sozial kompetenter und unterstützender. Sie sind meist mit einem viel längeren Atem ausgestattet, wenn es um geduldiges Suchen und die richtigen Therapieform geht. 
+Nicht einfach aufzugeben. **Sei selbst Dein bester Freund.** Sich genau anzuschauen, welcher Arzt vor einem sitzen soll. Ärzte, die Stressbehandlung und/oder einen Schwerpunkt für Naturheilverfahren haben, sind häufig sozial kompetenter und unterstützender. Sie sind meist mit einem viel längeren Atem ausgestattet, wenn es um geduldiges Suchen und die richtigen Therapieform geht. 
 
-Pampt der Arzt Dich an? Dann liegt es daran, dass er einen schlechten Tag hat und nicht an Dir. Die Krönung, die ich einmal erlebt habe, war: Also so lange könne man gar nicht erschöpft sein. Also ich bräuchte da wohl eher etwas Leichteres. Und dann bekam ich einen Handzettel mit Werbung für eine evangelikale Heilung-Durch-Handauflegen-Gruppe in die Hand gedrückt. Trotz totaler Erschöpfung war ich so wütend, dass ich es geschafft hatte, nicht nur nach Hause zu kommen, sondern sogar mein Klo anschließend zu schrubben. Das war auch dringend nötig. Ich war mangels Energie seit Wochen nicht mehr dazu gekommen. Hatte also auch was Positives, die Begegnung mit diesem Herren. Und ja, ich glaube, er hatte eine ganz normale Approbation. Er war ein niedergelassener Hausarzt. Das ist sicherlich nur ein Extremfall. 
+Pampt der Arzt Dich an? Dann liegt es daran, **dass er einen schlechten Tag hat und nicht an Dir**. Die Krönung, die ich einmal erlebt habe, war: Also so lange könne man gar nicht erschöpft sein. Also ich bräuchte da wohl eher etwas Leichteres. Und dann bekam ich einen Handzettel mit Werbung für eine evangelikale Heilung-Durch-Handauflegen-Gruppe in die Hand gedrückt. Trotz totaler Erschöpfung war ich so wütend, dass ich es geschafft hatte, nicht nur nach Hause zu kommen, sondern sogar mein Klo anschließend zu schrubben. Das war auch dringend nötig. Ich war mangels Energie seit Wochen nicht mehr dazu gekommen. Hatte also auch was Positives, die Begegnung mit diesem Herren. Und ja, ich glaube, er hatte eine ganz normale Approbation. Er war ein niedergelassener Hausarzt. Das ist sicherlich nur ein Extremfall. 
 
-Anyways - nicht ins Boxhorn jagen lassen, nur weil das Umfeld einen nicht den Support gibt, den man gerade bräuchte. Viele gehen eher zu spät als zu früh bei Burnout zum Arzt. Ich hoffe, ich konnte Dir Mut machen, Dein Schicksal selbst in die Hand zu nehmen. 
+Anyways - nicht ins Boxhorn jagen lassen, nur weil das Umfeld einen nicht den Support gibt, den man gerade bräuchte. Viele gehen eher zu spät als zu früh bei Burnout zum Arzt. 
 
-Normalerweise bin ich kein Fan von Facebook. Allerdings um sich etwas Zuspruch zu holen, kann es sehr unterstützend wirken, wenn man dort in einer Gruppe für Burnout Mitglied wird. Dort holen sich viele immer wieder den Zuspruch anderer Mitglieder. 
+Ich hoffe, ich konnte Dir Mut machen, Dein Schicksal selbst in die Hand zu nehmen. 
+
+Normalerweise bin ich kein Fan von Facebook. Allerdings um sich etwas Zuspruch zu holen, kann es sehr unterstützend wirken, wenn man dort in einer Gruppe für Burnout Mitglied wird. Dort holen sich viele immer wieder den Zuspruch anderer Mitglieder. Natürlich kann das auch runterziehen, all die vielen "Schicksale" vorgeführt zu bekommen. Wie gesagt: Werde zu Deinem eigenen Experten. Die Reise zu dem, was einem selbst gut tut, kann sehr spannend sein! 
 
 Welche Erfahrungen hattest Du bisher mit Ärzten, Familie und Kollegen, wenn es um anhaltende Burnout-Symptome ging? Schreibe gerne einen Kommentar. 
 
-Ich wünsche Dir allen Erfolg dieser Welt. 
+**Ich wünsche Dir allen Erfolg dieser Welt.** 
 
 
 
