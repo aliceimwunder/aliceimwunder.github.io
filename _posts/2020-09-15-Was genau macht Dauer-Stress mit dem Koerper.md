@@ -19,7 +19,9 @@ Das Hirn flutet zusammen mit Den Nebennieren den Körper mit Adrenalin- und Cort
 
 Der Körper geht in **Kampf-oder-Flucht-Modus** über. Jetzt brauchte unser Vorfahre jedes Fünkchen Leistungsfähigkeit für die Gefahr vor der Nase: dem Raubtier. 
 
-Mehr Säure geht in den Magen. Der Körper zieht die Durchblutung beim gesamten Verdauungstrakt ab. Dadurch wird die Verdauung sofort lahmgelegt. Das letzte Mahl ist einfach nicht wichtig. Müdigkeit wird unterdrückt.
+Der Körper zieht die Durchblutung beim gesamten Verdauungstrakt ab. Der Magen setzt einen Schwall Säure frei. Dadurch wird die Verdauung sofort lahmgelegt. Das letzte Mahl ist einfach nicht wichtig. 
+
+Müdigkeit wird unterdrückt.
 
 Außerdem setzt der Körper die Säuren in der Haut frei. Mit der Säure wird das Blut eingedickt, damit unser Vorfahre zum einen nicht so gut schmeckt und zum anderen nicht sofort ausblutet, falls das Raubtier einen Habs von ihm erwischt. Entstehende Wunden waren frisch und blutend. Also braucht unser Vorfahr während des Angriffs kein Immunsystem. Die Funktion des Immunsystems spart sich der Körper daher während des Kampf-oder-Flucht-Modus. 
 
