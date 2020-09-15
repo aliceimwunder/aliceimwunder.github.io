@@ -1,6 +1,10 @@
 ---
 title: Burnout - Was genau macht Dauer-Stress mit dem Körper?
 ---
+![Mann mit Postits](/assets/2020-09-15-Mann mit Postits.jpg)
+
+<span>Photo by <a href="https://unsplash.com/@villxsmil?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Luis Villasmil</a> on <a href="https://unsplash.com/s/photos/stress?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
+
 
 Kennst Du dieses Phänomen? Du findest die Autoschlüssel nicht, die Du gerade noch in der Hand hattest? Du bekommst den Einleitungssatz für die Präsentation nicht mehr formuliert, obwohl Du in fünf Minuten loslegen willst? Im Gespräch mit der Projektleiterin sind einzelne Worte oder Namen einfach wie weggeblasen aus dem Gedächtnis? Der Hinweis der Partnerin, unterwegs an Klopapier zu denken, bringt das Fass zum Überlaufen. Tatsächlich Klopapier kaufen hat man da schon lange vergessen. Vieles, zum Teil **Rudimentäres, will nicht mehr nebenbei funktionieren**.  
 
@@ -65,6 +69,8 @@ Nochmal: Dein Körper meint es gut! **Dein Körper ist absolut loyal!** Er macht
 **Adrenalin, Cortisol und co. haben bei dauerhaftem Einsatz außerdem die Wirkung von Drogen.** D.h. Du wirst auf Deine eigene Stressreaktion süchtig. Irgendwie will man es endlich ein bisschen ruhiger angehen, aber es geht einfach nicht. Die Stressreaktion Deines Körpers führt direkt in die nächste Stressreaktion, sodass viele Menschen 24h am Tag in einer Flucht-oder-Kampf-Situation leben. Ein Teufelskreis entsteht. 
 
 Aus ganzheitlicher Sicht: nicht nur Dein Körper wird in der Stressreaktion gebadet, auch Dein Energiekörper wird immer nervöser und mit Säuren überlastet. Deswegen kann es durchaus eine Weile dauern, bis man wieder entsäuert ist, weil man dort eine enorme Menge an Stress und daraus resultierende Säure speichern kann, bevor der Körper in die Knie geht.
+
+![pink flowers](/assets/2020-15-09-pinkflowers.jpg)
 
 # Was kannst Du tun?
 Im Grunde alles, was Deinen Körper Entspannung bringt. Du kannst zusammen mit Deinem Körper lernen, wie sinnvolle Reaktionen auf Herausforderungen aussehen. In der Traumatherapie gibt es dazu ein sehr schönes Bild. Im “window of tolerance” bleiben. Der Körper bleibt flexibel und leistungsfähig, ohne in Kampf oder Flucht überzugehen. Nach der vollbrachten Leistung fährt er wieder runter und Du kannst Dich wieder in einem vernünftigen Zeitfenster erholen. Ich weiß, es fühlt sich nicht so an, aber ohne Stressreaktion bist Du tatsächlich leistungsfähiger. 
