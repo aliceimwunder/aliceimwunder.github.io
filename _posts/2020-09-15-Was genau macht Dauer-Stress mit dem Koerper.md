@@ -71,7 +71,7 @@ Im Grunde alles, was Deinen Körper Entspannung bringt. Du kannst zusammen mit D
 
 Hier im Blog findest Du viele Ideen. Wenn Du gezielt und schnell aus diesem Teufelskreis aussteigen willst, dann lass Dich persönlich von einem Coach oder Traumatherapeut begleiten. 
 
-Hier findest du [mein Angebot](/).
+Hier findest du [mein Angebot](/2020/08/28/Wie-Phoenix-aus-der-Asche.html).
 
 
 
