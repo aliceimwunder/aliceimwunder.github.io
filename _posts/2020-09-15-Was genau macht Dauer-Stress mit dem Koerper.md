@@ -70,7 +70,7 @@ Nochmal: Dein Körper meint es gut! **Dein Körper ist absolut loyal!** Er macht
 
 Aus ganzheitlicher Sicht: nicht nur Dein Körper wird in der Stressreaktion gebadet, auch Dein Energiekörper wird immer nervöser und mit Säuren überlastet. Deswegen kann es durchaus eine Weile dauern, bis man wieder entsäuert ist, weil man dort eine enorme Menge an Stress und daraus resultierende Säure speichern kann, bevor der Körper in die Knie geht.
 
-![pink flowers](/assets/2020-15-09-pinkflowers.jpg)
+![pink flowers](/assets/2020-09-15-pinkflowers.jpg)
 
 <span>Photo by <a href="https://unsplash.com/@ny3ll199x?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Iwona Pytlowska</a> on <a href="https://unsplash.com/s/photos/stillness?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
