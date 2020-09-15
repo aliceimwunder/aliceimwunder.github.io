@@ -31,14 +31,14 @@ Das ist meist etwas anderes, als in Zeitschriften und lifestyle-Blogs suggeriert
 
 Manchmal ist es notwendig, in die Vergangenheit zu tauchen und alte Knoten zu lösen. Sobald das erledigt ist, können wir unsere Zeit damit verbringen, unsere Lebenszeit zum Aufbau unseres Traumleben zu nutzen. In Leichtigkeit magnetisch anziehen, was uns wirklich Sinn für unser Leben gibt. 
 
-[Basiswissen zu Burnout](/)
+- [Basiswissen zu Burnout](/)
 
-Hier geht es zum Blog mit erprobten ganzheitlichem Wissen um Burnout und erprobten **[Selbsthilfetools für Zuhause](/)**
+- Blog mit ganzheitlichem Wissen um Burnout und erprobten **[Selbsthilfetools für Zuhause](/)**
 
 # Du willst Dich auch persönlich begleiten lassen? 
 
-Lerne [mich kennen](/about/) 
+1. Lerne [mich kennen](/about/) 
 
-und hole Dir die [Begleitung, die Du gerade brauchst.](/) 
+2. Hole Dir die [Begleitung, die Du gerade brauchst.](/) 
 
 
