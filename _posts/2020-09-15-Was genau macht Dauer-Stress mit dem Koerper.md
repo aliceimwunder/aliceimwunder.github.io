@@ -1,5 +1,5 @@
 ---
-title: Burnout - Erschöpft - ausgebrannt? Was genau macht Dauer-Stress mit dem Körper?
+title: Burnout - Was genau macht Dauer-Stress mit dem Körper?
 ---
 
 Kennst Du dieses Phänomen? Du findest die Autoschlüssel nicht, die Du gerade noch in der Hand hattest? Du bekommst den Einleitungssatz für die Präsentation nicht mehr formuliert, obwohl Du in fünf Minuten loslegen willst? Im Gespräch mit der Projektleiterin sind einzelne Worte oder Namen einfach wie weggeblasen aus dem Gedächtnis? Der Hinweis der Partnerin, unterwegs an Klopapier zu denken, bringt das Fass zum Überlaufen. Tatsächlich Klopapier kaufen hat man da schon lange vergessen. Vieles, zum Teil **Rudimentäres, will nicht mehr nebenbei funktionieren**.  
