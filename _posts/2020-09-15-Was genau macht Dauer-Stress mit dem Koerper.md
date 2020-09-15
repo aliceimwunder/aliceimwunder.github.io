@@ -72,6 +72,8 @@ Aus ganzheitlicher Sicht: nicht nur Dein Körper wird in der Stressreaktion geba
 
 ![pink flowers](/assets/2020-15-09-pinkflowers.jpg)
 
+<span>Photo by <a href="https://unsplash.com/@ny3ll199x?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Iwona Pytlowska</a> on <a href="https://unsplash.com/s/photos/stillness?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
+
 # Was kannst Du tun?
 Im Grunde alles, was Deinen Körper Entspannung bringt. Du kannst zusammen mit Deinem Körper lernen, wie sinnvolle Reaktionen auf Herausforderungen aussehen. In der Traumatherapie gibt es dazu ein sehr schönes Bild. Im “window of tolerance” bleiben. Der Körper bleibt flexibel und leistungsfähig, ohne in Kampf oder Flucht überzugehen. Nach der vollbrachten Leistung fährt er wieder runter und Du kannst Dich wieder in einem vernünftigen Zeitfenster erholen. Ich weiß, es fühlt sich nicht so an, aber ohne Stressreaktion bist Du tatsächlich leistungsfähiger. 
 
