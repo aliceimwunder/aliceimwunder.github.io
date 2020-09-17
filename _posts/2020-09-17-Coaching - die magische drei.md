@@ -16,9 +16,9 @@ Meiner Erfahrung nach lassen sich klar konkrete Themen, an denen man Monate und 
 
 Das sieht so aus: 
 
-1.**Session**: Die Blockade genau bestimmen und erste Schritte unternehmen. Wo genau willst du hin? Was brauchst Du dafür? Wie lässt sich das am besten auch mit gerade wenig Energie integrieren? → Klare, überschaubare Umsetzungsaufgaben für die Zeit bis zur nächsten Session.
+1. **Session**: Die Blockade genau bestimmen und erste Schritte unternehmen. Wo genau willst du hin? Was brauchst Du dafür? Wie lässt sich das am besten auch mit gerade wenig Energie integrieren? → Klare, überschaubare Umsetzungsaufgaben für die Zeit bis zur nächsten Session.
 
-2.**Session**: Wir klären, was funktioniert hat und was nicht, feiern Deine Erfolge und schauen, was Dich auf Deinem Weg zu Deinem Ziel am besten unterstützt. Ich habe ein breites Spektrum an Coaching-Techniken, Ernährungsberatung, Energiemedizinische Methoden, aus denen wir individuell auf Dich angepasst auswählen können. Lösungsorientiert und empathisch. Was funktioniert, will zu Hause fortgesetzt werden. Alles andere wird angepasst, sodass Du neue, sanfte Impulse für Deinen Alltag zu Hause erhältst, passend zu Deinem aktuellen Energielevel. 
+2. **Session**: Wir klären, was funktioniert hat und was nicht, feiern Deine Erfolge und schauen, was Dich auf Deinem Weg zu Deinem Ziel am besten unterstützt. Ich habe ein breites Spektrum an Coaching-Techniken, Ernährungsberatung, Energiemedizinische Methoden, aus denen wir individuell auf Dich angepasst auswählen können. Lösungsorientiert und empathisch. Was funktioniert, will zu Hause fortgesetzt werden. Alles andere wird angepasst, sodass Du neue, sanfte Impulse für Deinen Alltag zu Hause erhältst, passend zu Deinem aktuellen Energielevel. 
 
 3. **Session**: Wir schauen, wie nah Du Deinem Ziel gekommen bist. Was ist davon noch aktuell? Was hat sich in den letzten Wochen verändert? Was kann vertieft werden? Was hilft Dir am besten in der nächsten Zeit? Wir prüfen anhand Deines Ausgangspunktes aus dem Vorgespräch, was wir gemeinsam erreicht haben. Dadurch hast Du eine objektive Bewertungsgrundlage, was Dir das Coaching gebracht hat. 
 
@@ -29,7 +29,6 @@ Das sieht so aus:
 - Du offen bist, schnell Änderungen vorzunehmen, Neues auszuprobieren. 
 
 **Typische Fragestellungen rund um Burnout** wären z.B.: Wie kann ich eine Ernährungsumstellung in meinen Alltag integrieren? Wie kann ich einen guten Abstand für mich zu Menschen, die mich Energie kosten, finden? Welche Änderungen benötige ich in meinem Berufsalltag, wenn ich nach einer Pause in meinen Beruf einsteigen will? Wie kann ich den Druck bis zur Verrentung/BU gut überstehen?
-
 
 
 **Es ist nicht so gut geeignet**, wenn Du
