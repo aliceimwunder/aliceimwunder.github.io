@@ -6,8 +6,6 @@ title: Mein Leben voller Energie
 <span>Photo by <a href="https://unsplash.com/@juanpoe?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Richard Price</a> on <a href="https://unsplash.com/s/photos/still-water?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 
-Es will nicht weiter gehen?
-
 Warum bist du so erschöpft? Keine Energie für das, was Du Dir im Leben vorgenommen hast?
 
 Darauf willst Du eine Antwort? 
@@ -24,9 +22,9 @@ Uns von unseren Problemen und der Vergangenheit hypnotisieren zu lassen, statt u
 
 **Du kannst die Krise nutzen.**
 
-Lerne, was Deinen Körper, Deinen Geist und Deine Seele auflädt. 
+Lerne, den Teufelskreis der Erschöpfung zu unterbrechen. Mach Dir zueigen, was Deinen Körper, Deinen Geist und Deine Seele auflädt. 
 
-Dich darauf konzentrieren, womit Du Dein Leben tatsächlich verbringen willst. 
+Konzentriere Dich auf das, womit Du Dein Leben tatsächlich verbringen willst. 
 
 Das ist meist etwas anderes, als in Zeitschriften und lifestyle-Blogs suggeriert wird. 
 
@@ -36,9 +34,11 @@ Manchmal ist es notwendig, in die Vergangenheit zu tauchen und alte Knoten zu l�
 
 - [Basiswissen zu Burnout](/)
 
-- Blog mit ganzheitlichem Wissen um Burnout und erprobten **[Selbsthilfetools für Zuhause](/)**
+Umfangreiches Wissen zu Erschöpfung und wie Du ein Leben voller Energie kreierst, findest Du in meinem 
 
-# Du willst Dich auch persönlich begleiten lassen? 
+- Blog Burnout: How I stayed home and solved my karma - mit ganzheitlichem Wissen um Burnout und erprobten **[Selbsthilfetools für Zuhause](//alicewindolf.de)**
+
+# Du weißst schon, dass Du Dich auf Deinem Weg persönlich begleiten lassen willst? 
 
 1. Lerne [mich kennen](/about/) 
 
