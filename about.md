@@ -15,11 +15,12 @@ Hier findest Du mein Angebot.
 - Traumatherapeutin, HP psych.
 - 5.-Dimensions-Begleiterin
 
-Das ist mein Angebot: 
-Ein kurzes knackiges: [Die magische Drei](/2020/09/17/Coaching-die-magische-drei.html)
-Ein tiefgreifend transformierendes: [Aus der Asche des Burnouts - Mein Traumleben erschaffen](/2020/08/28/Wie-Phoenix-aus-der-Asche.html)
+**Das ist mein Angebot:** 
 
-Wie komme ich dazu, Menschen zu helfen, die sich ausgebrannt und erschöpft fühlen? Die das Gefühl haben, das eigene Leben wirke leer und sinnlos, als ob das Leben fremdgesteuert sei. Überforderung, unterschwellige Ängste, Gereitzheit. Übliche Erholungszeiten wie Urlaub und AU helfen nicht.
+1. Ein kurzes knackiges: [Die magische Drei](/2020/09/17/Coaching-die-magische-drei.html)
+2. Ein tiefgreifend transformierendes: [Aus der Asche des Burnouts - Mein Traumleben erschaffen](/2020/08/28/Wie-Phoenix-aus-der-Asche.html)
+
+**Wie komme ich dazu, Menschen zu helfen, die sich ausgebrannt und erschöpft fühlen?** Die das Gefühl haben, das eigene Leben wirke leer und sinnlos, als ob das Leben fremdgesteuert sei. Überforderung, unterschwellige Ängste, Gereitzheit. Übliche Erholungszeiten wie Urlaub und AU helfen nicht.
 
 # Nach außen sah es aus wie ein gutes Leben
 Superniedliche Tochter, liebevoller Partner, ruhige Stadtwohnung mit Garten. Nette Restaurants in der Nähe, gutes Essen zu Hause. Für Berlin kurzer direkter Arbeitsweg, eine an sich sinnstiftende Arbeit in Teilzeit sogar mit Karriereaussichten. Schöne Urlaube. Was will man mehr?
