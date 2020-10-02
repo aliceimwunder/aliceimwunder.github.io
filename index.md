@@ -35,11 +35,9 @@ Manchmal ist es notwendig, in die Vergangenheit zu tauchen und alte Knoten zu l�
 
 Umfangreiches Wissen zu Erschöpfung und wie Du ein Leben voller Energie kreierst, findest Du in meinem 
 
-- **Blog:** Burnout: How I stayed home and solved my karma - mit ganzheitlichem Wissen um Burnout und erprobten **[Selbsthilfetools für Zuhause](/blog.html)**
+- **Mein Blog:** Burnout: How I stayed home and solved my karma - mit ganzheitlichem Wissen um Burnout und erprobten **[Selbsthilfetools für Zuhause](/blog.html)**
 
-# Du weißst schon, dass Du Dich auf Deinem Weg persönlich begleiten lassen willst? 
-
-Lerne [mich kennen](/about/) 
+Du weißst schon, dass Du Dich auf Deinem Weg persönlich begleiten lassen willst? **Lerne [mich kennen](/about/)** 
  
 
 
