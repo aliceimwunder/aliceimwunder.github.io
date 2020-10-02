@@ -46,9 +46,9 @@ Für die Ärzte war ich ein nicht mehr zu verstehender Fall von Wunderheilung. S
 Irgendwie taten mir die Ärzte leid. Ich hatte eine Form von **Vertrauen ins Leben gefunden, die mich vom Patienten zum Zaungast dieser Veranstaltung hatte werden lassen.** 
 
 # Wie war ich da eigentlich gelandet?
-Mein Herzinfarkt hatte sich auf den mittlerweile dritten Burnout gesetzt. Die Erschöpfungsphasen waren schön mit großem Abstand gekommen. Jeweils 10 Jahre, sodass ich den vorherigen immer schon ein wenig vergessen hatte. (und ja, man kann auch schon als Teenager mit sich aneinander reihenden Infektionen, Abi und Familie überfordert sein.)
+Mein Herzinfarkt hatte sich auf den mittlerweile dritten Burnout gesetzt. Die Erschöpfungsphasen waren schön mit großem Abstand gekommen. Jeweils 10 Jahre, sodass ich den vorherigen immer schon ein wenig vergessen hatte. (und ja, man kann auch schon als Teenager mit sich aneinander reihenden Infekten, Abi und Familie überfordert sein.)
 
-*Meine Ursachen?!?* Alle Klassiker, die man sich vorstellen kann: zu viel Arbeit, zu wenig Erholung, zu viele Baustellen auf einmal, zu viele seelische Altlasten, zu wenig Sinn für mich persönlich in dem, was mich viel Energie kostete. Häufige Infekte... Ich habe einfach alles mitgenommen, was nur ging. 
+*Meine Ursachen für die Burnouts?!?* Alle Klassiker, die man sich vorstellen kann: zu viel Arbeit, zu wenig Erholung, zu viele Baustellen auf einmal, zu viele seelische Altlasten bis hin zur Depression, zu wenig Sinn für mich persönlich in dem, was mich viel Energie kostete. Häufige Infekte... Ich habe einfach alles mitgenommen, was nur ging. 
 
 # Burnout meets spirituality
 Nachdem ich wider jeder Prognose aus dem Krankenhaus auf meinen eigenen zwei Beinen lief, war mir schnurz, dass mein nüchterner Verstand sich vielleicht als Hobby aber sicher nicht beruflich auf Astrologie, Quantenheilung oder gar Channelings verlässt. Ich fragte jeden spirituellen Ratgeber um Rat, der mir als vertrauensvolle Quelle erschien (klar gibt's da wie überall auch ziemlichen Unsinn) und den ich bezahlen konnte. Ich stolperte über Pavlina Klemms Seminare. Sie brachte mir die Quantenheilung und vieles andere bei. 
@@ -77,7 +77,9 @@ Menschen mit etwas helfen, was sie wirklich weiterbringt. Manchmal weiß ich gar
 Die Vorstellung, meinem Körper später einmal wieder 30 oder gar 40 Stunden pro Woche Arbeit in einem Büro abzuverlangen? Das wird vermutlich nichts mehr. Es sei denn, ich will mir schon mal ein schönes Plätzchen auf einem Friedhof suchen. Auf mehr als eine Wunderheilungen in einem Leben zu bauen wäre unlogischer als jede spirituelles Tool, das ich mir in den letzten Jahren angeeignet habe.
 
 # Äußerlich sah mein Weg ungefähr so aus: 
-Besuch vieler Seminare zur Persönlichkeitsbildung und ganzheitlicher Heilung, wie z.B. Energy Medicine nach Donna Leon, Aufstellungsarbeit, walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie)
+In meiner Arbeit verbinde ich wissenschaftliche, wie spirituelle Ansätze, um das bestmögliche Ergebnis zu erziehlen. 
+
+Besuch vieler Seminare zur Persönlichkeitsbildung und ganzheitlicher Heilung, wie z.B. Energy Medicine nach Donna Leon, Aufstellungsarbeit, Walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Lichkörperprozess bei Chamuel Schauffert. Spirituelle Heiltechniken von Pavlina Klemm. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie).
 
 Traumatherapieausbildung, arche medica
 
