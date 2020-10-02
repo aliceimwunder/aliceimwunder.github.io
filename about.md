@@ -15,6 +15,10 @@ Hier findest Du mein Angebot.
 - Traumatherapeutin, HP psych.
 - 5.-Dimensions-Begleiterin
 
+Das ist mein Angebot: 
+Ein kurzes knackiges: [Die magische Drei](/2020/09/17/Coaching-die-magische-drei.html)
+Ein tiefgreifend transformierendes: [Aus der Asche des Burnouts - Mein Traumleben erschaffen](/2020/08/28/Wie-Phoenix-aus-der-Asche.html)
+
 Wie komme ich dazu, Menschen zu helfen, die sich ausgebrannt und erschöpft fühlen? Die das Gefühl haben, das eigene Leben wirke leer und sinnlos, als ob das Leben fremdgesteuert sei. Überforderung, unterschwellige Ängste, Gereitzheit. Übliche Erholungszeiten wie Urlaub und AU helfen nicht.
 
 # Nach außen sah es aus wie ein gutes Leben
