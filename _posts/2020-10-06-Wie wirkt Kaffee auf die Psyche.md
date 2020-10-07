@@ -66,3 +66,7 @@ Wenn Bewegung trotz Erschöpfung noch geht, dann regelmäßig Mini-Bewegungs-Ein
 - **Entzugserscheinungen verringern:** Kopfschmerzen, Zittern, Verstopfung, Kreislaufprobleme, Konzentrationsschwierigkeiten sind typische Symptome. Magnesium und Kalium als Supplement, frisch gepresster Selleriesaft oder Kokoswasser können helfen, die Entzugserscheinungen zu dämpfen. Überhaupt viel Wasser trinken, damit der Körper das Koffein möglichst schnell ausscheiden kann. Sich selbst gut zureden und Mitgefühl mit sich selbst haben. Die Entzugserscheinungen sind eine Frage von Wochen und nicht von Jahren. Dennoch können sie Dich hart treffen. Geduld mit sich selbst schadet daher nicht. 
 
 Wie schaut es bei Dir aus? Vielleicht magst Du Deine Erfahrung mit Koffein und Erschöpfung teilen? Dein persönlicher Weg kann für andere sehr hilfreich sein, falls Du ihn teilen magst. 
+
+Du kannst persönliche Unterstützung bei Deinem Weg aus der Erschöpfung gebrauchen? Dann geht es hier zu meinem Angebot: 
+- [Die magische Drei.](/2020/09/17/Coaching-die-magische-drei.html) 
+- [Wie Phönix aus der Asche des Burnouts.](/2020/08/28/Wie-Phoenix-aus-der-Asche.html)
