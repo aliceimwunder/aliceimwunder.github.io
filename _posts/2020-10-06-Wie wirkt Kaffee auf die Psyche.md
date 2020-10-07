@@ -56,7 +56,7 @@ Einfach die Tasse Kaffee oder die Schokolade weglassen wird vermutlich nicht fun
 
 Daher zu wissen, wofür Du ihn genau einsetzt, macht es leichter die Funktion des Kaffees im Leben zu ersetzen. Welche ist das genau? Diese Funktion wird nicht weggehen, nur weil man keinen Kaffee mehr trinken will. Es bedarf einer anderen Gestaltung. 
 
-Später - wenn Du wieder zur Ruhe gekommen bist - kann es sein, dass der Latte Macchiato oder der Espresso echter Genuss in Deinem Leben sein darf. Es kann natürlich auch sein, dass Du nach Deiner Regeneration und dem Neustart Deines Lebens wie ein Trockener Alkoholiker merkst: Ui, immer, wenn ich Kaffee trinke, hält sich das mit dem Genuss in Grenzen. Mein Herzschlag geht unangenehm hoch und die Nervosität aus alten Zeiten brauche ich auch nicht. 
+Später - wenn Du wieder zur Ruhe gekommen bist - kann es sein, dass Kaffee ein seltener Gast in Deinem Leben sein darf. Es kann natürlich auch sein, dass Du nach Deiner Regeneration und dem Neustart Deines Lebens wie ein Trockener Alkoholiker merkst: Ui, immer, wenn ich Kaffee trinke, hält sich das mit dem Genuss in Grenzen. Mein Herzschlag geht unangenehm hoch und die Nervosität aus alten Zeiten brauche ich auch nicht. 
 
 Alzheimer und Parkinson lassen sich bestimmt anders vorbeugen. ;-) Koffein scheint mir nicht die einzige sinnvolle Gesundheits-Prävention zu sein. 
 
@@ -67,7 +67,7 @@ Wenn Bewegung trotz Erschöpfung noch geht, dann regelmäßig Mini-Bewegungs-Ein
 - **Als soziales Ritual**: Ein “Ersatzgetränk” finden, dass so ähnlich aussieht und falls einer fragt, einfach erklären, dass man gerade ein bisschen Ärger mit dem Magen hat. (Kaffeetrinkern würde ich nicht verkünden, dass Kaffee ungesund sei. Das führt immer zu Abwehr und die stresst noch mehr als das bisschen Koffein.) Ersatzgetränk kann sein: Löwenzahn, Zicchorie, Lupine, Chaga-Pilz. Die sehen in der Tasse so ähnlich aus. Sie haben einen leicht bitteren Geschmack und mit (Hafer)Milch lässt sich der Unterschied optisch kaum feststellen. (Ja, ich weiß, das mit dem Aroma wird man so nicht hinbekommen) Einfach durchprobieren, ob etwas in Betracht kommt. 
 - **Entzugserscheinungen verringern:** Kopfschmerzen, Zittern, Verstopfung, Kreislaufprobleme, Konzentrationsschwierigkeiten sind typische Symptome. Magnesium und Kalium als Supplement, frisch gepresster Selleriesaft oder Kokoswasser können helfen, die Entzugserscheinungen zu dämpfen. Überhaupt viel Wasser trinken, damit der Körper das Koffein möglichst schnell ausscheiden kann. Sich selbst gut zureden und Mitgefühl mit sich selbst haben. Die Entzugserscheinungen sind eine Frage von Wochen und nicht von Jahren. Dennoch können sie Dich hart treffen. Geduld mit sich selbst schadet daher nicht. 
 
-Wie schaut es bei Dir aus? Vielleicht magst Du Deine Erfahrung mit Koffein und Erschöpfung teilen? Dein persönlicher Weg kann für andere sehr hilfreich sein, falls Du ihn teilen magst. 
+Wie schaut es bei Dir aus? Vielleicht magst Du Deine Erfahrung mit Koffein und Erschöpfung teilen? Dein persönlicher Weg kann für andere sehr hilfreich sein, falls Du ihn teilen magst. Mir persönlich ist Freiheit sehr wichtig. Wenn ich durch den Tag nur noch mit Kaffee komme, dann bin ich nicht mehr frei sondern abhängig.
 
 Du kannst persönliche Unterstützung bei Deinem Weg aus der Erschöpfung gebrauchen? Dann geht es hier zu meinem Angebot: 
 - [Die magische Drei.](/2020/09/17/Coaching-die-magische-drei.html) 
