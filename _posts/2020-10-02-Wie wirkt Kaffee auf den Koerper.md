@@ -45,4 +45,5 @@ Bei Erschöpfung ist ein gut hydrierter Körper wichtig. Das Wasser in den Zelle
 
 Stilles Heilwasser aus Glasflaschen, frisch gepresster Obstsaft oder Selleriesaft, Gurke, Kokoswasser, Kaffee. Was passt nicht in die Reihe? Ein Spiel, das meine Tochter liebt. Ja, alles enthält Wasser. Das ist es nicht. Eins davon kann den Körper nicht so wässern, dass dieser sich effektiv erholen kann… Sorry. Ich mag Kaffee auch.  
 
-Soweit zum körperlichen Effekt bei Erschöpfung. Demnächst kommt Teil 2 zu den psychologischen Effekten als Blogbeitrag. 
+Soweit zum körperlichen Effekt bei Erschöpfung. Hier geht es [zum nächsten Beitrag zu den Wirkungen von Koffein](/2020/10/06/Wie-wirkt-Kaffee-auf-die-Psyche.html).
+
