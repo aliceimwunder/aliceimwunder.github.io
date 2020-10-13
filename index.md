@@ -23,14 +23,12 @@ Konzentriere Dich auf das, womit Du Dein Leben tatsächlich verbringen willst.
 Das ist meist etwas anderes, als in Zeitschriften und lifestyle-Blogs suggeriert wird. 
 
 # Hier findest Du Antworten, die funktionieren. 
-
 Manchmal ist es notwendig, in die Vergangenheit zu tauchen und alte Knoten zu lösen. Sobald das erledigt ist, können wir unsere Zeit damit verbringen, unsere Lebenszeit zum Aufbau unseres Traumleben zu nutzen. In Leichtigkeit magnetisch anziehen, was uns wirklich Sinn für unser Leben gibt. 
 
 Umfangreiches Wissen zu Erschöpfung und wie Du ein Leben voller Energie kreierst, findest Du in meinem 
 
 - **Mein Blog:** Burnout: How I stayed home and solved my karma - mit ganzheitlichem Wissen um Burnout und erprobten **[Selbsthilfetools für Zuhause](/blog.html)**
-
-Du weißst schon, dass Du Dich auf Deinem Weg persönlich begleiten lassen willst? **Lerne [mich kennen](/about/)** 
+- Du weißst schon, dass Du Dich auf Deinem Weg persönlich begleiten lassen willst? **Lerne [mich kennen](/about/)**. 
  
 
 
