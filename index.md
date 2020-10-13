@@ -5,25 +5,19 @@
 layout: default
 ---
 
-![Frontbild](/assets/2020-09-15-Frontbild.jpg)
+![Frontbild](/assets/Frontbild.jpg)
 
 <span>Photo by <a href="https://unsplash.com/@juanpoe?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Richard Price</a> on <a href="https://unsplash.com/s/photos/still-water?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 
-Warum bist du so erschöpft? Keine Energie für das, was Du Dir im Leben vorgenommen hast?
-
-Du willst einen Weg zurück in Dein kraftvolles Leben? 
-
+Warum bist du so erschöpft? Keine Energie für das, was Du Dir im Leben vorgenommen hast? Du willst einen Weg zurück in Dein kraftvolles Leben? 
 Dich interessieren ganzheitliche Wege?
 
 **Dann bist Du bei mir richtig.**
-
 Die meiste Zeit verbringen wir damit, eher für andere zu funktionieren. Uns von unseren Problemen und der Vergangenheit hypnotisieren zu lassen, statt unser Leben zu genießen. 
 
 **Du kannst die Krise nutzen.**
-
 Lerne, den Teufelskreis der Erschöpfung zu unterbrechen. Mach Dir zueigen, was Deinen Körper, Deinen Geist und Deine Seele auflädt. 
-
 Konzentriere Dich auf das, womit Du Dein Leben tatsächlich verbringen willst. 
 
 Das ist meist etwas anderes, als in Zeitschriften und lifestyle-Blogs suggeriert wird. 
