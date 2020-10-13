@@ -32,9 +32,7 @@ Das sieht so aus:
 - umfangreiche Unterstützung benötigst, z. B. weil sich mit Deinem Burnout gleichzeitig viele Baustellen auf einmal in Deinem Leben geöffnet haben. Dann ist mein Programm über drei Monate besser geeignet, weil es viele Aspekte strukturiert aufgreift und Dich über längeren Zeitraum begleitet. 
 - wenig Lust hast, Neues auszuprobieren. Keine Sorge, alles, was wir angehen, ist auf einen Zustand im Burnout angepasst. Doch der Wille, neue Wege zu gehen und Unkonventionelles auszuprobieren, ist wichtig, um Veränderungen zu erreichen. 
 
-Coaching kommt klar aus dem Businessbereich. Hier geht es ums Umsetzen. Wenn ein Lebensbereich herausgefunden hat, wie man am besten ins Tun kommt, dann die Wirtschaft. Nutze dieses Tool auch für Dich persönlich. 
-
-Denn unser Problem unserer Zeit ist nicht Information. Die kannst Du Dir in meinem Blog, in Büchern und im WWW holen. Das ist kein Hindernis mehr. Das Problem ist das ins Umsetzen allein zu Hause mit Burnout kommen. Das ist die enorme Herausforderung. Ehrlich gesagt, das kann Monate und Jahre dauern. Also spare Dir diese Zeit. Deine Lebenszeit ist zu schade, um sie mit Erschöpfung zu verbringen. 
+Persönliche Begleitung für positive Veränderung macht das Leben so viel einfacher. Denn das Problem unserer Zeit ist nicht Information. Informationen kannst Du Dir in meinem Blog, in Büchern und im www holen. Das ist kein Hindernis mehr. Die Schwierigkeit liegt vielmehr im Umsetzen allein zu Hause mit Burnout. Das ist eine enorme Herausforderung. Du kannst ehrlich stolz auf Dich sein, wenn Du wieder bei Kräften in Deinem selbstbestimmten Leben angekommen bist. Aber ehrlich gesagt, das kann Monate und Jahre dauern. Deine Lebenszeit ist zu schade, um sie mit Erschöpfung zu verbringen. 
 
 **Disclaimer**: Coaching dient der Selbsthilfe. Es ist kein Ersatz für medizinisch notwendige Behandlungen. Im Zweifelsfall wende Dich bitte immer an Deinen Arzt, Psychotherapeuten oder Heilpraktiker vor Ort. 
 
