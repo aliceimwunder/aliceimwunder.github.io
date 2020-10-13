@@ -20,14 +20,14 @@ Hier findest Du mein Angebot.
 1. Ein kurzes knackiges: [Die magische Drei](/2020/09/17/Coaching-die-magische-drei.html)
 2. Ein tiefgreifend transformierendes: [Aus der Asche des Burnouts - Mein Traumleben erschaffen](/2020/08/28/Wie-Phoenix-aus-der-Asche.html)
 
-**Wie komme ich dazu, Menschen zu helfen, die sich ausgebrannt und erschöpft fühlen?** Die das Gefühl haben, das eigene Leben wirke leer und sinnlos, als ob das Leben fremdgesteuert sei. Überforderung, unterschwellige Ängste, Gereitzheit. Übliche Erholungszeiten wie Urlaub und AU helfen nicht.
+# Wie komme ich dazu, Menschen zu helfen, die sich ausgebrannt und erschöpft fühlen?
+Menschen, die das Gefühl haben, das eigene Leben wirke leer und sinnlos, als ob das Leben fremdgesteuert sei. Überforderung, unterschwellige Ängste, Gereitzheit, depressive Verstimmungen... Übliche Erholungszeiten wie Urlaub und AU helfen nicht...
 
-# Nach außen sah mein Leben aus wie ein gutes Leben
-Superniedliche Tochter, liebevoller Ehepartner, ruhige Stadtwohnung mit Garten. Nette Restaurants in der Nähe, gutes Essen zu Hause. Für Berlin kurzer direkter Arbeitsweg, eine an sich sinnstiftende Arbeit sogar mit Karriereaussichten trotz Teilzeit. Schöne Urlaube. Was will man mehr?
+Du hast mein volles Mitgefühl. Mir ging es früher genauso. **Nach außen sah mein Leben aus wie ein gutes Leben:** Superniedliche Tochter, liebevoller Ehepartner, ruhige Stadtwohnung mit Garten. Nette Restaurants in der Nähe, gutes Essen zu Hause. Für Berlin kurzer direkter Arbeitsweg, eine an sich sinnstiftende Arbeit sogar mit Karriereaussichten trotz Teilzeit. Schöne Urlaube. Was will man eigentlich mehr? Ok, Geld, aber sonst?
 
 **Wäre da nicht diese sich langsam von hinten anschleichende Erschöpfung und Gereiztheit...** 
 
-Und wären da nicht diese Gedanken, dass andere meinen Beruf sinnstiftender finden als ich... Nur: ich habe keinen blassen Schimmer, was ich wirklich will (und würde ich eine Ahnung in mir zulassen, wäre es sicherlich nicht so eine sichere Einnahmequelle wie mein Beruf in Beamtenstellung...
+Und wären da nicht diese Gedanken, dass andere meinen Beruf sinnstiftender finden als ich... Nur ich habe keinen blassen Schimmer, was ich wirklich will (und würde ich eine Ahnung in mir zulassen, wäre es sicherlich nicht so eine sichere Einnahmequelle wie mein Beruf in Beamtenstellung...)
 
 Ende 2018 - ich war Anfang 40 - rief mein Mann eines Nachts den Notarzt. 
 
@@ -41,9 +41,9 @@ Drei Tage später, im Krankenhausbett bot sich mir eine ganz neue Aussicht: Dial
 # Mein Weg aus der Verzweiflung
 Nach 16 Tagen hatte ich den ersten Punkt auf meiner neuen To-do-Liste erreicht. Ich ging auf meinen eigenen Beinen mit zwar angeschlagenen, aber funktionierenden Organen aus dem Krankenhaus. 
 
-Für die Ärzte war ich ein nicht mehr zu verstehender Fall von Wunderheilung. Sie fanden trotz zum Teil gruseligsten Untersuchungsmethoden keine sinnvolle Erklärung für die Herzinfarkte. Medikamente ließen sich nicht einstellen, die Blutwerte spielten verrückt. Ein MRT behauptete, ich hätte keinen Herzinfarkt gehabt, obwohl die Ärzte nur wenige Tage zuvor um mein Leben mit gleich zwei Herzinfarkten hintereinander gekämpft hatten. Sie unterstellten sich gegenseitig schlampige Arbeit. 
+Für die Ärzte war ich ein nicht mehr zu verstehender **Fall von Wunderheilung**. Sie fanden trotz zum Teil gruseligsten Untersuchungsmethoden keine sinnvolle Erklärung für die Herzinfarkte. Medikamente ließen sich nicht einstellen, die Blutwerte spielten verrückt. Ein MRT behauptete, ich hätte keinen Herzinfarkt gehabt, obwohl die Ärzte nur wenige Tage zuvor um mein Leben mit gleich zwei Herzinfarkten hintereinander gekämpft hatten. Sie unterstellten sich gegenseitig schlampige Arbeit. 
 
-Irgendwie taten mir die Ärzte leid. Ich hatte eine Form von **Vertrauen ins Leben gefunden, die mich vom Patienten zum Zaungast dieser Veranstaltung hatte werden lassen.** 
+Irgendwie taten mir die Ärzte leid. Ich hatte eine Form von **Vertrauen ins Leben gefunden**, das mich vom Patienten zum Zaungast dieser Veranstaltung hatte werden lassen. 
 
 # Wie war ich da eigentlich gelandet?
 Mein Herzinfarkt hatte sich auf den mittlerweile dritten Burnout gesetzt. Die Erschöpfungsphasen waren schön mit großem Abstand gekommen. Jeweils 10 Jahre, sodass ich den vorherigen immer schon ein wenig vergessen hatte. (und ja, man kann auch schon als Teenager mit sich aneinander reihenden Infekten, Abi und Familie überfordert sein.)
