@@ -2,16 +2,14 @@
 title: Die magische Drei - Das Online-Coaching - Programm
 ---
 
-Du weißt, was Dich konkret stresst? Du bist schon auf dem Weg aus Deinem Burnout, aber irgendwie hängt es noch an der einen oder anderen Stelle? 
+Du weißt, was Dich stresst? Du bist schon auf dem Weg aus Deinem Burnout, aber irgendwie hängt es noch an der einen oder anderen Stelle? 
 
-Dann lass Dich begleiten. Zusammen geht es schneller. 
-
-Meiner Erfahrung nach lassen sich Hindernisse, an denen man Monate und Jahre herumbeißen kann, mit persönlicher Begleitung innerhalb von wenigen Wochen spürbar verändern. 
+Dann lass Dich begleiten. Zusammen geht es schneller. Meiner Erfahrung nach lassen sich einzelne Hindernisse, an denen man Monate und Jahre herumbeißen kann, mit persönlicher Begleitung innerhalb von wenigen Wochen spürbar verändern. 
 
 # Ich unterstütze Dich mit
 
 - **einem kostenfreien Vorgespräch** von ca. 20-30min, in dem wir zusammen prüfen, welche konkrete Blockade Dich auf Deinem Weg aus dem Burnout hindert. Wir klären, ob ich Dich gut unterstützen kann, so wie Du es gerade brauchst. Das Gespräch ist unverbindlich, sodass Du in Ruhe entscheiden kannst, ob ich die richtige Begleitung bin und womit Du Dich am besten unterstützt siehst. Wir klären Deine genaue Ausgangslage.
-- *3 Online-Sessions**. Jeweils ungefähr eine Stunde Raum nur für Dich. Jeweils mit ein bis zwei Wochen Abstand, um die Impulse ausreichend im Alltag integrieren zu können. 
+- **3 Online-Sessions**. Jeweils ungefähr eine Stunde Raum nur für Dich. Jeweils mit ein bis zwei Wochen Abstand, um die Impulse ausreichend im Alltag integrieren zu können. 
 
 Das sieht so aus: 
 
@@ -32,11 +30,11 @@ Das sieht so aus:
 
 **Es ist nicht so gut geeignet**, wenn Du
 - umfangreiche Unterstützung benötigst, z. B. weil sich mit Deinem Burnout gleichzeitig viele Baustellen auf einmal in Deinem Leben geöffnet haben. Dann ist mein Programm über drei Monate besser geeignet, weil es viele Aspekte strukturiert aufgreift und Dich über längeren Zeitraum begleitet. 
-- wenig Lust hast, Neues auszuprobieren. Keine Sorge, alles, was wir angehen, ist auf einen Zustand im Burnout angepasst. Doch der Wille, neue Wege zu gehen und Unkonventionelles Ausprobieren, darf trotzdem nicht fehlen. 
+- wenig Lust hast, Neues auszuprobieren. Keine Sorge, alles, was wir angehen, ist auf einen Zustand im Burnout angepasst. Doch der Wille, neue Wege zu gehen und Unkonventionelles auszuprobieren, ist wichtig, um Veränderungen zu erreichen. 
 
-Coaching stammt aus dem Businessbereich. Hier geht es ums Umsetzen. Wenn ein Lebensbereich herausgefunden hat, wie man am besten ins Tun kommt, dann die Wirtschaft. Nutze dieses Tool auch für Dich persönlich. 
+Coaching kommt klar aus dem Businessbereich. Hier geht es ums Umsetzen. Wenn ein Lebensbereich herausgefunden hat, wie man am besten ins Tun kommt, dann die Wirtschaft. Nutze dieses Tool auch für Dich persönlich. 
 
-Denn unser Problem unserer Zeit ist nicht Information. Die kannst Du Dir in meinem Blog, in Büchern und im WWW holen. Das ist kein Problem. Das Problem ist das ins Umsetzen allein zu Hause mit Burnout kommen. Das ist die enorme Herausforderung. Ehrlich gesagt, das kann Monate und Jahre dauern. Also spare Dir diese Zeit. Deine Lebenszeit ist zu schade, um sie mit Erschöpfung zu verbringen. 
+Denn unser Problem unserer Zeit ist nicht Information. Die kannst Du Dir in meinem Blog, in Büchern und im WWW holen. Das ist kein Hindernis mehr. Das Problem ist das ins Umsetzen allein zu Hause mit Burnout kommen. Das ist die enorme Herausforderung. Ehrlich gesagt, das kann Monate und Jahre dauern. Also spare Dir diese Zeit. Deine Lebenszeit ist zu schade, um sie mit Erschöpfung zu verbringen. 
 
 **Disclaimer**: Coaching dient der Selbsthilfe. Es ist kein Ersatz für medizinisch notwendige Behandlungen. Im Zweifelsfall wende Dich bitte immer an Deinen Arzt, Psychotherapeuten oder Heilpraktiker vor Ort. 
 
