@@ -37,7 +37,7 @@ Das sieht so aus:
 
 
 **Es ist nicht so gut geeignet**, wenn Du
-- umfangreiche Unterstützung benötigst, z. B. weil sich mit Deinem Burnout gleichzeitig viele Baustellen auf einmal in Deinem Leben geöffnet haben. Dann ist mein Programm über drei Monate besser geeignet, weil es viele Aspekte strukturiert aufgreift und Dich über längeren Zeitraum begleitet. 
+- umfangreiche Unterstützung benötigst, z. B. weil sich mit Deinem Burnout gleichzeitig viele Baustellen auf einmal in Deinem Leben geöffnet haben. Dann ist [mein Programm über drei Monate](/2020/08/28/Wie-Phoenix-aus-der-Asche.html) besser geeignet, weil es viele Aspekte strukturiert aufgreift und Dich über längeren Zeitraum begleitet. 
 - wenig Lust hast, Neues auszuprobieren. Keine Sorge, alles, was wir angehen, ist auf einen Zustand im Burnout angepasst. Doch der Wille, neue Wege zu gehen und Unkonventionelles auszuprobieren, ist wichtig, um Veränderungen zu erreichen. 
 
 Persönliche Begleitung für positive Veränderung macht das Leben so viel einfacher. Denn das Problem unserer Zeit ist nicht Information. Informationen kannst Du Dir in meinem Blog, in Büchern und im www holen. Das ist kein Hindernis mehr. Die Schwierigkeit liegt vielmehr im Umsetzen allein zu Hause mit Burnout. Das ist eine enorme Herausforderung. Du kannst ehrlich stolz auf Dich sein, wenn Du wieder bei Kräften in Deinem selbstbestimmten Leben angekommen bist. Aber ehrlich gesagt, das kann Monate und Jahre dauern. Deine Lebenszeit ist zu schade, um sie mit Erschöpfung zu verbringen. 
