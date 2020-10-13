@@ -46,16 +46,14 @@ Für die Ärzte war ich ein nicht mehr zu verstehender **Fall von Wunderheilung*
 Irgendwie taten mir die Ärzte leid. Ich hatte eine Form von **Vertrauen ins Leben gefunden**, das mich vom Patienten zum Zaungast dieser Veranstaltung hatte werden lassen. 
 
 # Wie war ich da eigentlich gelandet?
-Mein Herzinfarkt hatte sich auf den mittlerweile dritten Burnout gesetzt. Die Erschöpfungsphasen waren schön mit großem Abstand gekommen. Jeweils 10 Jahre, sodass ich den vorherigen immer schon ein wenig vergessen hatte. (und ja, man kann auch schon als Teenager mit sich aneinander reihenden Infekten, Abi und Familie überfordert sein.)
+Mein Herzinfarkt hatte sich auf den mittlerweile dritten Burnout gesetzt. Die Erschöpfungsphasen waren schön mit großem Abstand gekommen. Jeweils 10 Jahre, sodass ich den vorherigen verdrängt hatte. (Ja, man kann schon als Teenager mit sich aneinander reihenden Infekten, Abi und dysfunktionaler Familie so überfordert sein, dass man im Burnout landet.)
 
-*Meine Ursachen für die Burnouts?!?* Alle Klassiker, die man sich vorstellen kann: zu viel Arbeit, zu wenig Erholung, zu viele Baustellen auf einmal, zu viele seelische Altlasten bis hin zur Depression, zu wenig Sinn für mich persönlich in dem, was mich viel Energie kostete. Häufige Infekte... Ich habe einfach alles mitgenommen, was nur ging. 
+**Meine persönlichen Ursachen für die Burnouts?** *Alle Klassiker, die man sich vorstellen kann*: zu viel Arbeit, zu wenig Erholung, zu viele berufliche und familiäre Baustellen auf einmal, zu viele seelische Altlasten bis hin zur Depression, zu wenig Sinn für mich persönlich in dem, was mich viel Energie kostete. Häufige Infekte... Ich habe einfach alles mitgenommen, was nur ging. 
 
 # Burnout meets spirituality
-Nachdem ich wider jeder Prognose aus dem Krankenhaus auf meinen eigenen zwei Beinen lief, war mir schnurz, dass mein nüchterner Verstand sich vielleicht als Hobby aber sicher nicht beruflich auf Astrologie, Quantenheilung oder gar Channelings verlässt. Ich fragte jeden spirituellen Ratgeber um Rat, der mir als vertrauensvolle Quelle erschien (klar gibt's da wie überall auch ziemlichen Unsinn) und den ich bezahlen konnte. Ich stolperte über Pavlina Klemms Seminare. Sie brachte mir die Quantenheilung und vieles andere bei. 
+Nachdem ich wider jeder Prognose aus dem Krankenhaus auf meinen eigenen zwei Beinen lief, war mir schnurz, dass mein nüchterner, juristischer Verstand sich vielleicht als Hobby aber sicher nicht beruflich auf Astrologie, Quantenheilung oder gar Channelings verlässt. Ich fragte jeden spirituellen Ratgeber um Rat, der mir als vertrauensvolle Quelle erschien (klar gibt's da wie überall auch ziemlichen Unsinn) und den ich bezahlen konnte. Ich stolperte über Pavlina Klemms Seminare. Sie brachte mir die Quantenheilung und vieles andere bei. 
 
-**Das klappte**!!! Wow, am liebsten wäre ich durch die Seminarräume gehüpft, hätte ein Indianergeheul losgelassen und jeden im Raum geknutscht. 
-
-Menschen fühlten sich plötzlich von mir unterstützt und wohler als vor der Begegnung mit mir. Unmittelbar!
+**Das klappte**!!! Wow, am liebsten wäre ich durch die Seminarräume gehüpft, hätte ein Indianergeheul losgelassen und jeden im Raum geknutscht. Menschen fühlten sich plötzlich von mir unterstützt und wohler als vor der Begegnung mit mir. Unmittelbar! Nicht erst, wenn vielleicht irgendwann ein Rechtsstreit zu gunsten des Mandanten (in meinem Fall Petenten) ausfiel. 
 
 # Neuer Berufsstart
 Auf meinen Wegen mit den unterschiedlichen Arten und Ursachen von Erschöpfung hatte ich mehr und mehr Wege gefunden, wie man
