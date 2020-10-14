@@ -5,7 +5,7 @@
 layout: default
 ---
 
-![Frontbild](/assets/2020-10-13-Frontbild.jpg)
+![Frontbild](/assets/Frontbild.jpg)
 
 <span>Photo by <a href="https://unsplash.com/@juanpoe?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Richard Price</a> on <a href="https://unsplash.com/s/photos/still-water?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
