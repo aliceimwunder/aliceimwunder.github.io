@@ -1,7 +1,7 @@
 ---
 title: Erprobte Wege aus Deinem Burnout
 ---
-!Erprobte Wege aus dem Burnout](/assets/2020-10-20-erprobte Wege aus dem Burnout.jpg)
+![Erprobte Wege aus dem Burnout](/assets/2020-10-20-meine erprobten Wege aus dem Burnout.jpg)
 
 Als ich im Burnout angekommen war, in dieser endlosen Schlaufe aus Erschöpfung, **wollte ich nur eins: so schnell wieder raus.** 
 
@@ -21,7 +21,13 @@ Damit gibt es auch nicht den einen Heilweg. Schön wärs: Nimm die eine Tablette
 
 ![Erprobte Wege aus dem Burnout](/assets/2020-10-20-Wege aus dem Burnout.svg)
 
-Ich weiß, das ist ziemlich viel für einen allein. Du hast Interesse, Dich unterstützen zu lassen? Ich habe mir immer Unterstützung gesucht. Persönliche Begleitung ist extrem hilfreich. Mit der Hilfe eines passenden Therapeuten bist Du viel schneller wieder auf den Beinen.
+Was hast Du ausprobiert? Was davon hat funktioniert? Was nicht? Vielleicht hast Du Lust, unten einen Kommentar zu hinterlassen. 
+
+Ich weiß zum Beispiel, dass ich zwischendurch auch Medikamente ausprobiert hatte. Bei mir waren es Antidepressiva. Die haben natürlich eine Wirkung. Ich würde sie die Scheiß-Egal-Pillen nennen. Zumindest diese Wirkung hatten sie bei mir. Dadurch fühlte ich mich zwar besser, weil ich mich nicht mehr so schlecht fühlte. Aber im eigentlich Sinne gut auch nicht. Die Nebenwirkungen waren der Hammer. 
+
+Medikamten können im Notfall sinnvoll sein. Sie lösen allerdings keine Ursache. Wie sollte das gehen? Ein Medikament teilt einem nicht mit, wann man mit einer Arbeit aufhören sollte, von wem man etwas mehr Abstand bräuchte, oder was genau einem mehr seelische Freude und Kraft bringen könnte. Im Gegenteil, dadurch, dass zumindest mir alles ziemlich egal unter den Medikamenten wurde, war mir auch egal, ob ich eigentlich noch Männlein oder Weiblein wäre. Dazu musste ich in den Spiegel schauen, um das noch zu wissen. Was ich gerne mache? Woher soll ich das wissen? Ist doch egal. Daher habe ich das nach den vorgesehenen sechs Monaten Mindesteinnahmezeit sofort wieder gelassen.   
+
+Du hast Interesse, Dich unterstützen zu lassen? Ich habe mir immer Unterstützung gesucht. Persönliche Begleitung ist extrem hilfreich. Mit der Hilfe eines passenden Therapeuten bist Du viel schneller wieder auf den Beinen.
 
 Wenn Du Dir von mir helfen lassen willst, dann buche Dir hier Deinen Termin. 
 
