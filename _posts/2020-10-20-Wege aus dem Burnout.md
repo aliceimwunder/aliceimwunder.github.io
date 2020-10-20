@@ -1,13 +1,14 @@
 ---
 title: Erprobte Wege aus Deinem Burnout
 ---
+!Erprobte Wege aus dem Burnout](/assets/2020-10-20-erprobte Wege aus dem Burnout.jpg)
 
 Als ich im Burnout angekommen war, in dieser endlosen Schlaufe aus Erschöpfung, **wollte ich nur eins: so schnell wieder raus.** 
 
 Nun war es gar nicht so einfach, beginnend mit: 
-- vor sich selbst zu akzeptieren, dass man gerade nicht mehr kann, 
-- die Unterstützung nahestehender Menschen einzuholen oder auf die Akzeptanz des Umfeldes zu verzichten, und 
-- so "rücksichtslos" zu werden, dass man sich den Raum und die Zeit für die Erholung nimmt. 
+- vor sich selbst akzeptieren, dass man gerade nicht mehr kann, 
+- die Unterstützung nahestehender Menschen einholen oder auf die Akzeptanz des Umfeldes verzichten, und 
+- so "rücksichtslos" werden, dass man sich den Raum und die Zeit für die Erholung nimmt. 
 
 Über: Welche Methoden sind effektiv? Das Internet, die Bücherregale sind voll von Tipps, bei denen wir selbst herausfinden dürfen, was davon für einen persönlich funktioniert.  Es ist ja nicht so, dass wir schon in der Schule das Wissen vermittelt bekämen, wie man Körper, Geist und Seele effizient auflädt.
 Im Gegenteil, alles in unserer Gesellschaft ist darauf angelegt, mehr Profit aus dem Dasein des Menschen herauszuholen. 
