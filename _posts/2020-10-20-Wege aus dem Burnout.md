@@ -33,5 +33,10 @@ Du hast Interesse, Dich unterstützen zu lassen? Ich habe mir immer Unterstützu
 
 Wenn Du Dir von mir helfen lassen willst, dann buche Dir hier Deinen Termin und wir klären gemeinsam, ob meine Unterstützung Dich weiterbringt. 
 
+Kostenloses Strategiegespräch buchen:
+[Termin buchen](https://alicewindolf.youcanbook.me)
+
+oder schreibe mir eine Email: alicewindolf[at]web.de
+
 
 
