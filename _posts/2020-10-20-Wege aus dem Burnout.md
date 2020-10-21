@@ -1,7 +1,7 @@
 ---
 title: Erprobte Wege aus Deinem Burnout
 ---
-![Erprobte Wege aus dem Burnout](/assets/2020-10-20-meine erprobten Wege aus dem Burnout.jpg)
+![Erprobte Wege aus dem Burnout](/assets/2020-10-20-meine erpobten Wege aus dem Burnout.jpg)
 
 Als ich im Burnout angekommen war, in dieser endlosen Schlaufe aus Erschöpfung, **wollte ich nur eins: so schnell wieder raus.** 
 
