@@ -1,5 +1,5 @@
 ---
-title: Erprobte Wege aus Deinem Burnout
+title: Wie Du aus einem Burnout herauskommst? Meine 10 erfolgversprechendsten Wege.
 ---
 ![Erprobte Wege aus dem Burnout](/assets/2020-10-20-meine erpobten Wege aus dem Burnout.jpg)
 
