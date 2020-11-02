@@ -194,7 +194,7 @@ Das Programm befindet sich gerade in der Überarbeitung. Also wenn Du dabei sein
 
 Nutze daher den Beta-Status des Programms und sei so günstig wie nie wieder dabei. 
 
-**[Großartig, ich buche hier mein kostenloses Vorgespräch.](https://alicewindolf.youcanbook.me)** 
+**[Hier geht es zum kostenlosen Vorgespräch](https://alicewindolf.youcanbook.me)** und wir schauen gemeinsam, ob das Programm gerade für Dich das Richtige ist. 
 
 
 # Woher ich weiß, dass das Programm funktionieren?
