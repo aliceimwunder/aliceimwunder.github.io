@@ -9,24 +9,20 @@ title: Aus der Asche des Burnouts - Mein Traumleben erschaffen
 
 Im Programm “Aus der Asche des Burnouts - Mein Traumleben erschaffen” geht es darum, Dich **aus der negativen Zeitschleife** von Erschöpfung, Überforderung und Sinn entleertem Leben herauszuholen. Dafür herauszufinden, **wofür Du Deine neue gewonnene Energie einsetzen** willst. 
 
-Nicht einfach nur so schnell wie möglich Energie herholen und ins alte Lebenssystem stecken.
+Nicht einfach nur so schnell wie möglich Energie herholen und ins alte Lebenssystem stecken. Das habe ich persönlich schon zwei Mal durchprobiert in meinem Leben und es war keine brillante Idee. 
 
-Die Krise zur Wandlung nutzen. 
-
-Herausfinden, was Dein eigener Lebenssinn für Dich bereit hält. 
-
-Werkzeuge, wie sich Deine Träume in Deiner Realität manifestieren. Ohne zu überfordern. 
+Stattdessen: Die Krise zur Wandlung nutzen! Herausfinden, was Dein eigener Lebenssinn für Dich bereit hält! Praktische Werkzeuge, wie sich Deine Träume in Deiner Realität manifestieren! Ohne zu überfordern. 
 
 Machbar aus dem, was schon ist - aus der Asche des Vorhandenen. 
 
 **4 Schritte sind dafür notwendig**: 
-- Altlasten auf allen Ebenen reduzieren.
+- Altlasten auf möglichst vielen Ebenen reduzieren.
 - Dich an Deine unerschöpflichen Energiequellen wieder anschließen.
 - Laserscharfen Fokus auf Deinen persönlichen Lebenssinn richten. 
 - Rhythmus entwickeln, Deine Träume passend zu Deinem Energielevel und in Deinem Tempo (dafür ohne Umwege) in die Realität umzusetzen.  
 
 #  Schritt für Schritt 
-- legst Du Dir eine effektive Selbstfürsorge- / daily Maintanance-Routine zu, die Dich auf ein neues Level an Lebensfreude und -energie, in eine ganz neue Dimension hebt. 
+- legst Du Dir mit diesem Programm eine effektive Selbstfürsorge- / daily Maintanance-Routine zu, die Dich auf ein neues Level an Lebensfreude und -energie, in eine ganz neue Dimension hebt. 
 - findest Du heraus, was Dir wichtig ist. 
 - gehst Du die ersten Schritte auf Deine Träume zu und lernst, zielgerichtet Deine Träume wahrwerden zu lassen. 
 
@@ -198,9 +194,9 @@ Großartig, ich buche hier mein kostenloses Vorgespräch.
 
 
 # Woher ich weiß, dass das Programm funktionieren?
-→ Weil Dir das Universum immer für Deinen Lebenssinn IMMER genug Energie zur Verfügung stellt! 
+→ Weil Dir das Universum für Deinen Lebenssinn IMMER genug Energie zur Verfügung stellt! Für etwas anderes leider nicht, auch wenn die Gesellschaft das noch sehr gerne hätte.  
 
-→ weil ich weiß, dass alle von mir verwandten Methoden weltweit zigfach erprobt sind und auf Herz und Niere geprüft sind!
+→ weil ich weiß, dass alle von mir verwandten Methoden weltweit zigfach erprobt sind und auf Herz und Niere geprüft sind! Ich habe sie auf ganz neue Art zusammengestellt - genau auf das Problem: Raus aus einem Burnout so schnell wie möglich. 
 
 → Du kannst es auch Deinen Lebenszweck, Deine Lebensaufgabe, Dein Potential, Deine seelischen Wünsche, Dein Traumleben nennen. Es wartet auf Dich! 
 
