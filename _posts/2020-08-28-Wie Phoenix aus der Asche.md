@@ -30,7 +30,7 @@ Machbar aus dem, was schon ist - aus der Asche des Vorhandenen.
 
 Bis mein Leben so war, wie ich es wollte - und es wird noch immer besser - von Tag zu Tag - in meinem Rhythmus. Auch ohne Hochleistungs-12h-Arbeitstage und Extremsport. 
 
-Ich weiß, wie das geht. 
+Ich weiß, wie das geht. [Mehr über mich.](/about/) 
 
 Das will ich Dir zeigen. Mein Wissen und Fähigkeiten mit Dir teilen. 
 
