@@ -23,7 +23,7 @@ Machbar aus dem, was schon ist - aus der Asche des Vorhandenen.
 - Altlasten auf allen Ebenen reduzieren.
 - Dich an Deine unerschöpflichen Energiequellen wieder anschließen.
 - Laserscharfen Fokus auf Deinen persönlichen Lebenssinn richten. 
-- Rhythmus entwickeln, Deine Träume passend zu Deinem Energielevel, entwickeln der Dich in Deinem Tempo dafür ohne Umwege an Deine Ziele führt.  
+- Rhythmus entwickeln, Deine Träume passend zu Deinem Energielevel und in Deinem Tempo (dafür ohne Umwege) in die Realität umzusetzen.  
 
 #  Schritt für Schritt 
 - legst Du Dir eine effektive Selbstfürsorge- / daily Maintanance-Routine zu, die Dich auf ein neues Level an Lebensfreude und -energie, in eine ganz neue Dimension hebt. 
