@@ -73,7 +73,10 @@ Du willst Erschöpfung gegen Lebensfreude und Leichtigkeit eintauschen. Ein Lebe
 - Es ist möglich mit konventionellen Methoden zur Burnout-Behandlung Energie zu schöpfen. Du läufst Gefahr, Deine frisch gewonnene Energie in Dein bisheriges Lebenssystem zu stecken. Doch wenn in Dir ein anderer Lebenszweck als bisher ruht, dann wird Deine Seele Dir das nächste Mal mit wesentlich mehr Nachdruck mitteilen, dass sie das so nicht mehr will. Glaub mir, ich habe es ausprobiert. Das macht keinen Spaß mehr. 
 
  
-**→ Im Zweifel: Das Hamsterrad dreht sich weiter.**
+**→ Im Zweifel: Das Hamsterrad dreht sich weiter.** Ein Hamsterrad sieht nur von innen aus wie eine Karriereleiter.  
+
+Buche Dir hier [Deinen Termin](https://alicewindolf.youcanbook.me) und wir schauen zusammen, ob mein Programm gerade für Dich passt. 
+
 
 
 # Dein Programm: Aus der Asche des Burnouts - Mein Traumleben erschaffen
@@ -196,7 +199,7 @@ Großartig, ich buche hier mein kostenloses Vorgespräch.
 # Woher ich weiß, dass das Programm funktionieren?
 → Weil Dir das Universum für Deinen Lebenssinn IMMER genug Energie zur Verfügung stellt! Für etwas anderes leider nicht, auch wenn die Gesellschaft das noch sehr gerne hätte.  
 
-→ weil ich weiß, dass alle von mir verwandten Methoden weltweit zigfach erprobt sind und auf Herz und Niere geprüft sind! Ich habe sie auf ganz neue Art zusammengestellt - genau auf das Problem: Raus aus einem Burnout so schnell wie möglich. 
+→ weil ich weiß, dass alle von mir verwandten Methoden weltweit zigfach erprobt und auf Herz und Niere geprüft sind! Ich habe sie auf ganz neue Art zusammengestellt - genau auf das Problem: Raus aus einem Burnout und zwar so schnell wie möglich - gepaart mit meiner Hellfühligkeit, mit der ich die Schwingung in Deinem Energiekörper anheben kann.  
 
 → Du kannst es auch Deinen Lebenszweck, Deine Lebensaufgabe, Dein Potential, Deine seelischen Wünsche, Dein Traumleben nennen. Es wartet auf Dich! 
 
