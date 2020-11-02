@@ -75,7 +75,7 @@ Du willst Erschöpfung gegen Lebensfreude und Leichtigkeit eintauschen. Ein Lebe
  
 **→ Im Zweifel: Das Hamsterrad dreht sich weiter.** Ein Hamsterrad sieht nur von innen aus wie eine Karriereleiter.  
 
-Buche Dir hier [Deinen Termin](https://alicewindolf.youcanbook.me) und wir schauen zusammen, ob mein Programm gerade für Dich passt. 
+Buche Dir hier [ein kostenloses Vorgespräch](https://alicewindolf.youcanbook.me) und wir schauen zusammen, ob mein Programm gerade für Dich passt. 
 
 
 
@@ -103,7 +103,8 @@ Am Anfang des Programms werde ich Dich bitten, Dir einen guten Entsafter und ein
 
 Du machst gerade eine Therapie? Oder gönnst Dir Massagen, Akupunktur oder ähnliches? Das ist  großartig und lässt sich mit diesem Programm sehr gut vereinbaren. Bitte übertreibe es nicht. Bei Burnout hilft viel nicht viel. Höre auf Deinen Körper!
 
-Cool, ich buche mir hier mein kostenloses Vorgespräch!
+**[Cool, ich buche mir hier mein kostenloses Vorgespräch!](https://alicewindolf.youcanbook.me)** 
+
 
 
 # 12 Wochen - 12 Module
@@ -193,7 +194,7 @@ Das Programm befindet sich gerade in der Überarbeitung. Also wenn Du dabei sein
 
 Nutze daher den Beta-Status des Programms und sei so günstig wie nie wieder dabei. 
 
-[Großartig, ich buche hier mein kostenloses Vorgespräch.](https://alicewindolf.youcanbook.me) 
+**[Großartig, ich buche hier mein kostenloses Vorgespräch.](https://alicewindolf.youcanbook.me)** 
 
 
 # Woher ich weiß, dass das Programm funktionieren?
