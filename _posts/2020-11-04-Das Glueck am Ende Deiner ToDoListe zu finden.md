@@ -30,6 +30,6 @@ Und daran ändert sich tatsächlich nichts, bis wir in die Kiste hüpfen (auch R
 
 Doch für manche wird es einfach zu viel. Und für die möchte ich Wege aufzeigen, wie man eher auf einer Welle reitet, als sich davon überspülen zu lassen und gnadenlos zu ersaufen. **Dann fühlt sich das Leben an, als würde man nur noch hinterrennen.** Dabei geht einem langsam die Puste aus. Da fehlen die Grenzen. Auf die To-Do-Liste gehört *erstens*, was man selbst für sich selbst erledigen will!!! Und dann ist die Antwort auf die Frage: Wie geht es Ihnen? nicht “Viel zu tun!” sondern Großartig!!! Ich mache tolle Dinge! Und *zweitens* nur eine begrenzte Anzahl an Dingen auf die to-do-Liste schreiben, die man *leider* mitmachen muss, weil es nicht anders geht (z.B. Steuererklärung, Schulpflicht nachkommen…). Diese zweite To-do-Liste muss kurz sein - also klare Grenzen setzen - sowohl sich selbst als auch anderen gegenüber. 
 
-Schwierigkeiten, dies sinnvoll zu gestalten? Dann hilft Dir vielleicht meine **[Magischen drei.](/2020/09/17/Coaching-die-magische-drei.html)**
+Schwierigkeiten, dies sinnvoll zu gestalten? Dann hilft Dir vielleicht meine **[Magischen drei](/2020/09/17/Coaching-die-magische-drei.html).**
 
 Und hier geht demnächst zu Teil 2 der Glücks am Ende von To-do-listen. 
