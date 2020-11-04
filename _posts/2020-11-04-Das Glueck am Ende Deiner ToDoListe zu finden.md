@@ -1,4 +1,3 @@
-
 ---
 title: Versuchst Du, Dein Glück am Ende Deiner To-Do-Liste zu finden?
 ---
@@ -7,13 +6,12 @@ title: Versuchst Du, Dein Glück am Ende Deiner To-Do-Liste zu finden?
 
 <span>Photo by <a href="https://unsplash.com/@sofiaguaico?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Sofia Guaico</a> on <a href="https://unsplash.com/s/photos/rainbow-mountain?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
-
-Dieser Text ist für Leute mit langen To-Do-Listen gedacht. Manche haben schon gar keine (mehr), sondern lassen sich einfach von dem Hin- und Herzerren, was gerade am meisten drückt. Schon weil es so überfordernd wäre, eine anständige To-Do-Liste zu schreiben und zu priorisieren. Das ist ein anderes Problem, das auch zu Burnout führen kann. Dazu ein späterer Post. 
+Dieser Text ist für Leute mit langen To-Do-Listen gedacht. Manche haben schon gar keine (mehr), sondern lassen sich einfach von dem Hin- und Herzerren, was gerade am meisten drückt. Weil es so überfordernd wäre, eine To-Do-Liste zu führen und sich gefühlt diesem Wahnsinn zu stellen? Das ist ein anderes Problem, das auch zu Burnout führen kann. Dazu ein späterer Post. 
 
 # Wie geht es Dir gerade?
-Hast Du auf die Frage “Wie geht es Ihnen?” schon mit “Viel zu tun!” geantwortet? Schön ist auch die Variante: “Man muss ja”! Oder “Ach, geht schon!”. Das sind typische Schönmalerereien, die wir benutzen. Eine ehrliche Antwort wäre vielleicht eher: “Überfordert”, “ständig Aufgaben am Hinterherrennen”. Das hingegen würde kaum einer zugeben. 
+Hast Du auf die Frage “Wie geht es Ihnen?” schon mit “Viel zu tun!” geantwortet? Schön ist auch die Variante: “Man muss ja”! Oder “Ach, geht schon!”. Das sind typische Schön-Schwarz-Malerereien, die wir benutzen. Eine ehrliche Antwort wäre vielleicht eher: “Überfordert”, “Ständig Aufgaben am Hinterherrennen”. Das hingegen würde kaum einer zugeben. Das Thema Überforderung ist und wir vermutlich auch sehr schambesetzt bleiben. 
 
-Klingt nicht so cool. 
+Klingt nicht so cool?
 
 Eine andere vielleicht ehrlichere Antwort könnte auch sein: “**Ich weiß nicht mehr, wie ich selber über meine Zeit bestimmen soll**, wie ich die Aufgaben in meinem Leben sinnvoll priorisiere. Mein Leben fließt mir durch die Hände - but not in a good way. Dabei gebe ich mein bestes!” 
 
@@ -21,10 +19,9 @@ Letztens habe ich dazu eine harte Bewertung gelesen. Wenn wir sagen: “Ich habe
 
 Das Wort “outbusying” fand ich genial. Das macht die deutsche Sprache dann doch nicht mit… Denn es deutet auf diese sehr auslaugende innere Einstellung hin “Ich bin nur etwas Wert, wenn ich Anerkennung von anderen bekomme - also besser bin als sie.”
 
-Eine andere auch nicht gerade nette, aber vielleicht ebenfalls die Wahrheit treffende Auslegung wäre: “Ich versuche **mit einer endlosen to-do-liste**, auf der jeder einzelne Punkte so aussieht, als wäre es überlebenswichtig, Anerkennung bei anderen zu bekommen.” 
+Eine weitere auch nicht gerade nette, aber vielleicht ebenfalls die Wahrheit treffende Auslegung wäre: “Ich versuche **mit einer endlosen to-do-liste**, auf der jeder einzelne Punkte so aussieht, als wäre es überlebenswichtig, Anerkennung bei anderen zu bekommen.” 
 
-Und wenn die endlose to-do-liste ohne Grenze doch eher Egoismus ist?
-Von dieser Seite betrachtet wäre man reichlichst egoistisch! Dabei war zumindest mein Selbstbild immer, dass meine to-do-liste fast vollständig von anderen vollgepfropft wurde, wie z.B. Geld verdienen (anderen nicht auf der Tasche liegen), eine akzeptable Wohnung vorweisen (damit sich Gäste und Familie wohlfühlen), meine Tochter zu ihren Nachmittagsveranstaltungen begleiten (meiner Tochter ein schönes Leben organisieren…) Ich war also im Aufopferungsmodus. Und der ist ja wohl nicht egoistisch???
+Und wenn die endlose to-do-liste ohne Grenze doch eher Egoismus ist? Von dieser Seite betrachtet wäre man reichlichst egoistisch! Dabei war zumindest mein Selbstbild immer, dass meine to-do-liste fast vollständig von anderen vollgepfropft wurde, wie z.B. Geld verdienen (anderen nicht auf der Tasche liegen), eine akzeptable Wohnung vorweisen (damit sich Gäste und Familie wohlfühlen), meine Tochter zu ihren Nachmittagsveranstaltungen begleiten (meiner Tochter ein schönes Leben organisieren…) Ich war also im Aufopferungsmodus. Und der ist ja wohl nicht egoistisch???
 
 Ich hielt mich in der Tendenz für altruistisch und nicht für einen Egomanen mit meiner Erschöpfung und den Erledigungen, die nie enden wollten. **Diese Auslegung wäre mir gar nicht in den Sinn gekommen. Wie siehst Du das?** Vielleicht magst Du dazu einen Kommentar unten hinterlassen. 
 
