@@ -28,7 +28,10 @@ Ich hielt mich in der Tendenz für altruistisch und nicht für einen Egomanen mi
 # Wir haben alle viel zu tun! 
 Und daran ändert sich tatsächlich nichts, bis wir in die Kiste hüpfen (auch Rentner sind meist extrem beschäftigt). Grundsätzlich: Wir sind nicht in dieses Leben gekommen, um 80 Jahre lang in einer Hängematte herumzuliegen und Cocktails zu schlürfen. Wir haben alle nur 24h pro Tag zur Verfügung. 
 
-Doch für manche wird es einfach zu viel. Und für die möchte ich Wege aufzeigen, wie man eher auf einer Welle reitet, als sich davon überspülen zu lassen und gnadenlos zu ersaufen. **Dann fühlt sich das Leben an, als würde man nur noch hinterrennen.** Dabei geht einem langsam die Puste aus. Da fehlen die Grenzen. Auf die To-Do-Liste gehört *erstens*, was man selbst für sich selbst erledigen will!!! Und dann ist die Antwort auf die Frage: Wie geht es Ihnen? nicht “Viel zu tun!” sondern Großartig!!! Ich mache tolle Dinge! Und *zweitens* nur eine begrenzte Anzahl an Dingen auf die To-Do-Liste schreiben, die man *leider* mitmachen muss, weil es nicht anders geht (z.B. Steuererklärung, Schulpflicht nachkommen…). Diese zweite To-Do-Liste muss kurz sein - also klare Grenzen setzen - sowohl sich selbst als auch anderen gegenüber. 
+Doch für manche wird es einfach zu viel. Und für die möchte ich Wege aufzeigen, wie man eher auf einer Welle reitet, als sich davon überspülen zu lassen und gnadenlos zu ersaufen. **Dann fühlt sich das Leben an, als würde man nur noch hinterrennen.** Dabei geht einem langsam die Puste aus. Da fehlen die Grenzen. Auf die To-Do-Liste gehört 
+
+1. was man selbst für sich selbst erledigen will!!! Und dann ist die Antwort auf die Frage: Wie geht es Ihnen? nicht “Viel zu tun!” sondern Großartig!!! Ich mache tolle Dinge! und 
+2. nur eine begrenzte Anzahl an Punkte auf die To-Do-Liste schreiben, die man *leider* mitmachen muss - angepasst an die eigenen Grenzen -, weil es nicht anders geht (z.B. Steuererklärung, Schulpflicht nachkommen…). Diese zweite To-Do-Liste muss überschaubar bleiben - also klare Grenzen setzen - sowohl sich selbst als auch anderen gegenüber. 
 
 Schwierigkeiten, dies sinnvoll zu gestalten? Dann hilft Dir vielleicht meine **[Magischen Drei](/2020/09/17/Coaching-die-magische-drei.html).**
 
