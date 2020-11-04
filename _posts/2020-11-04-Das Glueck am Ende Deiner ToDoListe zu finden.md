@@ -9,7 +9,7 @@ title: Versuchst Du, Dein Glück am Ende Deiner To-Do-Liste zu finden?
 Dieser Text ist für Leute mit langen To-Do-Listen gedacht. Manche haben schon gar keine (mehr), sondern lassen sich einfach von dem Hin- und Herzerren, was gerade am meisten drückt. Weil es so überfordernd wäre, eine To-Do-Liste zu führen und sich gefühlt diesem Wahnsinn zu stellen? Das ist ein anderes Problem, das auch zu Burnout führen kann. Dazu ein späterer Post. 
 
 # Wie geht es Dir gerade?
-Hast Du auf die Frage “Wie geht es Ihnen?” schon mit “Viel zu tun!” geantwortet? Schön ist auch die Variante: “Man muss ja”! Oder “Ach, geht schon!”. Das sind typische Schön-Schwarz-Malerereien, die wir benutzen. Eine ehrliche Antwort wäre vielleicht eher: “Überfordert”, “Ständig Aufgaben am Hinterherrennen”. Das hingegen würde kaum einer zugeben. Das Thema Überforderung ist und wir vermutlich auch sehr schambesetzt bleiben. 
+Hast Du auf die Frage “Wie geht es Ihnen?” schon mit “Viel zu tun!” geantwortet? Schön ist auch die Variante: “Man muss ja”! Oder “Ach, geht schon!”. Das sind typische Schön-Schwarz-Malerereien, die wir benutzen. Eine ehrliche Antwort wäre vielleicht eher: “Überfordert”, “Ständig Aufgaben am Hinterherrennen”. Das hingegen würde kaum einer zugeben. Das Thema Überforderung ist und wird vermutlich auch sehr schambesetzt bleiben. 
 
 Klingt nicht so cool?
 
@@ -30,6 +30,6 @@ Und daran ändert sich tatsächlich nichts, bis wir in die Kiste hüpfen (auch R
 
 Doch für manche wird es einfach zu viel. Und für die möchte ich Wege aufzeigen, wie man eher auf einer Welle reitet, als sich davon überspülen zu lassen und gnadenlos zu ersaufen. **Dann fühlt sich das Leben an, als würde man nur noch hinterrennen.** Dabei geht einem langsam die Puste aus. Da fehlen die Grenzen. Auf die To-Do-Liste gehört *erstens*, was man selbst für sich selbst erledigen will!!! Und dann ist die Antwort auf die Frage: Wie geht es Ihnen? nicht “Viel zu tun!” sondern Großartig!!! Ich mache tolle Dinge! Und *zweitens* nur eine begrenzte Anzahl an Dingen auf die to-do-Liste schreiben, die man *leider* mitmachen muss, weil es nicht anders geht (z.B. Steuererklärung, Schulpflicht nachkommen…). Diese zweite To-do-Liste muss kurz sein - also klare Grenzen setzen - sowohl sich selbst als auch anderen gegenüber. 
 
-Schwierigkeiten, dies sinnvoll zu gestalten? Dann hilft Dir vielleicht meine [Magischen drei. 
+Schwierigkeiten, dies sinnvoll zu gestalten? Dann hilft Dir vielleicht meine **[Magischen drei.](/2020/09/17/Coaching-die-magische-drei.html)**
 
 Und hier geht demnächst zu Teil 2 der Glücks am Ende von To-do-listen. 
