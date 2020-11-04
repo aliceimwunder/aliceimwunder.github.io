@@ -28,7 +28,7 @@ Das sieht so aus:
 3. **Session**: Wir schauen, wie nah Du Deinem Ziel gekommen bist. Was ist davon noch aktuell? Was hat sich in den letzten Wochen verändert? Was kann vertieft werden? Was hilft Dir am besten in der nächsten Zeit? Wir prüfen anhand Deines Ausgangspunktes aus dem Vorgespräch, was wir gemeinsam erreicht haben. Dadurch hast Du eine objektive Bewertungsgrundlage, was Dir das Coaching gebracht hat. 
 
 **Das kurze Intensiv-Programm eignet sich für Dich**, wenn Du
-- wenn Du Dich persönlich und ganz individuell begleiten lassen willst.
+- Dich persönlich und ganz individuell begleiten lassen willst.
 - gerne gezielt Ergebnisse für Dich erarbeitest. 
 - für Dich bestimmt hast, wo Du stehst und wo Du hinwillst. 
 - Du offen bist, schnell Änderungen vorzunehmen, Neues auszuprobieren. 
@@ -40,9 +40,11 @@ Das sieht so aus:
 - umfangreiche Unterstützung benötigst, z. B. weil sich mit Deinem Burnout gleichzeitig viele Baustellen auf einmal in Deinem Leben geöffnet haben. Dann ist [mein Programm über drei Monate](/2020/08/28/Wie-Phoenix-aus-der-Asche.html) besser geeignet, weil es viele Aspekte strukturiert aufgreift und Dich über längeren Zeitraum begleitet. 
 - wenig Lust hast, Neues auszuprobieren. Keine Sorge, alles, was wir angehen, ist auf einen Zustand im Burnout angepasst. Doch der Wille, neue Wege zu gehen und Unkonventionelles auszuprobieren, ist wichtig, um Veränderungen zu erreichen. 
 
-Persönliche Begleitung für positive Veränderung macht das Leben so viel einfacher. Denn das Problem unserer Zeit ist nicht Information. Informationen kannst Du Dir in meinem Blog, in Büchern und im www holen. Das ist kein Hindernis mehr. Die Schwierigkeit liegt vielmehr im Umsetzen allein zu Hause mit Burnout. Das ist eine enorme Herausforderung. Du kannst ehrlich stolz auf Dich sein, wenn Du wieder bei Kräften in Deinem selbstbestimmten Leben angekommen bist. Aber ehrlich gesagt, das kann Monate und Jahre dauern. Deine Lebenszeit ist zu schade, um sie mit Erschöpfung zu verbringen. 
+Persönliche Begleitung für positive Veränderung macht das Leben einfacher. Denn das Problem unserer Zeit ist nicht Information. Informationen kannst Du Dir in meinem Blog, in Büchern und im Internet holen. Das ist kein Hindernis mehr. Die Schwierigkeit liegt vielmehr im Umsetzen allein zu Hause mit Burnout. Das ist eine enorme Herausforderung. Du kannst ehrlich stolz auf Dich sein, wenn Du wieder bei Kräften in Deinem selbstbestimmten Leben angekommen bist. 
 
-Also hole Dir Deine Begleitung: 
+Ehrlich gesagt, das kann Monate und Jahre dauern. **Deine Lebenszeit ist zu schade, um sie mit Erschöpfung zu verbringen.** 
+
+Hol Dir Deine Begleitung: 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Termin buchen](https://alicewindolf.youcanbook.me)
