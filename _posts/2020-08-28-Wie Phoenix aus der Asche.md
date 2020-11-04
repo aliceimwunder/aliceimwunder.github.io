@@ -9,11 +9,11 @@ title: Aus der Asche des Burnouts - Mein Traumleben erschaffen
 
 Im Programm “Aus der Asche des Burnouts - Mein Traumleben erschaffen” geht es darum, Dich **aus der negativen Zeitschleife** von Erschöpfung, Überforderung und Sinn entleertem Leben herauszuholen. Dafür herauszufinden, **wofür Du Deine neue gewonnene Energie einsetzen** willst. 
 
-Nicht einfach nur so schnell wie möglich Energie herholen und ins alte Lebenssystem stecken. Das habe ich persönlich schon zwei Mal durchprobiert in meinem Leben und es war keine brillante Idee. 
+Nicht einfach nur so schnell wie möglich Energie herholen und ins alte Lebenssystem stecken. Das habe ich persönlich schon zwei Mal durchprobiert in meinem Leben (durch unterschiedliche Entspannungsmethoden neue Energie geschöpft und dann weiter im Text als wäre nichts gewesen) und es war keine brillante Idee! 
 
-Stattdessen: Die Krise zur Wandlung nutzen! Herausfinden, was Dein eigener Lebenssinn für Dich bereit hält! Praktische Werkzeuge, wie sich Deine Träume in Deiner Realität manifestieren! Ohne zu überfordern. 
+Stattdessen: Die Krise zur Wandlung nutzen. Herausfinden, was Dein eigener Lebenssinn für Dich bereit hält! Praktische Werkzeuge, wie sich Deine Träume in Deiner Realität manifestieren! Ohne zu überfordern. Verbinde mit mir das Effektivste aus Therapie, Wissenschaft und Spiritualität, um von innen heraus Dein Leben neu zu erfinden. In Deinem Tempo, Schritt für Schritt. Sind Deine bisherigen Überzeugungen, die Dein jetziges Leben füttern, wirklich wahr? Hattest Du nicht einmal ganz andere Träume?
 
-Machbar aus dem, was schon ist - aus der Asche des Vorhandenen. 
+Lebenswünsche in die Realität umsetzen - **machbar aus dem, was schon ist** - aus der Asche des Vorhandenen. 
 
 **4 Schritte sind dafür notwendig**: 
 - Altlasten auf möglichst vielen Ebenen reduzieren.
@@ -21,18 +21,17 @@ Machbar aus dem, was schon ist - aus der Asche des Vorhandenen.
 - Laserscharfen Fokus auf Deinen persönlichen Lebenssinn richten. 
 - Rhythmus entwickeln, Deine Träume passend zu Deinem Energielevel und in Deinem Tempo (dafür ohne Umwege) in die Realität umzusetzen.  
 
-#  Schritt für Schritt 
-- legst Du Dir mit diesem Programm eine effektive Selbstfürsorge- / daily Maintanance-Routine zu, die Dich auf ein neues Level an Lebensfreude und -energie, in eine ganz neue Dimension hebt. 
+# Schritt für Schritt 
+- legst Du Dir mit diesem Programm eine effektive Selbstfürsorge- / daily Maintanance-Routine zu, die Dich auf ein neues Level an Lebensfreude und -energie, in eine ganz neue Dimension hebt.
+- entziehst allem Energieraubenden Deine Aufmerksamkeit.
 - findest Du heraus, was Dir wichtig ist. 
 - gehst Du die ersten Schritte auf Deine Träume zu und lernst, zielgerichtet Deine Träume wahrwerden zu lassen. 
 
 *Zu mir:* In über 25 Jahren Erfahrung mit Burnout und einem Leben, das erst gar nicht, dann nur so ungefähr, dann ein bisschen zu mir passte, um sich dann in meinen persönlichen Lebenssinn zu wandeln, habe ich viel ausprobiert - sehr viel. 
 
-Bis mein Leben so war, wie ich es wollte - und es wird noch immer besser - von Tag zu Tag - in meinem Rhythmus. Auch ohne Hochleistungs-12h-Arbeitstage und Extremsport. 
+Bis mein Leben so war, wie ich es wollte - und es wird noch immer besser - von Tag zu Tag - in meinem Rhythmus. Auch ohne Hochleistungs-12h-Arbeitstage und Extremsport. Selbst ein 8h-Tag? Für meinen Körper eher nicht mehr. Und doch kann ich geht das. Und Du findest auch Deinen Weg. 
 
-Ich weiß, wie das geht. [Mehr über mich.](/about/) 
-
-Das will ich Dir zeigen. Mein Wissen und Fähigkeiten mit Dir teilen. 
+Ich weiß, wie das geht. [Mehr über mich.](/about/) Das will ich Dir zeigen. Mein Wissen und Fähigkeiten mit Dir teilen. 
 
 # Vielleicht geht es Dir auch so...
 Du willst endlich Dein Leben ändern, hast aber nicht die Energie dazu. Ausgebrannt! 
