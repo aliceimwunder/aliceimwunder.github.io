@@ -8,6 +8,8 @@ Du willst schnell und effizient aus **Burnout, Erschöpfung, Überforderung**, a
 
 Ich helfe Dir dabei. Ich arbeite gerne mit Menschen, die ganzheitliche Lösungen für sich suchen. Wissenschaftlich basiert und spirituell erweiterternd. 
 
+![ich](/assets/about-Portrait.png)
+
 Hier findest Du mein Angebot. 
 
 # Wer bin ich, Alice Windolf?
