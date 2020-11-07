@@ -9,6 +9,7 @@ Photo by Emma Dau on Unsplash
 
 Nur: Wenn Du wenig Energie hast, Du gerade sogar an einem Burnout herumlaborierst und Du so schnell wie möglich wieder auf die Beine kommen willst, dann gehört zum Energiemanagement dazu, Selbstkritik zu beenden. Denn Selbstkritik ist nicht nur **Selbstsabotage pur**, insgesamt entweicht Deine Lebensenergie. Oder um es mit den Worten von Andreas Goldemann zu sagen: Selbstkritik haut Dir Deinen ganzen Energiekörper zusammen! 
 
+
 ![ich](/assets/about-Protrait.png)
 
 ## Das Verhalten mit Hirnforschung erklärt
