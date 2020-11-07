@@ -9,7 +9,7 @@ Photo by Emma Dau on Unsplash
 
 Nur: Wenn Du wenig Energie hast, Du gerade sogar an einem Burnout herumlaborierst und Du so schnell wie möglich wieder auf die Beine kommen willst, dann gehört zum Energiemanagement dazu, Selbstkritik zu beenden. Denn Selbstkritik ist nicht nur **Selbstsabotage pur**, insgesamt entweicht Deine Lebensenergie. Oder um es mit den Worten von Andreas Goldemann zu sagen: Selbstkritik haut Dir Deinen ganzen Energiekörper zusammen! 
 
-![ich](/assets/about-Protrait-klein.jpg)
+![ich](/assets/about-Protrait-klein.png)
 
 ## Das Verhalten mit Hirnforschung erklärt
 Geht dieses Verhaltensmuster sehr tief, könnten dahinter Kindheitstraumata versteckt liegen. Der Fachbegriff dazu ist "komplexe Traumafolgestörung". Das ist *keine psychische Erkrankung* (man ist nicht gaga, schizo oder sonst wie komisch und man muss auch nicht im Kriegsgebiet dafür aufgewachsen sein), sondern es handelt sich um eine **Stressfolgeerkrankung** (da liegt der Zusammenhang zum Burnout), die sich sehr gut beheben lässt. 
