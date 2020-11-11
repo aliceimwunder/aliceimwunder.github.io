@@ -2,7 +2,9 @@
 title: Hilfe, mein Selbstwertgefühl leidet, weil ich mit einem Bein im Burnout stehe - Was nun?
 ---
 
-![](/assets/ .jpg)
+![Frau auf Hocker](/assets/2020-11-11-Frau auf Hocker.jpg)
+
+<span>Photo by <a href="https://unsplash.com/@avasol?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Ava Sol</a> on <a href="https://unsplash.com/s/photos/self-love?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 Du bist effektiv und schaffst Deinen Alltag. Wahrscheinlich mit Doppel- oder gar Dreifachbelastung. Nur leider fühlt sich das auf Dauer an wie ein Hamsterrad. Abarbeiten von To-Listen. Alltagsaufgaben. Argh, der Müll muss ja auch raus und die Rechnung bezahlt werden. Und dann kann auf Dauer sogar der Burnout stehen. Vielleicht stehst Du sogar schon mit Beiden Füßen drin und hast es noch gar nicht selbst realisiert. 
 
