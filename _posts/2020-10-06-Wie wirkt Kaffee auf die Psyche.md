@@ -9,7 +9,7 @@ Kaffee wirkt zunächst unmittelbar physisch. Hier geht es zum [Blog-Beitrag übe
 
 Koffein hat auch interessante psychische und soziale Folgewirkungen, die nicht alle vorteilhaft sind. 
 
-# Der Preis der Unfallgefahr
+## Der Preis der Unfallgefahr
 Wenn man seine Nebennieren mit viel Stress und noch mehr Kaffee auslaugt, dann hat das noch einen ganz anderen Preis, als nur Burnout. **Die Unfallgefahr steigt.** Sobald die Wirkung des Kaffees, vielleicht auch des Zuckers (oder sogar härterer Mittelchen), zum Wachwerden nachlässt, und Deine Nebennieren ohnehin schon völlig in den Seilen hängen, sinkt die Konzentration, manchmal sogar ins Bodenlose. 
 
 Etwas passiert. Das ist normal. Im Leben passiert immer irgendetwas. Doch der Körper kann nicht mehr wie gewohnt reagieren, um einen zu schützen. Keine Reserve mehr. Dann steigt man aus der Bahn und verknickt sich den Fuß so gründlich, dass man die nächsten sechs Wochen nicht auftreten kann. Dann schneidet man sich so beim alltäglichen Zitrone Aufschneiden, dass man sich in der Notaufnahme wiederfindet. Ich habe mir **irgendeine Variante eines Unfalls bei Stress** schon so oft erzählen lassen. Trotzdem scheint kaum einer wirklich diesem Fakt hart ins Gesicht schauen zu wollen. 
@@ -18,10 +18,10 @@ Wo man sonst einfach einen Schlenker mit dem Auto gemacht hätte und anschließe
 
 Wenn es nur Dich trifft, naja, dann würde ich sagen: Shit happens. Trifft es Dein Kind oder andere liebe Menschen, dann wirst Du es Dir vielleicht selbst nicht verzeihen können. 
 
-# Die Qualität der eigenen Entscheidungen sinkt
+## Die Qualität der eigenen Entscheidungen sinkt
 Nicht nur die Reaktionsfähigkeit Deines Körpers sinkt. Auch die Belastbarkeit des Großhirns ist geringer, wenn Du dauerhaft Deine Leistungsfähigkeit mit Koffein versuchst hochzuhalten. Die Qualität Deiner Entscheidungen wird schlechter. Den verzapften Mist musst Du zusätzlich zum Arbeitsstress ausbaden. Der Effekt, dass man nicht richtig denken kann (wenn man erschöpft und gestresst ist), wird durch genau das Mittel, mit dem man versucht, rauszukommen, verschärft - jedenfalls bei dauerhaftem Einsatz. Kaffee ist eben nicht nur ein Genussmittel sondern auch ein Nervengift und eine Droge. Meist beschönigt man sich die Ergebnisse selbst mit Mantren wie: Das Leben ist halt scheiße. Oder: Das liegt an meinem Karma. Oder: Der Kollege ist schuld, dass ich nicht richtig arbeiten kann. Mmh, da kann sich auf den Kopf stellen. Man hat sich die Fehler selbst eingebrockt. 
 
-# Das Ritual, sich auf ungeliebte Aufgaben einzustimmen.
+## Das Ritual, sich auf ungeliebte Aufgaben einzustimmen.
 Eine Homöopathin erzählte mir vor vielen Jahren, dass sie Kaffee in homöopathischer Dosis einsetzt. Für ihre Patienten, die ihr berichten, dass sie ständig Dinge tun, die sie eigentlich nicht wollen. Ach, dachte ich mir. Das ist interessant und beobachtete den Kaffeekonsum um mich.  **In welchen Situationen genau trinken Menschen Kaffee?** Z.B. der Urlauber in Süditalien. Schön am Strand baden, lecker Mittagessen und Nachmittags in der Strandbar sich einen Cappuccino mit Zeitung gönnen. Nee, der macht das vermutlich jetzt nicht, weil er zwangsweise Zeitung im Urlaub liest. Die Freundin, die zum Tratschen sich in einem Café trifft. Klingt auch nicht besonders gestresst. 
 
 Liest man im Internet ein bisschen nach, so hatte nicht jede Kultur früher Zugang zu koffeinhaltigen Stoffen. Die Kulturen, die es hatten, benutzten es für gewöhnlich zu Ritualen und Zeremonien. Es war kein großindustriell hergestelltes Massenprodukt, dass man sich literweise täglich einhalf. Als massentaugliche Droge konnte man es gar nicht einsetzen. Daher waren die jeweiligen Produkte eher etwas Heiliges. Davon sind wir heute weit entfernt. 
@@ -30,28 +30,28 @@ Doch die vielen Kollegen, die mir erklärten, sie machten sich erstmal eine Tass
 
 **Ein Ritual dient** dazu, durch wiederkehrende Handlungen ein kraftvolles Feld, ein wirkungsvolles Bewusstsein aufzubauen. In diesem Falle ist das Feld zwar sehr wirkungsvoll: die Vorbereitung auf etwas, worauf man keine Lust hat, um es dann doch zu tun. Das Perfide, die Spinne, die einen gefangen hält, ist man damit selbst. Die effektivste Art überhaupt, Menschen in Schach zu halten. Ist das bei Dir auch der Fall? **Zwischen kraftvoll und nachhaltig kraftgebend ist ein Unterschied.**  
 
-# Der soziale Effekt von Kaffee
+## Der soziale Effekt von Kaffee
 Wozu Kaffee aus meiner Perspektive auch dient: Es ist **ein soziales Bindemittel.** So, wie die Gespräche über Fußball. Man steht/sitzt im Büro zusammen und klönt kurz über irgendetwas und hat seinen Kaffee in der Hand. Nach dem Mittagessen mit den Kollegen gibt es einen gemeinsamen Kaffee, bei dem man noch mal ein bisschen vom Leder ziehen kann. Die Tasse in der Hand als gemeinsames Ritual. Er dient als Bindemittel und wird damit zum psychologischen **Transmissionsriemen zwischen dem Druck und Stress der Arbeit und den Menschen, die das aushalten und abarbeiten sollen**. 
 
 Dabei hat es viel mit der inneren Einstellung zu tun. Der Kollege, der pfeifend morgens ins Büro kam und der Meinung war, Menschen mit seiner Arbeit wirklich zu helfen. Der machte sich einen großen Pott Früchtetee. Damit er vernünftig denken könne. Mit Kollegen klönen konnte er problemlos ohne Kaffeebecher in der Hand. Ich hingegen hatte eine ganz ähnliche Aufgabe, konnte mir allerdings nicht so recht vorstellen, dass das irgendjemandem hilft. Schwupps war der Kaffee auf meinem Tisch. Damit ich mich motivieren konnte, überhaupt anzufangen. 
 
 Kaffee wird von allen Seiten beworben und **durch alle Gesellschaftsschichten getrunken.** Ob Reich, Arm, Links, Rechts, Identitär, männlich, weiblich oder nichts davon egal. Kaffee geht immer. Die Werbung "Herr... Der Kaffee ist fertig..." dürften alle in meinem Alter kennen. Egal ob man eher konservativ seinen Filterkaffee aus der guten alten deutschen Kaffeemaschine holt, ihn als Coldbrew zelebriert, oder sich überall den Coffee to go für unterwegs holt. Wenn es ein gemeinsames Moment in unserer Gesellschaft gibt, dann der Kaffeegenuss. Beschließt man, auf den eigenen Körper wegen Erschöpfung, Nervosität, Dauergestresst sein, mehr Acht zu geben und ihnn weniger mit Kaffee, schwarzem Tee oder Schokolade zu quälen, darf man sich auf einiges an sozialem Gegenwind gefasst machen. 
 
-# Zusammengefasst gefragt: 
+## Zusammengefasst gefragt: 
 Wann trinkst Du Kaffee? Wie viel Kaffee trinkst Du? Ist er gelegentlich dazu da, um nett in Urlaubsstimmung zu kommen, im Café zu plauschen oder doch eher im Dauereinsatz, um den ganzen Tag irgendwie mit all den ungeliebten Aufgaben durchzustehen? Bei letzterem hat Kaffee einen Preis. **Einen hohen Preis.** 
 
 Ohne Kaffee würdest Du vielleicht schon früher sagen: Es geht nicht mehr! Ich brauche eine Pause. Eine richtige. Sich auf **Kaffee als Stressbewältigungsgetränk** zu verlassen, ist keine gute Idee. Die Grube danach ist viel tiefer als ohne. 
 
 Daher meine persönliche Empfehlung - auch aus bitterer Erfahrung: Wenn Du im Burnout sitzt oder Dich gerade in hoher Geschwindigkeit darauf zubewegst, wäre es günstig Koffein wenigsten runterzufahren. Das steckt nicht nur im Kaffee. Auch in Schokolade, Kakao, grüner Tee, schwarzer Tee, Matcha, Guarana, Cola, Energydrinks und wahrscheinlich noch mehr koffeinhaltige Produkte, die ich nicht bedacht habe. Nein, auch die hippe, vegane Rohkostschokolade ist im Burnout keine gute Idee!
 
-# Wenn sich der Kaffee nicht verbannen lässt: Nimm Dir Zeit darüber nachzudenken
+## Wenn sich der Kaffee nicht verbannen lässt: Nimm Dir Zeit darüber nachzudenken
 Kaffee und die Produkte, in denen Koffein steckt, sind omnipräsent. Keiner denkt darüber nach, dass er gerade eine Droge, wenn auch keine harte im Sinne von Heroin oder Kokain, in der Hand hält. Nicht jeder will oder kann den Kaffeevorrat in der Küche von einem Tag auf den anderen wegschütten. Wie will man wieder zur Ruhe kommen? Schafft man den Tag ohne Kaffee? Und wenn denkbar wäre, ist Dir das Opfer des Kaffeeverlustes es wert? 
 
 Ich selbst habe es in den Hochphasen des Stresses auch mehr beobachtet. Zaungast in meinem eigenen Leben.Von Steuern war keine Rede mehr. (Sich nur noch als Zaungast im eigenen Leben zu fühlen, das dahinrast wie ein ICE ohne Bremsen ist ein ziemlich gutes Indiz für einen Weg in einen Burnout.) Erst als jeweils meine Zwangspause (Körper machte komplett schlapp) eintrat, war der Kaffee- und Schokokonsum mit das erste, was ich reduzierte. Erst heute, mehr als 25 Jahre nach meinem ersten Burnout verzichte ich zu 95% auf Kaffee. Nur hin und wieder schlürfe ich in Gesellschaft noch ein Tässchen dünnen Kaffee und stelle jedesmal fest: Wenn man ihn nicht gewohnt ist, meldet der Körper sehr direkt und präzise: nöööööh, die Wirkung will ich nicht! Muss das eigentlich sein?
 
 Wenn Du auf Kaffee verzichten willst, wofür tust Du das? Es ist so viel einfacher sich zu motivieren, wenn man genau weiß, wo man hin will. Auch wenn man das Ganze zunächst beginnt, um vom Punkt des Schmerzes wegzukommen. Wichtiger ist es, zu wissen, wo man hin will. 
 
-# Was geht, wenn Kaffee nicht mehr geht? 
+## Was geht, wenn Kaffee nicht mehr geht? 
 Einfach die Tasse Kaffee oder die Schokolade weglassen wird vermutlich nicht funktionieren. Denn Koffein ist eine Droge, wenn auch eine leichte. Es erfüllt so viele Funktionen, bei Erschöpfung die Stressbewältigung. Er holt den Kreislauf hoch. Manche bekommen ohne ihren Kaffee Kopfschmerzen oder Verstopfung. Es ist halt so: Er macht wacher, wenn man schon soooo müde ist. Er ist ein Ritual, um sich auf unangenehme Dinge vorzubereiten. Das gemeinsame Trinken soll Gemeinschaft mit den Kollegen stiften, wo aufgrund des Stresses es sonst schwierig würde, noch Gemeinsamkeit zu spüren.  
 
 Daher zu wissen, wofür Du ihn genau einsetzt, macht es leichter die Funktion des Kaffees im Leben zu ersetzen. Welche ist das genau? Diese Funktion wird nicht weggehen, nur weil man keinen Kaffee mehr trinken will. Es bedarf einer anderen Gestaltung. 

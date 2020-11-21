@@ -6,7 +6,7 @@ Du weißt, was Dich stresst? Du bist schon auf dem Weg aus Deinem Burnout, aber 
 
 Dann lass Dich begleiten. Zusammen geht es schneller. Meiner Erfahrung nach lassen sich einzelne Hindernisse, an denen man Monate und Jahre herumbeißen kann, mit persönlicher Begleitung innerhalb von wenigen Wochen spürbar verändern. 
 
-# Ich unterstütze Dich mit
+## Ich unterstütze Dich mit
 
 - **einem kostenfreien Vorgespräch** von ca. 20-30min, in dem wir zusammen prüfen, welche konkrete Blockade Dich auf Deinem Weg aus dem Burnout hindert. Wir klären, ob ich Dich gut unterstützen kann, so wie Du es gerade brauchst. Das Gespräch ist unverbindlich, sodass Du in Ruhe entscheiden kannst, ob ich die richtige Begleitung bin und womit Du Dich am besten unterstützt siehst. Wir klären Deine genaue Ausgangslage.
 - **3 Online-Sessions**. Jeweils ungefähr eine Stunde Raum nur für Dich. Jeweils mit ein bis zwei Wochen Abstand, um die Impulse ausreichend im Alltag integrieren zu können. 

@@ -21,7 +21,7 @@ Lebenswünsche in die Realität umsetzen - **machbar aus dem, was schon ist** - 
 - Laserscharfen Fokus auf Deinen persönlichen Lebenssinn richten. 
 - Rhythmus entwickeln, Deine Träume passend zu Deinem Energielevel und in Deinem Tempo (dafür ohne Umwege) in die Realität umzusetzen.  
 
-# Schritt für Schritt 
+## Schritt für Schritt 
 - legst Du Dir mit diesem Programm eine effektive Selbstfürsorge- / daily Maintanance-Routine zu, die Dich auf ein neues Level an Lebensfreude und -energie, in eine ganz neue Dimension hebt.
 - entziehst allem Energieraubenden Deine Aufmerksamkeit.
 - findest Du heraus, was Dir wichtig ist. 
@@ -33,7 +33,7 @@ Bis mein Leben so war, wie ich es wollte - und es wird noch immer besser - von T
 
 Ich weiß, wie das geht. [Mehr über mich.](/about/) Das will ich Dir zeigen. Mein Wissen und Fähigkeiten mit Dir teilen. 
 
-# Vielleicht geht es Dir auch so...
+## Vielleicht geht es Dir auch so...
 Du willst endlich Dein Leben ändern, hast aber nicht die Energie dazu. Ausgebrannt! 
 
 Du hast den Blick für das, was Du Dir zutiefst wünschst, nie gehabt oder schon lange verloren - Leere in Deinem Leben hat sich ausgebreitet, obwohl Deine Tage bis oben hin voll gepackt sind. 
@@ -45,7 +45,7 @@ Du willst auf keinen Fall akzeptieren, dass diese negative Hamsterradschleife vo
 Du willst Erschöpfung gegen Lebensfreude und Leichtigkeit eintauschen. Ein Leben haben, für das du jeden Morgen dankbar bist. 
 
 
-# Aus der Asche des Burnouts - Mein Traumleben erschaffen
+## Aus der Asche des Burnouts - Mein Traumleben erschaffen
 
 *Was macht den Unterschied?*
 
@@ -78,7 +78,7 @@ Buche Dir hier [ein kostenloses Vorgespräch](https://alicewindolf.youcanbook.me
 
 
 
-# Dein Programm: Aus der Asche des Burnouts - Mein Traumleben erschaffen
+## Dein Programm: Aus der Asche des Burnouts - Mein Traumleben erschaffen
 
 verbindet die besten Selbsthilfe-Tools aus Coaching, Psychologie, Naturheilkunde, Ernährungsberatung, Energiemedizin und Spiritualität: 
 
@@ -89,7 +89,7 @@ verbindet die besten Selbsthilfe-Tools aus Coaching, Psychologie, Naturheilkunde
 - Alles für zu Hause und auf Deinem Sofa. 
 
 
-# Zauberformel bei Burnout: Zeit nehmen
+## Zauberformel bei Burnout: Zeit nehmen
 Du benötigst Zeit!, um eine tiefe innere Erschöpfung, wie Burnout, zu heilen! Bitte Nimm Sie Dir!
 Es wäre gut, wenn Du Dir drei Monate oder sogar länger frei von Arbeit schaufeln könntest (die einfachste Methode bei Burnout ist für gewöhnlich: durchgängige Krankschreibung.)
 
@@ -106,7 +106,7 @@ Du machst gerade eine Therapie? Oder gönnst Dir Massagen, Akupunktur oder ähnl
 
 
 
-# 12 Wochen - 12 Module
+## 12 Wochen - 12 Module
 **1. Woche: Get ready**
 
 - Coachingcall zum Fahrplan auf Teilnehmerbedürfnisse einstellen
@@ -186,7 +186,7 @@ Du machst gerade eine Therapie? Oder gönnst Dir Massagen, Akupunktur oder ähnl
 - Manifestieren als tägliche day-to-day Erfahrung
 
 
-# Beta-Status - der Preis
+## Beta-Status - der Preis
 Das Programm befindet sich gerade in der Überarbeitung. Also wenn Du dabei sein willst, dann kannst Du jederzeit Wünsche und Interessen äußern, wie es besser laufen kann und was noch großartiger werden kann. Feedback ist erwünscht. Flexibilität soll Dir dienen. 
 
 **Kosten: 720,- €**, zahlbar in drei Monatsraten à 240,- €. Der Preis wird so nicht bleiben können. 
@@ -196,7 +196,7 @@ Nutze daher den Beta-Status des Programms und sei so günstig wie nie wieder dab
 **[Hier geht es zum kostenlosen Vorgespräch](https://alicewindolf.youcanbook.me)** und wir schauen gemeinsam, ob das Programm gerade für Dich das Richtige ist. 
 
 
-# Woher ich weiß, dass das Programm funktionieren?
+## Woher ich weiß, dass das Programm funktionieren?
 → Weil Dir das Universum für Deinen Lebenssinn IMMER genug Energie zur Verfügung stellt! Für etwas anderes leider nicht, auch wenn die Gesellschaft das noch sehr gerne hätte.  
 
 → weil ich weiß, dass alle von mir verwandten Methoden weltweit zigfach erprobt und auf Herz und Niere geprüft sind! Ich habe sie auf ganz neue Art zusammengestellt - genau auf das Problem: Raus aus einem Burnout und zwar so schnell wie möglich - gepaart mit meiner Hellfühligkeit, mit der ich die Schwingung in Deinem Energiekörper anheben kann.  

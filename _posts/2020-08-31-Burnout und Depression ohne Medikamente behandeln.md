@@ -6,7 +6,7 @@ title: Lassen sich Burnout und Depression ohne Medikamente behandeln?
 
 <span>Photo by <a href="https://unsplash.com/@anthonytran?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Anthony Tran</a> on <a href="https://unsplash.com/s/photos/sadness?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
-# Ja klar geht das. 
+## Ja klar geht das. 
 Vorab gesagt, Burnout gilt nicht als Krankheit. Warum? Dazu in einem späteren Post. Depression ist eine Krankheit. Sie tritt in verschiedenen Schweregraden auf. Bei sehr schweren Verläufen kann die Alltagsbewältigung erheblich leiden. Dann bedarf es möglicherweise stärkerer Intervention. Vielleicht sogar den Aufenthalt in einer Akutklinik. 
 
 Ich vermute, wenn Du diesen Post gefunden hast, dass Du nicht an einer schweren Depression leidest. Denn dann wird die Antriebslosigkeit meist sehr belastend. Dann wird es zumindest schwierig, dass Internet nach Möglichkeiten abzusuchen, um Wege für sich aus Burnout und Depression selbstverantwortlich zu erkunden. 
@@ -15,12 +15,12 @@ Bei leichter bis mittelgradiger Depression ist winw Heilung ohne Medikamente gut
 
 Doch was tun, wenn Erschöpfung und Burnout vielleicht von einer Depression begleitet wird? Ich hatte das Thema auch. Meine Lebensqualität war vom Ende der Schulzeit bis zum Ende meiner Ausbildung phasenweise eingeschränkt, ohne dass ich es damals hätte benennen können. 
 
-# Was habe ich gemacht?
+## Was habe ich gemacht?
 Am Anfang habe ich erstmal nix gemacht - nur vor mich hin gelitten. Mit Anfang 20 bin ich nicht auf die Idee gekommen, dass ich unter Depressionen leiden könnte, obwohl ich bei meiner Mutter heftige Depressionsschübe hatte beobachten dürfen. Die Verbindung hat mein Hirn höchstens intellektuell gezogen. Das könnte so aussehen, wie bei meiner Mutter? Naja, weggucken hilft bestimmt. Andere in meiner Umgebung fiel es eher auf. Z.B. hatte eine Kommilitonin meinen Zustand netterweise so ausgedrückt: “Wir haben ja alle unsere schlechten Phasen, aber bei Dir muss man dann echt auf Tauchstation gehen. Das ist ja übel.”  
 
 Zu Beginn der Berufstätigkeit wurde das Problem drängender. Die Mutter einer Freundin war Psychiaterin. Meine Freundin schickte mich zu ihr. Also habe ich brav gemacht, was viele tun. Mir ein Antidepressivum verschreiben lassen. Das hatte aus meiner Perspektive **krasse Nebenwirkungen**: Kopfschmerzen, Schwindel. Ich wechselte das Medikament. Beim nächsten verlor ich mein Körpergefühl und mein emotionals Erleben. Ich musste in den Spiegel schauen, ob ich nun männlich oder weiblich bin. Ziemlich gruselig... Ein Familienmitglied, ebenfalls mit dem Thema Depression, berichtete von ähnlichen Nebenwirkungen mit seinen Medikamenten. Na danke. Nach der absolut vorgesehenen Mindesteinnahmezeit von 6 Monaten schmiss ich das Zeug an die Wand. 
 
-# Lesen bringt Bildung
+## Lesen bringt Bildung
 Ich ging auf die Suche und fand damals ein Buch: Depression ohne Medikamente behandeln (oder so ähnlich, ist 15 Jahre her). Damit begann meine Reise. Dort wurden die Klassiker empfohlen, die die meisten beim Thema Depression heute schon einmal gehört haben: 
 
 - Sport (ging nicht wegen Burnout - war für meinen Bruder, der keinen Burnout hatte, lebensrettend). 
@@ -29,7 +29,7 @@ Ich ging auf die Suche und fand damals ein Buch: Depression ohne Medikamente beh
 
 In dem Buch standen noch mehr Tipps, z.B. auch dass alte seelische Verletzungen Depressionen auslösen können. Das probierte ich aus: Bei mir war EMDR aus dem Bereich Traumatherapie der Einstieg in den Ausstieg aus Depressionen. 
 
-# Meist sind es verschiedene Ursachen, die zu Depression führen.
+## Meist sind es verschiedene Ursachen, die zu Depression führen.
 Folgendes kann zur Depression beitragen: 
 1. **Ungesunde Ernährung**: die manches zu viel enthält (z.B. Fett, weißer Zucker, Gluten, Herbizide, Pestizide, Insektiziede, Farbstoffe, Konservierungsstoffe, Zuckerersatzstoffe...) und zu wenig von dem, was das Gehirn braucht (Vitamin B12, Elektrolyte, gesunde Zuckerarten und Omega3-Fettsäuren).
 2. **Umweltgifte**: können den sehr empfindlichen Neurotransmitterhaushalt des Gehirns stören. Manche Gifte hat man schon geerbt. Überhaupt ist es ziemlich einfach, an Gifte aller Art heranzukommen. Putzmittel, Waschmittel, Abgase, belastetes Trinkwasser auf Reisen, Wasser aus Plastikflaschen, Alufolie, Duftkerzen... 
@@ -42,7 +42,7 @@ Folgendes kann zur Depression beitragen:
 Fallen Dir noch mehr Ursachen ein? Dann gerne unten einen Kommentar hinterlassen. 
 
 
-# Jetzt das Spannende: Was hilft?
+## Jetzt das Spannende: Was hilft?
 1. Die **Ernährung umstellen**. Dass Konservierungs- und Farbstoffe, Geschmacksverstärker und Zuckerersatzstoffe ungesund sind, wissen die meisten. Hier gibt es noch ein paar andere Fallen zu beachten. Die größte ist leider Eier. Wenn man in einer Depression hängt, dann bitte darauf verzichten. 
 2. Umweltgifte lassen sich sicherlich nicht vollständig vermeiden. Dazu hat der Mensch seine Umgebung schon zu sehr ruiniert. Hier steht das Thema, **das Vermeiden, was geht.** D.h., alles rauswerfen, was geht (konventionelle: Waschmittel, Weichspüler, Kosmetika, Parfüms, Shampoos, Putzmittel, Zahnpasta etc...,) und auf so wenig wie möglich und so bio wie möglich umstellen. So wenig Zeit wie möglich auf Tankstellen und stark befahrenen Kreuzungen aufhalten und sich ein geeignetes Entgiftungsprogramm suchen. Ich habe den **Heavy Metall Detox Smoothie** ausprobiert. Er funktioniert. Konnte sogar meine Ärztin bestätigen, da die Blutwerte für Schwermetalle tatsächlich runtergingen. Fett fordert die Leber bei der Verdauung. Solange sie mit Fettspaltung beschäftigt ist, kann sie nicht entgiften. Hilfreich ist es daher, das Frühstück längerfristig fettfrei zu halten. Für die meisten wäre es sehr schwierig, mehrere Tage oder sogar Wochen am Stück auf Fett zu verzichten. Daher kann so ein sanftes längeres Vorgehen eine Alternative zu echtem Fasten sein. 
 3. Bei alten seelischen Verletzungen setzt **Traumatherapie** an. (Es gibt sie in unterschiedlichen Ansätzen - den für sich passenden raussuchen). Muss man leider häufig selbst bezahlen. Dafür kann man Glück haben und muss nicht monatelang auf einen Platz warten.
@@ -53,7 +53,7 @@ Fallen Dir noch mehr Ursachen ein? Dann gerne unten einen Kommentar hinterlassen
 
 Neben diesen Punkten hilft noch **Brain-Heart-Coherence**. Hier findest Du [eine kurze Beschreiung](/). Und wie gesagt: **Meditation** hilft auch, wenn man die passende Methode für sich gefunden hat. Ich unterrichte eine sehr sanfte Variante, die dazu dient, täglich den Stress aus dem Gehirn abzubauen. Langsam aber stetig. Dauert zwar, dafür absolut verlässlich. Du findest auch in jeder größeren Yoga-Schule oder der vhs Kurse zu Meditation. Viele Akutkliniken bieten dies ebenso an.
 
-# Depression ist ohne Medikamente heilbar!
+## Depression ist ohne Medikamente heilbar!
 Nicht über Nacht. Nicht ohne eigenes Tun. **Dafür nachhaltig ohne Nebenwirkungen der Medikamente.** Und vor allem: Du kannst so rock-solid in Dir werden, dass Du insgesamt viel glücklicher und resilienter in Deinem Leben wirst. 
 
 Die Liste in diesem Beitrag erhebt nicht den Anspruch, in irgendeiner Weise abschließend oder absolut wahr zu sein. Soweit Du Dich gerade in einer extremen emotionalen Lage befindest und von den vielen Inspirationen aus dem Internet nichts umsetzbar erscheint, dann nimm Dich bitte ernst. Geh zum entsprechenden Psychiater oder Therapeuten oder suche eine Akutklinik auf. 

@@ -12,7 +12,7 @@ Habe ich zu viel Stress, fühlt es sich bei mir inzwischen so an, als ob mein Hi
 
 Wie kommt es zu diesen Aussetzern? Bis hin zu, dass man im Burnout landet und weitestgehend außer Gefecht gesetzt ist? 
 
-# Unser Steinzeitgehirn, der Körper und wie es bei Stress reagiert
+## Unser Steinzeitgehirn, der Körper und wie es bei Stress reagiert
 Gehen wir, sagen wir 100.000 Jahre, in der Geschichte zurück - die genaue Zahl ist nicht so relevant. Mit Jagen und Sammeln verbrachten unsere Vorfahren eine sehr lange Zeit. 
 
 Nun springt ein Raubtier springt aus dem Busch, größer/schneller als wir selbst. 
@@ -42,20 +42,20 @@ Der körperliche Schutz unseres Vorfahre stand an allererster Stelle.
 Gegen dieses Reaktionsmuster kannst Du auch heute nicht gegen *andenken*. Insofern kannst Du in stressigen Situation nicht sinnvoll denken. Der Autoschlüssel bleibt verschwunden, die Brille in der Hand ist nicht auffindbar. Wenn das eigene Kind das 25. Mal in der Minute Mama oder Papa gerufen hat, dann ist das nicht mehr niedlich (was es tatsächlich ist), es lässt Dich nur noch schreien. 
 
 
-# Heutige Stressauslöser und ihre Wirkung
+## Heutige Stressauslöser und ihre Wirkung
 Leider nimmt der Körper und unser Energiesystem (Meridiane etc.) **viel mehr als Angriff wahr, als tatsächlich Säbelzahntiger vorbeikommen**. Manchmal brauchen wir diese Art von Reaktionsfähigkeit noch. Wenn ein Auto unvorhergesehen auf Dich zukommt. Instinktiv wegspringen oder Bremsen wie blöd ohne nachzudenken ist dann die beste Lösung. 
 
 Unser Leben hat sich viel schneller verändert als unsere Physiologie. Unser Alltag bombardiert uns förmlich mit Stressauslösern, die nichts mit Überleben zu tun haben, jedoch so im Gehirn wahrgenommen werden: Die Email, dass der Chef bis zum Mittag das Dossier fertig haben will. Die Bilder der Nachrichten über Bombenangriffe. Die Zahlen zu den Corona-Infektionen. Die Arbeitsverdichtung. Der Brief über den Zahlungsverzug. Die Enge des täglichen Berufsverkehrs. Die x. Überstunde. Die Angst vor Arbeitslosigkeit. Der Trotzanfall unseres Nachwuchses an der Supermarktkasse ...
 
 
-# Das Ergebnis - Der Körper steht unter Dauerstress.
+## Das Ergebnis - Der Körper steht unter Dauerstress.
 Wir können lernen, mit Stressauslösern sinnvoller umzugehen. Denn einen Vortrag zu halten, während man aufs Klo besuchen müsste plus Schweißausbrüche und vor dem Publikum wegrennen wollen ist keine Hilfe. So hält niemand einen großartigen Vortrag. Man fühlt sich nur völlig ausgelaugt hinterher. 
 
 Unsere in diesen Breitengraden **üblichen Erziehungs- und Ausbildungsmethoden bringen uns nicht weiter**. Eher im Gegenteil, vieles macht es schlimmer, wie etwa LehrerInnen bauen sich vor den Tischen der SchülerInnen auf, die dort viel niedriger sitzen und schnauzen sie an. Hat die Wirkung, als ob ein Raubtier vor ihnen stünde. Stundenlanges Sitzen im Unterricht. Dann stauen sich die Stresshormone im Körper der Kinder und Jugendlichen. 
 
 Wie man das eigene Nervensystem resilienter macht? Na, vielleicht, wenn der Sportlehrer richtig gut wäre und sehr viel Freude in die Bewegung brächte. Oder wenn die Bezugspersonen ihre Kinder konsequent in den Arm nähmen. Liebevoller Hautkontakt macht das Nervensystem von Kinder und später den Erwachsenen resilienter. Bei uns sind hübsche Sätze der (Groß)Eltern wie “Jetzt reiß Dich mal zusammen!” “Ein Indianer kennt kein Schmerz!” “Hab Dich doch nicht so!” leider viel typischer. Die helfen definitv nicht, um das eigene Nervensystem resilienter zu machen, auch wenn sie so gemeint sind. 
 
-# Die Wirkung von Dauerstress
+## Die Wirkung von Dauerstress
 Das Stresssystem des Körpers ist für kurzzeitiges Hochfahren gedacht. Du kannst dir vermutlich aus der Aufzählung oben ausrechnen, was passiert, wenn man unter dauerhaftem Stress steht. Vermutlich liest Du diesen Blogpost, weil Du die Wirkung am eigenen Körper mehr spürst als Dir lieb ist. 
 
 **Mit Dauerstress wird dauerhaft der Körper mit Säure gespült**:
@@ -74,7 +74,7 @@ Aus ganzheitlicher Sicht: nicht nur Dein Körper wird in der Stressreaktion geba
 
 <span>Photo by <a href="https://unsplash.com/@ny3ll199x?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Iwona Pytlowska</a> on <a href="https://unsplash.com/s/photos/stillness?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
-# Was kannst Du tun?
+## Was kannst Du tun?
 Im Grunde alles, was Deinen Körper Entspannung bringt. Du kannst zusammen mit Deinem Körper lernen, wie sinnvolle Reaktionen auf Herausforderungen aussehen. In der Traumatherapie gibt es dazu ein sehr schönes Bild. Im “window of tolerance” bleiben. Der Körper bleibt flexibel und leistungsfähig, ohne in Kampf oder Flucht überzugehen. Nach der vollbrachten Leistung fährt er wieder runter und Du kannst Dich wieder in einem vernünftigen Zeitfenster erholen. Ich weiß, es fühlt sich nicht so an, aber ohne Stressreaktion bist Du tatsächlich leistungsfähiger. 
 
 Hier im Blog findest Du viele Ideen. Wenn Du gezielt und schnell aus diesem Teufelskreis aussteigen willst, dann lass Dich persönlich von einem Coach oder Traumatherapeut begleiten. 

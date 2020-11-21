@@ -8,7 +8,7 @@ title: Versuchst Du, Dein Glück am Ende Deiner To-Do-Liste zu finden?
 
 Dieser Text ist für Leute mit langen To-Do-Listen gedacht. Manche haben schon gar keine (mehr), sondern lassen sich einfach von dem Hin- und Herzerren, was gerade am meisten drückt. Weil es so überfordernd wäre, eine To-Do-Liste zu führen und sich gefühlt diesem Wahnsinn zu stellen? Das ist ein anderes Problem, das auch zu Burnout führen kann. Dazu ein späterer Post. 
 
-# Wie geht es Dir gerade?
+## Wie geht es Dir gerade?
 Hast Du auf die Frage “Wie geht es Ihnen?” schon mit “Viel zu tun!” geantwortet? Schön ist auch die Variante: “Man muss ja”! Oder “Ach, geht schon!”. Das sind typische Schön-Schwarz-Malerereien, die wir benutzen. Eine ehrliche Antwort wäre vielleicht eher: “Überfordert”, “Ständig Aufgaben am Hinterherrennen”. Das hingegen würde kaum einer zugeben. Das Thema Überforderung ist und wird vermutlich auch sehr schambesetzt bleiben. 
 
 Klingt nicht so cool?
@@ -25,7 +25,7 @@ Und wenn die endlose To-Do-Liste ohne Grenze doch eher Egoismus ist? Von dieser 
 
 Ich hielt mich in der Tendenz für altruistisch und nicht für einen Egomanen mit meiner Erschöpfung und den Erledigungen, die nie enden wollten. **Diese Auslegung wäre mir gar nicht in den Sinn gekommen. Wie siehst Du das?** Vielleicht magst Du dazu einen Kommentar unten hinterlassen. 
 
-# Wir haben alle viel zu tun! 
+## Wir haben alle viel zu tun! 
 Und daran ändert sich tatsächlich nichts, bis wir in die Kiste hüpfen (auch Rentner sind meist extrem beschäftigt). Grundsätzlich: Wir sind nicht in dieses Leben gekommen, um 80 Jahre lang in einer Hängematte herumzuliegen und Cocktails zu schlürfen. Wir haben alle nur 24h pro Tag zur Verfügung. 
 
 Doch für manche wird es einfach zu viel. Und für die möchte ich Wege aufzeigen, wie man eher auf einer Welle reitet, als sich davon überspülen zu lassen und gnadenlos zu ersaufen. **Dann fühlt sich das Leben an, als würde man nur noch hinterrennen.** Dabei geht einem langsam die Puste aus. Da fehlen die Grenzen. Auf die To-Do-Liste gehört 

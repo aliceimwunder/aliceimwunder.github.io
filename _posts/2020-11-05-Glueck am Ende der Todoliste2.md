@@ -7,7 +7,7 @@ title: Wenn am Ende Deiner To-Do-Liste das Glück NICHT zu finden ist? Was dann.
 <span>Photo by <a href="https://unsplash.com/@marselojur1?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Marselo Jurado</a> on <a href="https://unsplash.com/s/photos/rainbow-sky?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 
-# Wie komme ich nun aus dem Gefühl des ständig beschäftigt sein zu müssen heraus?
+## Wie komme ich nun aus dem Gefühl des ständig beschäftigt sein zu müssen heraus?
 **Schritt eins:** Reflektieren, wie viel von dem Gefühl, ich muss unbedingt x, y, z erledigen und das und das..., ist aus Dir heraus entstanden? Was davon ist eher eine Art Massenhypnose? Kollektiv wird in Deutschland das **immer Beschäftigt sein als die Norm** schlechthin angesehen. Dann bist Du ein guter Mensch. Das ganze Arbeitswelt ist darauf ausgelegt. Wenn Du z.B. als Angestellter Deine Aufgaben auf Arbeit nach 6h erledigt hättest und einfach nach Hause gingest, würde das ziemlichen Ärger geben. Der Witz Selbständig sein heißt: Selbst und ständig arbeiten! kommt auch nicht von ungefähr. Schau mal, ob Du **diese kollektiven Glaubenssätze für Dich entglorifizieren** kannst… 
 
 **Schritt zwei:** Kannst Du aufhören, diesen **Zustand: es ist wichtig, permanent etwas zu erledigen**, als sinnvolle Messlatte für Dich persönlich zu erachten? Wenn andere Menschen weiterhin kollektiv ans “Schaffe, schaffe, Häusle baue!” glauben, dann ist es ihr gutes Recht. **Wer sich nicht permanent erschöpft fühlt, hat im Zweifel ohnehin kein Mitgefühl für Dich.** Isso. Wenn ich da noch an die Kommentare meiner früheren KollegInnen über chronisch erkrankte KollegInnen denke… Das war nicht freundlich. Es steht immer die Möglichkeit offen, sich selbst innerlich in den Arm zu nehmen und sich das notwendige Mitgefühl zu geben. Die Messlatte anderer nicht mehr auf Dich anwenden ist eine riesige Erleichterung. Gerade diese innere Einstellung im Turbotempo zu wandeln hat sich für mich innere Kindheilung aus der Traumatherapie und Quantenheilung als direktester Weg herausgestelt. 
@@ -24,19 +24,19 @@ Diesen einen Post-it mit nur drei kleinen Mini-Punkten klebst Du Dir da hin, wo 
 
 **Schritt sieben:** Innere Lebensfreude sofort erschaffen. Nicht mit der eigenen Lebensfreude warten, bis die To-Do-Liste abgearbeitet ist bzw. die Energie überhaupt reinkäme, um sie abzuarbeiten. Ich wette, das hast Du die letzten Jahre oder sogar Jahrzehnte bis ins Letzte ausprobiert: Wenn ich erst x geschafft habe, dann bin ich zufrieden. Wenn ich erst ein Gehalt von y erreicht habe, dann bin ich glücklich. Wenn ich endlich mehr Zeit habe, dann erfülle ich mir den Traum von… 
 
-# Der Schatz am Ende der To-Do-Liste
+## Der Schatz am Ende der To-Do-Liste
 UND? Hat es funktioniert? Jemals an diesem Punkt des “Wenn ich das und das erledigt habe, dann habe ich endlich meinen Schatz am Ende des Regenbogens gefunden!” angekommen? Noch nicht? Wenn Dein Körper jetzt nicht in die Erschöpfung gegangen wäre, wie lange hättest Du Dich noch mehr angestrengt, um diesen Schatz zu finden? 
 
 Jede spirituelle Richtung, die etwas taugt, wird Dir sagen, das kannst Du probieren, bis zum Ende des Universums und zurück. Gleich den nächsten Zyklus vom Urknall bis zum Ende des nächsten Universums auch noch. Vom Probieren hält Dich auch niemand ab. Leider. Leider. Leider. Zielführend war es noch nie und wird es niemals werden. Es bedarf ERST das innere Gefühl der Dankbarkeit, der Freude, der **Liebe in sich** und DANN füllt man das, was man den lieben langen Tag tut, mit diesem Gefühl der Freude, Dankbarkeit, Wertschätzung oder Liebe an. NICHT umgekehrt. 
 
 Es besteht eine gewisse Wahrscheinlichkeit, dass Du Dir jetzt denkst: Wie soll ich mich bitteschön aus dem Stand gut fühlen? Aus mir heraus, wenn das Leben gerade eher ungemütlich ist? 
 
-# Hier zwei von mir erprobte Methoden, die innere Stimmung zu heben 
+## Hier zwei von mir erprobte Methoden, die innere Stimmung zu heben 
 **Die effektivste heißt Meditation**. Grundsätzlich ist die Fähigkeit zu meditativen Zuständen beim Menschen angeboren. Dennoch ist Meditation ein bisschen aufwendig, weil wir im normalen westlichen Industriestaaten-Leben diesen inneren Flow so wenig geübt haben, dass er ein bisschen atrophiert sein könnte. Daher bleibt einem meist nichts anderes übrig, als erst eine für sich passende Methode zu finden und diese dann (neu) zu lernen. Es kann eine sitzende, eine gehende oder auch eine in Bewegung sein (z.B. Qi Gong, TaiChi…). Es dauert ein bisschen, bis man die Früchte der Meditation ernten kann. Bis dieser innere Muskel aufgebaut ist. Dafür ist Meditation super effektiv. Die freudvollen Zustände, die ich mit Meditation erreicht habe (und ich bin wirklich kein jahrzehntelang im Ashram lebender Mensch), sind einfach goldwert. Als längerfristiges Projekt absolut empfehlenswert. 
 
 **Die zweite ist ganz einfach**, sodass es geradezu herzzerreißend ist, dass wir diese Grundfertigkeit nicht in der Schule lernen. Wir als Menschen sind in der Lage, uns aus uns heraus gut zu fühlen. Egal, was die Außenwelt tut! Die lässt sich nicht kontrollieren. Deine Gefühlslage schon. Das geht wirklich ganz einfach und lässt sich schnell ÜBEN. 
 
-# Eine einfache Übung, um Deine innere Lebensfreude in 5 min zu aktivieren
+## Eine einfache Übung, um Deine innere Lebensfreude in 5 min zu aktivieren
 -Du denkst an etwas, dass Dir in der Vergangenheit Freude gemacht hat. Egal was. Etwas sehr Leckeres. Eine wunderschöne Blume. Das niedliche Gesicht Deines neugeborenen Babys. Einen wunderschönen Sonnenuntergang.... (Schadenfreude funktioniert nicht!) Dieses positive Gefühl aus der Vergangenheit holst Du hoch. 
 -Lege Deine Hand auf Deinen Brustkorb und konzentriere Dich auf Dein Herz. 
 -Verlangsame den Atem. Gut ist z.B. 6 Schläge einatmen, 6 ausatmen. Oder 4 einatmen, 8 ausatmen. Wenn gerade zu schwierig, eben nur etwas ruhiger als vorher. 
