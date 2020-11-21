@@ -14,10 +14,10 @@ Kann gut sein, dass als Antwort kommt: **Ausgewandert!** Wenn Du Deine Seele, De
 
 Wahrscheinlich kennst Du die folgende Übung. Egal, mach sie und im Zweifel eben noch einmal. Schadet nicht. Sie päppelt das eigene Selbstwertgefühl auf, ohne dass einer vorbeikommen muss und einem erzählt, wie großartig man ist. (By the way, Du bist großartig!). 
 
-#100 Dinge, die Du großartig machst. 
+## 100 Dinge, die Du großartig machst. 
 Schreibe 100 Dinge auf, die Du gut kannst. Ja, 100 Dinge! Das klingt nach viel. Ist dann doch so einfach. 
 
-#Selbstexperiment
+## Selbstexperiment
 Als ich die Übung an mir selbst ausprobierte, fielen mir 10 Sachen ein und dann saß ich da mit meinem Stift - bis 100, das sind ja noch 90 Punkte... Boah... Was soll ich bloß aufschreiben? 
 
 Also **mit den ganz kleinen Dingen beginnen**. Ich schaffe es, jeden Tag meine Zähne zu putzen (in tiefen burnoutzeiten ist das schwierig!) und mich im Spiegel freundlich anzugucken (Wenn ich meine MitgenossInnen auf diesem Planeten anschaue, bin ich mir nicht sicher, ob jeder sich freundlich im Spiegel anlächeln kann…) Ich kann für meine Tochter den Pfannkuchen liebevoll gestalten, sodass sie sich freut. Ich kann lustige Brotboote für sie basteln. Ich kann kochen, ich kann sogar vegan kochen und meine Gäste essen es freiwillig. Der Satz: Ist das vegan, oder kann man das essen? Gilt bei mir nicht. Ich lege Wäsche super dicht zusammen, sodass sie hervorragend in den Schrank passt. Ich kann organisieren. Ich kann Meetings so leiten, dass hinten was rauskommt. Wenn ich eine Lösung für ein Problem finde, dann passt das so, dass man das gleiche Problem nicht 10mal lösen muss...
@@ -28,7 +28,7 @@ Zu meinem heutigen Beruf würde ich schreiben: Ich kann den Energiekörper meine
 
 Zum Schluss hat es sich großartig angefühlt, eine solche Liste zu haben. Das Schreiben an sich hat die Stimmung angehoben!!! Mein Selbstwert stieg in mir um 150%!!!
 
-#Den Selbstwert in den Alltag einfließen lassen
+## Den Selbstwert in den Alltag einfließen lassen
 Dann hängst Du diese Liste zwischen dem Zucker und dem Kaffee oder neben die Zahnbürste. Oder neben die Tastatur. **Immer wenn Du nach den häufig benutzten Gegenständen greifst, liest Du ein bisschen von Deiner Liste.** Dir fällt einer neuer Aspekt ein? Dann fleißig hinzufügen. Wenn man mal wieder etwas Neues gerockt hat: Allein mit Kindern kommt man ständig an seine Grenzen und darf sich etwas Neues ausdenken, was man jetzt auch noch oben drauf gut können soll. 
 
 Es lässt sich überall nachlesen, dass man sich selbst feiern soll. Ganz schön schwierig und pathetisch, wenn man sich ausgebrannt fühlt und dem Burnout näher steht als der prallen Fülle des Lebens. Dann geht es mit nachhelfen. Diese einfache Übung lässt sich auf dem Sofa ausführen, unterwegs in der S-Bahn schreiben oder ganz relaxed in der Badewanne. Überhaupt, wenn Du entspannt bist, fallen Dir entschieden mehr Punkte ein. Gilt auch für Deine sonstigen Aktivitäten. ;-)
