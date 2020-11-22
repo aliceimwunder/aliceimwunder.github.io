@@ -36,7 +36,7 @@ Wenn Du Dir von mir helfen lassen willst, dann buche Dir hier Deinen Termin und 
 Kostenloses Strategiegespräch buchen:
 **[Termin buchen](https://alicewindolf.youcanbook.me)**
 
-oder schreibe mir eine Email: alicewindolf[at]web.de
+oder schreibe mir eine Email: alicewindolf@web.de
 
 
 
