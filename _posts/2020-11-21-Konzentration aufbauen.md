@@ -1,7 +1,9 @@
 ---
 title: Erschöpft? Unkonzentriert? - Die drei Säulen, mit denen Du Deinem Gedächtnis wieder auf die Sprünge helfen kannst
 ---
-![](/assets/   .jpg)
+![](/assets/2020-11-21-sich konzentrierender Mann.jpg)
+
+<span>Photo by <a href="https://unsplash.com/@brucemars?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">bruce mars</a> on <a href="https://unsplash.com/s/photos/thinking-pose?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
 ## Du weißt nicht mehr, wo die Schlüssel sind?
 Das ist wahrscheinlich harmlos. Passiert einem ohnehin gelegentlich. Wie war doch gleich der Name der neuen Kollegin? Mit der **üblichen Rate an Vergessen** schützt sich das Gedächtnis selbst. 
@@ -12,7 +14,7 @@ Amerikaner nennen diesen Zustand **brainfog**. Gehirnnebel ist ein ganz typische
 
 Am drastischsten hatte ich das Phänomen bei meinem zweiten Burnout. Ich kam gerade aus meinem Zweiten Juristischen Staatsexamen, beide mit Prädikat abgeschlossen. Ich hatte es sozusagen amtlich, dass ich mir jeden Dreck merken konnte. Fürs Erste Examen 3600 selbst geschriebene Karteikarten für Strafrecht, 1600 Karteikarten für Zivilrecht und Unmengen mehr. Um das durchzuhalten, war ich 5x zum Uni-Sport gegangen. 
 
-Ich trete meine erste Arbeitsstelle an und auf einmal habe ich nicht nur Schwierigkeiten damit, die Treppe in den zweiten Stock meines neuen Büros zu kommen, sondern ich wusste am Ende eines Satzes nicht mehr, was am Anfang stand. Egal, was ich las. Ich meine damit keine philosophisch wertvollen Sätze von Kant. Nicht einmal die Zeitung konnte ich richtig entziffern. Ich wusste gar nicht so recht wie mir geschah. Damals wusste ich auch noch nicht, was ich gezielt tun könnte. Erschrecken breitete sich aus. 
+Ich trete meine erste Arbeitsstelle an und auf einmal habe ich nicht nur Schwierigkeiten damit, die Treppe in den zweiten Stock meines neuen Büros zu kommen, sondern **ich wusste am Ende eines Satzes nicht mehr, was am Anfang stand.** Egal, was ich las. Ich meine damit keine philosophisch wertvollen Sätze von Kant. Nicht einmal die Zeitung konnte ich richtig entziffern. Ich wusste gar nicht so recht wie mir geschah. Damals wusste ich auch noch nicht, was ich gezielt tun könnte. Erschrecken breitete sich aus. 
 
 Mehr als, “Dann gönnen Sie sich mal eine Mütze Schlaf. Das wird schon wieder.”, hatte mein Hausarzt dazu nicht zu sagen. Für den Start in eine Uni-Assistentenstelle ausgesprochen hinderlich. Witzigerweise konnte ich mich an alles erinnern, was ich im Examen gelernt hatte, dadurch konnte ich mehr schlecht als recht durchmogeln - es ging absolut rein gar nichts Neues mehr rein. Nach gut einem Jahr mit allem, was mir an Gesundheitstipps damals über den Weg lief, hatte ich es geschafft. Ich habe nie wieder die Leistungsfähigkeit aus den Staatsexamina erreicht. Ich wüsste heute auch nicht mehr, wozu ich meinem Hirn einen solchen Wahnsinn zumuten sollte. 
 
@@ -47,11 +49,11 @@ Manche Giftstoffe kannst Du vermeiden (Glutamat, Alufolie…), bei manchen müss
 
 Deswegen ist **kontinuierliches Entgiften** angesagt. Dazu hilft: 
 
-**[Heavy Metal Detox Smoothie von Anthony Williams](https://www.yogazeit.at/heavy-metal-detox-smoothie/)**. Er wirkt gut. Bevor ich diesen Trick gelernt hatte, war ich aus anderen Gründen auf Schwermetalle getestet worden und sechs Monate nach Beginn mit dem Smoothie. Meine Ärztin konnte eine signifikante Abnahme feststellen. Ansonsten wird man Schwermetalle nämlich nicht einfach wieder los. Die tief im Gewebe sitzenden Schwermetalle kann man derzeit nicht messen lassen. 
-1. Einige Lebensmittel weglassen. Du kennst bestimmt ein paar typische, wie z.B. **Glutamat und chemische Zuckerersatzstoffe**. Wenn Du schon auf dem Weg bist, Dich insgesamt gesünder zu ernähren: super! Weniger bekannt ist, **Eier wegzulassen**. Sorry, ich weiß, viele mögen Eier und es wird als Proteinquelle empfohlen. 
-2. Auf Alugeschirr/ -folien, -flaschen verzichten.
-3. Soweit Dein Leben es zulässt, Tankstellen meiden. Wenn Du tanken musst, dann so schnell wie möglich und geh ein paar Meter vom Auto weg, sodass Du die Dämpfe nicht so einatmest. Vor Jahren ist bereits offiziell vor offenen Lebensmitteln an Tankstellen gewarnt worden. Also wenn Du unbedingt an einer Tanke etwas zu essen kaufst, dann nur gut verschweißte Dinge, keine offen lagernde Brötchen, Würstchen etc. 
-4. Deos, Cremes, Waschpulver, Rasierschaums, etc. mit starker Deodorierung meiden. Damit meine ich die starken Gerüche, die einem auf Rolltreppen entgegen kommen, die mich persönlich immer eher an ältere, überschminkte Damen im Pelzmantel erinnern. Hier können Produkte aus dem Biobereich oder extrasensitive Produkte aus der Drogerie helfen, da sie in der Regel nicht oder nur mit ätherischen Ölen höherer Qualität versetzt werden. 
+1. **[Heavy Metal Detox Smoothie von Anthony Williams](https://www.yogazeit.at/heavy-metal-detox-smoothie/)**. Er wirkt gut. Bevor ich diesen Trick gelernt hatte, war ich aus anderen Gründen auf Schwermetalle getestet worden und sechs Monate nach Beginn mit dem Smoothie. Meine Ärztin konnte eine signifikante Abnahme feststellen. Ansonsten wird man Schwermetalle nämlich nicht einfach wieder los. Die tief im Gewebe sitzenden Schwermetalle kann man derzeit nicht messen lassen. 
+2. Einige Lebensmittel weglassen. Du kennst bestimmt ein paar typische, wie z.B. **Glutamat und chemische Zuckerersatzstoffe**. Wenn Du schon auf dem Weg bist, Dich insgesamt gesünder zu ernähren: super! Weniger bekannt ist, **Eier wegzulassen**. Sorry, ich weiß, viele mögen Eier und es wird als Proteinquelle empfohlen. 
+3. Auf Alugeschirr/ -folien, -flaschen verzichten.
+4. Soweit Dein Leben es zulässt, Tankstellen meiden. Wenn Du tanken musst, dann so schnell wie möglich und geh ein paar Meter vom Auto weg, sodass Du die Dämpfe nicht so einatmest. Vor Jahren ist bereits offiziell vor offenen Lebensmitteln an Tankstellen gewarnt worden. Also wenn Du unbedingt an einer Tanke etwas zu essen kaufst, dann nur gut verschweißte Dinge, keine offen lagernde Brötchen, Würstchen etc. 
+5. Deos, Cremes, Waschpulver, Rasierschaums, etc. mit starker Deodorierung meiden. Damit meine ich die starken Gerüche, die einem auf Rolltreppen entgegen kommen, die mich persönlich immer eher an ältere, überschminkte Damen im Pelzmantel erinnern. Hier können Produkte aus dem Biobereich oder extrasensitive Produkte aus der Drogerie helfen, da sie in der Regel nicht oder nur mit ätherischen Ölen höherer Qualität versetzt werden. 
 
 ### Drittens: Das Gehirn optimal versorgen
 Das Gehirn braucht optimale Versorgung und nicht alles, was wir für gesund halten, ist sinnvoll. Folgendes habe ich aus den Ausführungen von Anthony Williams zusammengestellt, die bei mir echte Wunder bewirkt haben: 
