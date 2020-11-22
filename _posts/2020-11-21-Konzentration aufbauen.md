@@ -69,9 +69,15 @@ Wenn man schon erschöpft ist, ist es nicht so einfach, vieles auf einmal umzuse
 Hast Du den entsprechenden Leidensdruck und Deine Umgebung unterstützt Dich, dann setze alles sofort um. Damit dürftest Du innerhalb von zwei bis vier Wochen eine deutliche Besserung spüren. Zum kompletten Ausheilen kann es sein, dass es noch etwas mehr Zeit oder andere Maßnahmen bedarf. Bei mir hat sich innerhalb von zwei Wochen eine deutliche Verbesserung gezeigt. Nun bin ich seit einem Jahr Selleriesaft-Junkie (morgens auf leeren Magen) und ich merke eine stetige Besserung. 
 
 ## Zu guter Letzt
-Ganz großartig wäre, wenn Du über Deine Erfahrung als Kommentar hinterlässt. 
+Ganz großartig wäre, wenn **Du über Deine Erfahrung als Kommentar** hinterlässt. 
 
-Brauchst Du persönliche Unterstützung? Gerade wenn Du alles durchziehen willst? Braucht es vielleicht noch etwas mehr? Dann komm mit mir ins Gespräch und wir schauen, ob ich die richtige Begleitung für Dich bin.
+Brauchst Du persönliche Unterstützung? Gerade wenn Du alles durchziehen willst? Braucht es vielleicht noch etwas mehr, um die Erschöpfung hinter Dir zu lassen? Dann komm mit mir ins Gespräch und wir schauen, ob ich die richtige Begleitung für Dich bin.
+
+Kostenloses Strategiegespräch buchen:
+**[Termin buchen](https://alicewindolf.youcanbook.me)**
+
+oder schreibe mir eine Email: alicewindolf@web.de.
+
  
 
 
