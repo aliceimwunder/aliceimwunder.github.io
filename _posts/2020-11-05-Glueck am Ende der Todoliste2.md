@@ -53,3 +53,8 @@ Falls Du Dich nicht nur ein bisschen Down fühlst, sondern schon eher eine Depre
 
 Wenn Du gerne Hilfe dabei hättest, Dich besser zu fühlen und Deine auslaugenden To-Do-Listen zu wandeln, dann **[buche Dir hier Deinen Termin]()**. Wir klären zusammen, was Dir am besten helfen könnte. 
 
+Kostenloses Strategiegespräch buchen:
+**[Termin buchen](https://alicewindolf.youcanbook.me)**
+
+oder schreibe mir eine Email: alicewindolf@web.de
+
