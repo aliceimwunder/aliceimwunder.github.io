@@ -41,3 +41,9 @@ Hinterlasse unten gerne einen Kommentar, wenn Dich die Übung inspiriert hat.
 
 Du kannst persönliche Unterstützung gebrauchen? Dann schreibe mir eine Email oder buche Dir ein Gesprächstermin und wir schauen zusammen, wie ich Dich unterstützen kann.
 
+Kostenloses Strategiegespräch buchen:
+**[Termin buchen](https://alicewindolf.youcanbook.me)**
+
+oder schreibe mir eine Email: alicewindolf@web.de
+
+
