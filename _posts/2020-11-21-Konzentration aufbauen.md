@@ -35,10 +35,12 @@ Eine weitere Ursache: Langfristiger **Schlafentzug**. Als ich als stillende Mutt
 Steht eher Erschöpfung - ein (drohender) Burnout - im Vordergrund, dann kannst Du folgendes tun, um Deine Konzentration so schnell wie möglich zurückzuerhalten. Vielleicht ist etwas dabei, was auch Dir hilft. 
 
 ### Erstens: Die Klassiker - So viel Entspannung wie geht
-1. Entspannung
+1. Entspannung - z.B. Massagen, Sauna, autogenes Training, Badewanne
 2. Schlafen
 3. Meditieren
-4. Weniger [Kaffee](Wie-wirkt-Kaffee-auf-die-Psyche.html), Schokolade, Energydrinks oder schwarzer Tee
+4. Frische Luft / Natur
+5. Gesund ernähren
+6. Weniger [Kaffee](Wie-wirkt-Kaffee-auf-die-Psyche.html), Schokolade, Energydrinks oder schwarzer Tee
 
 ### Zweitens: Das Gehirn entgiften 
 Wir leben in einer Zeit, in der wir Glyphosat, DDT und Dieselabgase täglich einatmen. Nicht zu vergessen Aluminium aus Deos, aus Besteck und Töpfen, Impfungen und Waldpilze. Lecker sind auch die Spuren von Quecksilber, die wir irgendwo aufgabeln. Dazu kommen Glutamat und andere Zusatzstoffe, die die Hirn-Blut-Schranke (Schutz unseres Gehirns) ungefiltert überwinden. Unser Gehirn mit all seinen Botenstoffen ist hochkomplex und leider auch empfindlich. 
@@ -77,9 +79,6 @@ Kostenloses Strategiegespräch buchen:
 **[Termin buchen](https://alicewindolf.youcanbook.me)**
 
 oder schreibe mir eine Email: alicewindolf@web.de.
-
- 
-
 
 Ich wünsche Dir all Die Kraft, Die Du für Deine Heilung brauchen kannst. 
 
