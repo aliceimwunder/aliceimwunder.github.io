@@ -35,4 +35,10 @@ Doch für manche wird es einfach zu viel. Und für die möchte ich Wege aufzeige
 
 Schwierigkeiten, dies sinnvoll zu gestalten? Dann hilft Dir vielleicht meine **[Magischen Drei](/2020/09/17/Coaching-die-magische-drei.html).**
 
-Und hier geht es demnächst zu Teil 2 des Glücks am Ende von To-Do-listen. 
+Und hier geht es zu [Teil 2 des Glücks am Ende von To-Do-listen](/2020/11/05/Glueck-am-Ende-der-Todoliste2.html). 
+
+Kostenloses Strategiegespräch buchen:
+**[Termin buchen](https://alicewindolf.youcanbook.me)**
+
+oder schreibe mir eine Email: alicewindolf@web.de
+
