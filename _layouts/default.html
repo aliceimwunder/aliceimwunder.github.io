@@ -1,0 +1,71 @@
+<!DOCTYPE HTML>
+<!--
+	Editorial by HTML5 UP
+	html5up.net | @ajlkn
+	Free for personal and commercial use under the CCA 3.0 license (html5up.net/license)
+-->
+<html>
+
+{% include head.html %}
+
+<body>
+
+    <!-- Wrapper -->
+    <div id="wrapper">
+
+        <!-- Main -->
+        <div id="main">
+            <div class="inner">
+
+                {% include header.html %}
+
+
+                {{ content }}
+
+            </div>
+        </div>
+
+        {% include sidebar.html %}
+
+    </div>
+
+    {% include footer.html %}
+
+    <script type="text/javascript">
+        var lightboxVideo = GLightbox({
+            selector: '.glightbox3'
+        });
+        lightboxVideo.on('slide_changed', ({ prev, current }) => {
+            console.log("Prev slide", prev);
+            console.log("Current slide", current);
+
+            const { slideIndex, slideNode, slideConfig, player } = current;
+
+            if (player) {
+                if (!player.ready) {
+                    // If player is not ready
+                    player.on('ready', event => {
+                        // Do something when video is ready
+                    });
+                }
+
+                player.on('play', event => {
+                    console.log("Started play");
+                });
+
+                player.on('volumechange', event => {
+                    console.log("Volume change");
+                });
+
+                player.on('ended', event => {
+                    console.log("Video ended");
+                });
+            }
+        });
+
+    </script>
+
+
+</body>
+
+</html>
