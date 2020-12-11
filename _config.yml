@@ -1,49 +1,42 @@
-# Welcome to Jekyll!
-#
-# This config file is meant for settings that affect your whole blog, values
-# which you are expected to set up once and rarely edit after that. If you find
-# yourself editing this file very often, consider using Jekyll's data files
-# feature for the data you need to update frequently.
-#
-# For technical reasons, this file is *NOT* reloaded automatically when you use
-# 'bundle exec jekyll serve'. If you change this file, please restart the server process.
-
 # Site settings
-# These are used to personalize your new site. If you look in the HTML files,
-# you will see them accessed via {{ site.title }}, {{ site.email }}, and so on.
-# You can create any custom variable you would like, and they will be accessible
-# in the templates via {{ site.myvariable }}.
 title: Alice Windolf
+subtitle: "- Burnout-Coaching"
 email: alicewindolf@web.de
-description: >- # this means to ignore newlines until "baseurl:"
-  Du willst raus aus Burnout und Überforderung dafür rein in Deine Schaffenskraft? 
-  Du willst Erfolg aus Deinem Herzen magnetisch anziehen? Dann bist Du hier richtig. 
-  Ich schreibe zu seelischen Methoden, die für mich zielführend und effizient waren. 
-  Willkommen auf Deinem Weg in die 5. Dimension
-baseurl: "" # the subpath of your site, e.g. /blog
-url: "https://aliceimwunder.github.io" # the base hostname & protocol for your site, e.g. http://example.com
-# twitter_username: jekyllrb
-github_username:  jekyll
+description: A FREE AND FULLY RESPONSIVE SITE TEMPLATE
+baseurl: "/" # the subpath of your site, e.g. /blog
+url: "" # the base hostname & protocol for your site
+author:
+street_address: Petershagener Straße 15b
+city: Briesen/Mark
+state:
+zip_code: 15518
+country:
+phone: 0160 / 7047080
+
+# Social settings
+500px_url:
+facebook_url: https://www.facebook.com/alice.windolf.9
+github_url:
+gitlab_url:
+googleplus_url:
+instagram_url:
+linkedin_url: https://www.linkedin.com/in/alice-windolf-37734a4b/
+pinterest_url:
+slack_url:
+twitter_url:
 
 # Build settings
 markdown: kramdown
-theme: minima
+
+defaults:
+  - scope:
+      path: ""
+    values:
+      layout: "post"
+
 plugins:
-  - jekyll-feed
+- jekyll-feed
+- jekyll-remote-theme
 
-disqus:
-   shortname: aliceimwunder-github-io
+remote_theme: andrewbanchich/editorial-jekyll-theme
 
-google_analytics: UA-176716405-1
-
-# Exclude from processing.
-# The following items will not be processed, by default. Create a custom list
-# to override the default setting.
-# exclude:
-#   - Gemfile
-#   - Gemfile.lock
-#   - node_modules
-#   - vendor/bundle/
-#   - vendor/cache/
-#   - vendor/gems/
-#   - vendor/ruby/

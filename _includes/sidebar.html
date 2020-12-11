@@ -1,0 +1,74 @@
+<!-- Sidebar -->
+  <div id="sidebar">
+    <div class="inner">
+
+      <!-- Search -->
+        <section id="search" class="alt">
+          <form method="post" action="#">
+            <input type="text" name="query" id="query" placeholder="Search" />
+          </form>
+        </section>
+
+      <!-- Menu -->
+        <nav id="menu">
+          <header class="major">
+            <h2>Menu</h2>
+          </header>
+          <ul>
+            <li><a href="{{ '' | absolute_url }}">Home</a></li>
+            <li><span class="opener">Angebote</span>
+               <ul>
+                   <a href="/2020/09/17/Coaching-die-magische-drei.html">Die magische Drei</a></li>
+                   <a href="/2020/08/28/Wie-Phoenix-aus-der-Asche.html">Power Resilienz</a></li>
+               </ul>
+            </li>
+            <li><a href="/about">About</a></li>
+            <li><a href="/blog">Blog</a></li>
+          </ul>
+        </nav>
+
+      <!-- Section -->
+        <section>
+          <header class="major">
+            <h2>Featured Posts</h2>
+          </header>
+          <div class="mini-posts">
+            <article>
+              <a href="/2020/10/20/Wege-aus-dem-Burnout.html" class="image"><img src="/assets/images/burnout.jpg" alt="" /></a>
+              <p>Erprobte Wege aus dem Burnout. So kommst du so schnell wie möglich wieder raus.</p>
+            </article>
+            <article>
+              <a href="/2020/11/04/Das-Glueck-am-Ende-Deiner-ToDoListe-zu-finden.html" class="image"><img src="/assets/images/lama.jpg" alt="" /></a>
+              <p>Versuchst Du, Dein Glück am Ende Deiner To-Do-Liste zu finden?</p>
+            </article>
+            <article>
+              <a href="/2020/10/06/Wie-wirkt-Kaffee-auf-die-Psyche.html" class="image"><img src="/assets/images/kaffee.jpg" alt="" /></a>
+              <p>Was macht Kaffee bei Burnout und Erschöpfung mit meiner Psyche und meinem Sozialleben?</p>
+            </article>
+          </div>
+          <ul class="actions">
+            <li><a href="/blog" class="button">More</a></li>
+          </ul>
+        </section>
+
+      <!-- Section -->
+        <section>
+          <header class="major">
+            <h2>Kontakt</h2>
+          </header>
+          <ul class="contact">
+            <li class="fa-envelope-o"><a href="#">{{ site.email }}</a></li>
+            <li class="fa-phone">{{ site.phone }}</li>
+            <li class="fa-home">{{ site.street_address }}<br />
+            {{ site.city }}, {{ site.state }} {{ site.zip_code }}<br />
+            {{ site.country }}</li>
+          </ul>
+        </section>
+
+      <!-- Footer -->
+        <footer id="footer">
+          <p class="copyright">&copy; {{ site.title }}. All rights reserved. Demo Images: <a href="https://unsplash.com">Unsplash</a>. Design: <a href="https://html5up.net">HTML5 UP</a>. Jekyll integration: <a href="https://andrewbanchi.ch">Andrew Banchich</a>.</p>
+        </footer>
+
+    </div>
+  </div>
