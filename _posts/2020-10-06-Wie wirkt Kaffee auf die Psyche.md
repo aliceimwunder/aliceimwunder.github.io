@@ -3,7 +3,7 @@ title: Was macht Kaffee bei Burnout und Erschöpfung mit Deiner Psyche?
 ---
 <span class="image right">
 ![Kaffee fliegt](/assets/2020-10-06-Kaffee fliegt.jpg)
-
+<br/>
 <span>Photo by <a href="https://unsplash.com/@jtylernix?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Tyler Nix</a> on <a href="https://unsplash.com/s/photos/coffee?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 </span>
 
