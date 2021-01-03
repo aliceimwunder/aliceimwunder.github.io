@@ -47,7 +47,7 @@ Daher: wenn es erstmal nur ein Schaukelstuhl ist und Du nichts darüber hinaus i
 ## Hindernis
 Was ist, wenn das innere kleine Paradies immer wieder zusammenbricht? Man sich seine Wohlfühloase nicht über mehrere Minuten vorstellen kann? Dann stimmt etwas im Außen nicht! **Äußere Sicherheit geht vor innerer Sicherheit.** Wir sind so strukturiert, dass wir ERST äußere Sicherheit sicherstellen müssen, bevor wir uns unserem Inneren widmen. Ist logisch, oder? Wenn uns der Säbelzahntiger gefressen hat, brauchen wir uns keine Südseeinsel mehr erträumen.
 
-![Frau am Südseestrand](assets/2020-12-29-Frau am Suedseestrand.jpg)
+![Frau am Südseestrand](/assets/2020-12-29-Frau am Suedseestrand.jpg)
 
 <span>Photo by <a href="https://unsplash.com/@jakobowens1?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Jakob Owens</a> on <a href="https://unsplash.com/s/photos/paradise-beach?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
