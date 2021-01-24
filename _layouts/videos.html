@@ -1,0 +1,50 @@
+<!DOCTYPE HTML>
+<html>
+
+{% include head.html %}
+
+<body>
+
+    <!-- Wrapper -->
+    <div id="wrapper">
+
+        <!-- Main -->
+        <div id="main">
+            <div class="inner">
+
+                {% include header.html %}
+
+		<h1> {{ page.title }} </h1>
+
+                {{ content }}
+
+        {% if page.videos %}
+          {% for v in page.videos.groups %}
+            <div class='clearfix'>
+            <hr/>
+            <h2>{{ v.title }}</h2>
+            {% for i in v.items %}
+            <div class='video'>
+              <a class='glightbox' href='https://www.youtube.com/watch?v={{ i.youtube }}'>
+                <img src='https://i.ytimg.com/vi/{{ i.youtube }}/hqdefault.jpg'/>
+                <div class='title'>{{ i.title }}</div>
+                <div class='caption'>{{ i.caption }}</div>
+              </a>
+            </div>
+            {% endfor %}
+            </div>
+          {% endfor %}
+        {% endif %}
+
+            </div>
+        </div>
+
+        {% include sidebar.html %}
+
+    </div>
+
+    {% include footer.html %}
+
+</body>
+
+</html>
