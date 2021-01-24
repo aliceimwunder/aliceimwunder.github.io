@@ -17,7 +17,45 @@
   gtag('config', 'UA-176716405-1');
   </script>
 
-  <link rel="stylesheet" href="https://cdn.jsdelivr.net/npm/glightbox/dist/css/glightbox.min.css">
+  {% if page.videos %}
+  <link rel="stylesheet" href="https://cdn.jsdelivr.net/npm/glightbox/dist/css/glightbox.min.css" />
   <script src="https://cdn.jsdelivr.net/gh/mcstudios/glightbox/dist/js/glightbox.min.js"></script>
+
+<style>
+.video:hover {
+        opacity:0.8;
+}
+
+.video {
+        width:200px;
+        float:left;
+        margin-right:16px;
+        margin-top:20px;
+        margin-bottom:20px;
+}
+
+.video img {
+        object-fit: cover;
+        object-position: center;
+        height: 110px;
+        width: 200px;
+}
+
+.video .title {
+        color: white;
+        font-size: 90%;
+}
+.video .caption {
+        color: #959396;
+        font-size: 80%;
+}
+.clearfix::after {
+    content: "";
+    clear: both;
+    display: table;
+}
+</style>
+
+{% endif %}
 
 </head>
