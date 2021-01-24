@@ -44,6 +44,12 @@
     </div>
 
     {% include footer.html %}
+	
+    {% if page.videos %}
+    <script type="text/javascript">
+      const lightbox = GLightbox({ selector: '.glightbox' });
+    </script>
+    {% endif %}
 
 </body>
 
