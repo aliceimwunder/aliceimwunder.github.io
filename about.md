@@ -5,11 +5,15 @@ permalink: /about/
 ---
 
 ## Was biete ich an? 
-Bei mir bist Du richtig, wenn Du emotionale Stabilität erreichen willst. Eine Stabilität, die Dir Deine Kreativität und Entscheidungsfreiheit in herausfordernden Situationen erhält. Die Dich sogar sicher durch Krisen tragen kann. Ich arbeite v.a. mit Innerer Kindheilung, Coaching und werfe gerne den Turbo mit Quantenheilung an. Ganzheitliche, tragfähige Lösungen. Wissenschaftlich fundiert und spirituell erweiterternd. Die meisten Menschen können nur auf äußere Einflüße reagieren und haben wenig eigenen Raum in ihrem Leben. Wenn Du stattdessen Deinen inneren Ruheort findest und Dich an Deine eigene Seelenkraft anbindest, kann sich Dein gesamtes Leben von innen nach außen aufbauen.  
+Bei mir bist Du richtig, wenn Du emotionale Stabilität für Dich erreichen willst. Eine Stabilität, die Dir Deine **Kreativität und Entscheidungsfreiheit** in herausfordernden Situationen erhält. - Kein automatisches: im Boden versinken, keine blinde Wunt, keine Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Haß oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders. 
+
+Den Wunsch, dass der Raum zwischen einem Ereignis im Außen und der eigenen Handlung darauf größer wird und damit Platz für Selbstbestimmung ensteht, den haben fast alle Menschen. Mit dieser Stabilität und Kraft in Dir kannst Du **Dein Leben in DEIN Leben transformieren/wandeln.** Du kannst sozusagen Deine eigene Seelen-PS auf die Straße bringen. 
+
+Ich arbeite v.a. mit **Innerer Kindheilung und Coaching** und werfe gerne den **Turbo mit Lichtkörperreinigung** an. Bei mir git es ganzheitliche, tragfähige Lösungen. Wissenschaftlich fundiert und spirituell erweiterternd. Verbinde Dich mit Deiner ureigenen Seelenkraft. Dann kannst Du Dein gesamtes Leben von innen nach außen aufbauen, agieren statt reagieren. 
 
 ![ich](/assets/about-Portrait.jpg)
 
-## Wie bin ich dazu gekommen, Menschen ganzheitlich zu unterstützen?
+## Wie bin ich dazu gekommen, Menschen ihre innere Stabilität und Kraft zu zeigen?
 
 Ich bin 44 Jahre alt, verheiratet, und habe ein großartiges Tochterherz. In meinem "ersten" Leben war ich Verwaltungsjuristin. Wir hatten in einer schicken Stadtwohnung in Berlin mit kleinem Garten gewohnt. Ich war stellvertretende Leiterin eines 10-köpfigen Teams, bei dem es sogar weitere Karriereaussichten trotz Teilzeitmuttidasein gab. Ich ging dabei Bürgerbeschwerden gegen die Berliner Landesverwaltung nach. Privat: Nette Cafés, nette Urlaube. Harmonische Ehe. Was will der Mensch mehr?
  
