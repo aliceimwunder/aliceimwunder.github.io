@@ -9,21 +9,21 @@ Bei mir bist Du richtig, wenn Du emotionale Stabilität für Dich erreichen will
 
 Den Wunsch, dass der Raum zwischen einem Ereignis im Außen und der eigenen Handlung darauf größer wird und damit Platz für Selbstbestimmung ensteht, den haben fast alle Menschen. Mit dieser Stabilität und Kraft in Dir kannst Du **Dein Leben in DEIN Leben transformieren/wandeln.** Du kannst sozusagen Deine eigene Seelen-PS auf die Straße bringen. 
 
-Ich arbeite v.a. mit **Innerer Kindheilung und Coaching** und werfe gerne den **Turbo mit Lichtkörperreinigung** an. Bei mir git es ganzheitliche, tragfähige Lösungen. Wissenschaftlich fundiert und spirituell erweiterternd. Verbinde Dich mit Deiner ureigenen Seelenkraft. Dann kannst Du Dein gesamtes Leben von innen nach außen aufbauen, agieren statt reagieren. 
+Ich arbeite v.a. mit **Innerer Kindheilung und Coaching** und werfe gerne den **Turbo mit Lichtkörperreinigung** an. Bei mir gibt es ganzheitliche, tragfähige Lösungen. Wissenschaftlich fundiert und spirituell erweiterternd. Verbinde Dich mit Deiner ureigenen Seelenkraft. Dann kannst Du Dein gesamtes Leben von innen nach außen aufbauen, agieren statt reagieren. 
 
 ![ich](/assets/about-Portrait.jpg)
 
 ## Wie bin ich dazu gekommen, Menschen ihre innere Stabilität und Kraft zu zeigen?
 
-Ich bin 44 Jahre alt, verheiratet, und habe ein großartiges Tochterherz. In meinem "ersten" Leben war ich Verwaltungsjuristin. Wir hatten in einer schicken Stadtwohnung in Berlin mit kleinem Garten gewohnt. Ich war stellvertretende Leiterin eines 10-köpfigen Teams, bei dem es sogar weitere Karriereaussichten trotz Teilzeitmuttidasein gab. Ich ging dabei Bürgerbeschwerden gegen die Berliner Landesverwaltung nach. Privat: Nette Cafés, nette Urlaube. Harmonische Ehe. Was will der Mensch mehr?
+Ich bin 44 Jahre alt, verheiratet, und habe ein großartiges Tochterherz. In meinem "ersten" Leben war ich Verwaltungsjuristin. Wir hatten in einer schicken Stadtwohnung in Berlin mit kleinem Garten gewohnt. Ich war stellvertretende Leiterin eines 10-köpfigen Teams, bei dem es sogar weitere Karriereaussichten trotz Teilzeitmuttidasein gab. Ich ging dabei Bürgerbeschwerden gegen die Berliner Landesverwaltung nach. Privat: Nette Cafés, nette Urlaube. Harmonische Ehe. **Was will der Mensch mehr?**
  
-Wenn da nicht diese innere Stimme gewesen wäre, dass ich das Traumleben eines anderen lebte. Wenn ich mich nicht mittlerweile in meinen dritten Burnout manövriert hätte... Die Selbstfürsorge gut vergraben unter dem Kümmern um andere in allen Bereichen meines Lebens. Meine Hellfühligkeit fand ich lästig. Spiritualität war nur gelegentlich als Hobby Teil meines Lebens. 
+Wenn da nicht diese innere Stimme gewesen wäre, dass ich das Traumleben eines anderen lebte. Wenn ich mich nicht mittlerweile in meinen dritten Burnout manövriert hätte... Die Selbstfürsorge gut vergraben unter dem Kümmern um andere in allen Bereichen meines Lebens. Meine Hellfühligkeit fand ich lästig. Spiritualität war ein nettes Hobby, bei dem schon die Vorstellung, beruflich damit zu arbeiten, schlicht abwegig war. 
 
 Eines Nachts rief mein Mann den Notarzt. Das letzte, was ich hörte, war die Stimme des Notarztes: Wir nehmen Ihre Frau mit, sie hat einen Herzinfarkt. Das letzte, was ich dachte, war, welche Frau meint der denn?
 
 
 ### Das Ende meines Lebens
-Drei Tage später stand ein kardiologischer Chefarzt vor mir und ich hatte folgende Aussicht von meinem Bett: Dialyse wegen Nierenversagen. Entfernen der Milz wegen schwerer innerer Blutungen, die die Milz erdrückt hätten. Herztransplantation, weil nach zwei Herzinfarkten es sein könnte, dass das nichts mehr wird mit der Originalausgabe in meiner Brust. Schwere OP's wegen Tumor in der Herzaorta. Gar keine Aussicht wegen Leberversagen. Formulierung des Arztes: "Da müsste man Respekt vor dem Leben haben."
+Als sich die Nebenlschwaden drei Tage später lichteten, stand ein kardiologischer Chefarzt vor mir. Ich hatte folgende Aussicht von meinem Bett: Dialyse wegen Nierenversagen. Entfernen der Milz wegen schwerer innerer Blutungen, die die Milz erdrückt hätten. Herztransplantation, weil nach zwei Herzinfarkten es sein könnte, dass das nichts mehr wird mit der Originalausgabe in meiner Brust. Schwere OP's wegen Tumor in der Herzaorta. Gar keine Aussicht wegen Leberversagen. Formulierung des Arztes: "Da müsste man Respekt vor dem Leben haben."
  
 Ich entschied in diesem Bett, dass ich meine damals fünfjährige Tochter nicht allein auf diesem Planeten zurücklassen würde, und dass ich endlich herausfinden würde, was in aller Welt ich auf diesem Planeten wirklich will. Was geht in einem Intensivbett mit gefühlt 100 Schläuchen? Mit dem eigenen Körper reden. Meiner Fähigkeit, Energieströme in einem Körper wahrnehmen zu können, das erste Mal in meinem ganzen Leben Aufmerksamkeit schenken. 
 
@@ -31,18 +31,18 @@ Ab diesem Punkt spielten die Geräte auf der Intensivstation verrückt. Medikame
 
 
 ### Meine Weg in mein zweites Leben
-Nach 16 Tagen war Punkt 1 erreicht: Ich marschierte - wenn auch noch etwas wackelig - aber auf meinen eigenen zwei Beinen aus diesem Krankenhaus und meine Tochter hatte ihre Mutter noch.
+Nach 16 Tagen war Punkt 1 erreicht: Ich marschierte - wenn auch noch etwas wackelig - auf meinen eigenen zwei Beinen mit allen Organen ohne Tumor aus diesem Krankenhaus und meine Tochter hatte ihre Mutter noch.
 
-Für Punkt 2 habe ich eine Weile gebraucht. Die Verwaltungsbeamtin mutierte zur Traumatherapeutin (Heilpraktikerin für Psychotherapie), Coach und energetischen Heilerin. Ich richte mit meinen KlientInnen einen absoluten Fokus darauf, was in ihrem Leben geht und was gehen darf. Ich integriere alte emotionale Trigger, suche mit ihnen nach ihren verschütteten Superpowers und nutze dafür **Coaching-Tools und Innere Kindheilung**. 
+Für Punkt 2 habe ich eine Weile gebraucht. Die Verwaltungsbeamtin mutierte über die Zeit zur Traumatherapeutin (Heilpraktikerin für Psychotherapie), Coach und energetischen Heilerin. Ich richte mit meinen KlientInnen einen absoluten Fokus darauf, was in ihrem Leben geht und was gehen darf. Ich integriere alte emotionale Trigger, suche mit ihnen nach ihren verschütteten Superpowers und nutze dafür **Coaching-Tools und Innere Kindheilung**. 
 
 ### Lichtkörperheilung
-Wer weiter gehen möchte, bucht dazu **Lichtkörperreinigung.** All die alten Glaubenssätze, emotionalen Trigger, Selbstkritik, Gefühle von Fremdbestimmung und Niedergeschlagenheit haben einen Abdruck in Deinem Energiekörper (Meridiane, Chacras, Auraschichten). Heilungsprozesse können schneller mit Unterstützung energetische Unterstützung gehen als ohne funktionieren. Wenn ich darüber nachdenke, was ich genau tue, dann würde ich sagen, ich nehme eine energetische Mistgabel, krempel meine inneren Ärmel hoch und helfe meinen KlientInnen auf allen Ebenen zu entrümpeln und Platz zu machen, für die Liebe, die sie sind. Ich klettere mit ihnen in Tiefen, in die sich sonst kaum einer wagt. Ein Turbo-Programm in die 5. Dimension.
+Wer weiter gehen möchte, bucht dazu **Lichtkörperreinigung.** All die alten Glaubenssätze, emotionalen Trigger, Selbstkritik, Gefühle von Fremdbestimmung und Niedergeschlagenheit haben einen Abdruck in Deinem Energiekörper (Meridiane, Chacras, Auraschichten). Heilungsprozesse können schneller mit Unterstützung energetische Unterstützung gehen als ohne funktionieren. Wenn ich darüber nachdenke, was ich genau tue, dann würde ich sagen, ich nehme eine energetische Mistgabel, krempel meine inneren Ärmel hoch und helfe meinen KlientInnen auf allen Ebenen zu entrümpeln; Platz zu machen, für die Liebe, die sie sind. Ich klettere mit ihnen in Tiefen, in die sich sonst kaum einer wagt. Ein Turbo-Programm in die 5. Dimension.
  
 ### Wie Ferien für Immer!
-Nun wohne ich mit meiner Familie im Berliner Speckgürtel im selbst entworfenen Traumhaus mit Blick auf Wald und riesigem Garten. Ich arbeite von zu Hause und helfe - immer noch - Menschen, so wie in meinem ersten "Leben". Mit dem Unterschied: in meinem zweiten habe ich den Eindruck, Menschen so zu unterstützen, dass sie Quantensprünge in ihrem Leben machen und ich ihnen nicht nur beruhigende Briefe schreibe.
+Nun wohne ich mit meiner Familie im Berliner Speckgürtel im selbst entworfenen Traumhaus mit Blick auf Wald und riesigem Garten. Ich arbeite von zu Hause und helfe - immer noch - Menschen, so wie in meinem ersten "Leben". Mit dem Unterschied: in meinem zweiten habe ich den Eindruck, Menschen so zu unterstützen, dass sie Quantensprünge in ihrem Leben machen und ich ihnen nicht nur beruhigende Briefe schreiben kann.
 
 ## Äußerlich sah mein Weg ungefähr so aus: 
-In meiner Arbeit verbinde ich wissenschaftliche, wie spirituelle Ansätze, um das bestmögliche Ergebnis zu erziehlen. 
+In meiner Arbeit verbinde ich wissenschaftliche, wie spirituelle Ansätze, um das bestmögliche Ergebnis zu erziehlen. Mein Weg sah so aus: 
 
 Besuch vieler Seminare zur Persönlichkeitsbildung und ganzheitlicher Heilung, wie z.B. Energy Medicine nach Donna Leon, Aufstellungsarbeit, Walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Lichkörperprozess bei Chamuel Schauffert. Spirituelle Heiltechniken von Pavlina Klemm. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie). Psychologische Astrologie/astrologische Energieaufstellung. 
 
