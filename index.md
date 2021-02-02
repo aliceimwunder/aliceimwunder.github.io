@@ -5,11 +5,12 @@ layout: default
   <section id="banner">
 	<div class="content">
 	<header>
-	<h1>Hallo!</h1>
-	<p>Ein Angebot zur Burnout-Heilung</p>
+	<h1>Willkommen</h1>
+	<p>Dein Ort für emotionale Stabilität</p>
 	</header>
 	<p>
-	<p><h3>Warum bist du so erschöpft?</h3> Burnout? Überfordert? Ausgebrannt? Sinnentleertes Leben? Depressive Verstimmungen? Keine Energie für das, was Du Dir im Leben vorgenommen hast? Du willst einen Weg in Dein kraftvolles Leben finden? Dich interessieren ganzheitliche Wege? Du bist offen für alle Lösungen? Von wissenschaftlich fundiert über Naturheilkunde bis spirituell?</p>
+	<p><h3>Warum bist du so erschöpft?</h3> 
+		Burnout? Überfordert? Ausgebrannt? Sinnentleertes Leben? Depressive Verstimmungen? Keine Energie für das, was Du Dir im Leben vorgenommen hast? Du willst einen Weg in Dein kraftvolles Leben finden? Dich interessieren ganzheitliche Wege? Du bist offen für alle Lösungen? Von wissenschaftlich fundiert über Naturheilkunde bis spirituell?</p>
 		<p><h3>Dann bist Du bei mir richtig.</h3> Ich schreibe in meinem <a href="/blog">Blog</a> über das Themenfeld “Erschöpfung” und alles, was dazu auftreten kann. Als Burnout-Coach helfe ich Dir persönlich. Beginne Dein selbstbestimmtes Leben voller Kraft und Energie. Was tun wir stattdessen? Die meiste Zeit verbringen wir eher damit, für andere zu funktionieren. Uns von unseren Problemen und der Vergangenheit hypnotisieren zu lassen.</p>
 		<p><h3>Du kannst die Krise nutzen.</h3> Lerne, den Teufelskreis der Erschöpfung zu unterbrechen. Ein Hamsterrad sieht nur von innen aus wie eine Karriereleiter. Mach Dir zueigen, was Deinen Körper, Deinen Geist und Deine Seele auflädt. Konzentriere Dich auf das, womit Du Dein Leben tatsächlich verbringen willst. Manifestiere genau das für Dich. Als Mensch erzeugen wir ständig unser Leben. Man kann es unbewusst tun und hoffen, dass es vielleicht was wird, oder lernen, wie man ganz bewusst das ins Leben ruft, was einem Freude bringt.</p>
 		<p>Was der eigene Sinn im Leben ist, ist meist etwas anderes, als in Zeitschriften und lifestyle-Blogs suggeriert wird.</p>
