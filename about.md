@@ -9,7 +9,7 @@ Bei mir bist Du richtig, wenn Du emotionale Stabilität für Dich erreichen will
 
 Den Wunsch, dass der Raum zwischen einem Ereignis im Außen und der eigenen Handlung darauf größer wird und damit Platz für Selbstbestimmung ensteht, den haben fast alle Menschen. Mit dieser Stabilität und Kraft in Dir kannst Du **Dein Leben in DEIN Leben transformieren/wandeln.** Du kannst sozusagen Deine eigene Seelen-PS auf die Straße bringen. 
 
-Ich arbeite v.a. mit **Innerer Kindheilung und Coaching** und werfe gerne den **Turbo mit Lichtkörperreinigung** an. Bei mir gibt es ganzheitliche, tragfähige Lösungen. Wissenschaftlich fundiert und spirituell erweiterternd. Verbinde Dich mit Deiner ureigenen Seelenkraft. Dann kannst Du Dein gesamtes Leben von innen nach außen aufbauen, agieren statt reagieren. 
+Ich arbeite online v.a. mit **Innerer Kindheilung und Coaching** und werfe gerne den **Turbo mit Lichtkörperreinigung** an. Bei mir gibt es ganzheitliche, tragfähige Lösungen. Wissenschaftlich fundiert und spirituell erweiterternd. Verbinde Dich mit Deiner ureigenen Seelenkraft. Dann kannst Du Dein gesamtes Leben von innen nach außen aufbauen, agieren statt reagieren. Bei Interesse an einer längerfristigen **Traumatherapie** bitte melden (nur offline bei mir vor Ort möglich.)
 
 ![ich](/assets/about-Portrait.jpg)
 
@@ -46,26 +46,15 @@ In meiner Arbeit verbinde ich wissenschaftliche, wie spirituelle Ansätze, um da
 
 Besuch vieler Seminare zur Persönlichkeitsbildung und ganzheitlicher Heilung, wie z.B. Energy Medicine nach Donna Leon, Aufstellungsarbeit, Walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Lichkörperprozess bei Chamuel Schauffert. Spirituelle Heiltechniken von Pavlina Klemm. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie). Psychologische Astrologie/astrologische Energieaufstellung. 
 
-Traumatherapieausbildung, arche medica
-
-Heilpraktikerin für Psychotherapie, Berlin
-
-Coachingausbildung, arche medica
-
-Stellvertretenden Leiterin des Sekretariats des Petitionsausschusses des Abgeordnetenhauses von Berlin
-
-Ausschuss-Referentin am Abgeordnetenhaus von Berlin
-
-Referentin in der Berliner Senatsverwaltung für Bildung, Bereich Hochschulzugang
-
-Wissenschaftliche Assistentin für Staatsrecht in Bayreuth
-
-Praktikum am Europäischen Gerichtshof für Menschenrechte
-
-Erstes und Zweites Juristisches Staatsexamen Berlin-Brandenburg
-
-Licence en droit, Paris II
-
-Jurastudium in Potsdam, Berlin und Paris 
-
-Schulbesuche in Berlin, Florenz, Heidelberg und Schleswig-Holstein
+- Traumatherapieausbildung, arche medica
+- Heilpraktikerin für Psychotherapie, Berlin
+- Coachingausbildung, arche medica
+- Stellvertretenden Leiterin des Sekretariats des Petitionsausschusses des Abgeordnetenhauses von Berlin
+- Ausschuss-Referentin am Abgeordnetenhaus von Berlin
+- Referentin in der Berliner Senatsverwaltung für Bildung, Bereich Hochschulzugang
+- Wissenschaftliche Assistentin für Staatsrecht in Bayreuth
+- Praktikum am Europäischen Gerichtshof für Menschenrechte
+- Erstes und Zweites Juristisches Staatsexamen Berlin-Brandenburg
+- Licence en droit, Paris II
+- Jurastudium in Potsdam, Berlin und Paris 
+- Schulbesuche in Berlin, Florenz, Heidelberg und Schleswig-Holstein
