@@ -18,6 +18,7 @@ Zu meinem <a href="/blog">Blog</a> "Auch Buddha ging ins Homeoffice" schreibe ic
 		</p>
 	
 		<p><h3>Quantenheilung/Lichtkörperreinigung</h3>  </p>
+Ich beginne mit klassischen Tools aus dem Coaching und innerer Kindheilung, um Dich zu unterstützen. Damit kommst Du ein gutes Stück auf Deinem Weg in Dein selbstbestimmtes Leben, so wie es sein darf. Mit meiner Hellfühligkeit konnte ich immer ungefähr spüren, dass die ganzen seelischen Themen meines Gegeüber sich auch auf einer feinstofflichen Ebene zeigen. Mittlerweile kann ich sehr präzise den Energiekörper (Meridiane, Chakren, Auraschichten 
 		
 		<p><h3>Traumatherapie (nur offline möglich)</h3> Mit seelischen Herausforderungen laufen wir alle herum. Deswegen ist man unbedingt reif für eine Therapie. ABER wenn Deine Herausforderungen bereits Krankheitswert erreicht haben, dann macht es keinen Sinn, sie unbehandelt zu lassen. Eine Traumatherapie ist eine Psychotherapie Lerne, den Teufelskreis von Erschöpfung, emotionalen Ausbrüchen, Lücken im Gedächtnis, Flash Backs, Depression, Angst- und Panikattacken, Gefühle von Verfolgtwerden zu unterbrechen. Ein Hamsterrad sieht nur von innen aus wie eine Karriereleiter. Mach Dir zueigen, was Deinen Körper, Deinen Geist und Deine Seele auflädt. Konzentriere Dich auf das, womit Du Dein Leben tatsächlich verbringen willst. Manifestiere genau das für Dich. Als Mensch erzeugen wir ständig unser Leben. Man kann es unbewusst tun und hoffen, dass es vielleicht was wird, oder lernen, wie man ganz bewusst das ins Leben ruft, was einem Freude bringt.</p>
 		
