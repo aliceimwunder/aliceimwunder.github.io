@@ -5,11 +5,39 @@ permalink: /about/
 ---
 
 ## Was biete ich an? 
-Bei mir bist Du richtig, wenn Du emotionale Stabilität für Dich erreichen willst. Eine Stabilität, die Dir Deine **Kreativität und Entscheidungsfreiheit** in herausfordernden Situationen erhält. - Kein automatisches: im Boden versinken, keine blinde Wunt, keine Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Haß oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders. 
+Bei mir bist Du richtig, wenn Du emotionale Stabilität für Dich erreichen willst. Eine Stabilität, die Dir Deine **Kreativität und Entscheidungsfreiheit** in herausfordernden Situationen erhält. - Kein automatisches: im Boden versinken, keine blinde Wunt, keine Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Haß oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders, eine Einschränkung der Lebensqualität bedeuten sie alle. 
 
-Den Wunsch, dass der Raum zwischen einem Ereignis im Außen und der eigenen Handlung darauf größer wird und damit Platz für Selbstbestimmung ensteht, den haben fast alle Menschen. Mit dieser Stabilität und Kraft in Dir kannst Du **Dein Leben in DEIN Leben transformieren/wandeln.** Du kannst sozusagen Deine eigene Seelen-PS auf die Straße bringen. 
+Den Wunsch, dass der **Raum zwischen Ereignis im Außen und eigener Handlung** darauf größer wird und damit Platz für Selbstbestimmung ensteht, den haben fast alle Menschen. Innere Kindheilung hilft dabei unmittelbar. Mit der gewonnenen Stabilität und Kraft in Dir kannst Du Dein Leben in **DEIN Leben transformieren/wandeln.** Du kannst endlich Deine eigene Seelen-PS auf die Straße bringen. 
 
 Ich arbeite online v.a. mit **Innerer Kindheilung und Coaching** und werfe gerne den **Turbo mit Lichtkörperreinigung** an. Bei mir gibt es ganzheitliche, tragfähige Lösungen. Wissenschaftlich fundiert und spirituell erweiterternd. Verbinde Dich mit Deiner ureigenen Seelenkraft. Dann kannst Du Dein gesamtes Leben von innen nach außen aufbauen, agieren statt reagieren. Bei Interesse an einer längerfristigen **Traumatherapie** bitte melden (nur offline bei mir vor Ort möglich.)
+
+
+## Testimonials
+**Agneta N. aus Berlin:**
+
+Alice ist einer der feinfühligsten Therapeuten, die ich kenne. Sie kann jede Gefühls- und Energieschwingung präzise wahrnehmen, was ihre Arbeit kraftvoll und klar macht. Insbesondere mag ich ihren traumatherapeutischen Ansatz. Sie hat mir mit ihrer herzlichen und mütterlichen Art geholfen, verschüttete und ungesehene Anteile in mir zu fühlen, zu umarmen und wieder miteinander in mir zuverbinden. So hatte ich endlich den Mut für mich einzustehen und Leidensdruck deutlich zu vrerringern. Vielen lieben Dank dafür!
+
+**Helen F. aus Zürich: 
+
+Alice Windolf weist mir durch die Arbeit mit dem Inneren Kind einen Weg auf mit meinen verdeckten tiefen Gefühlen und verkümmerten Anteilen liebevoll 
+in Kontakt zu kommen. Die Fähigkeit für mich selbst mitfühlend da zu sein war mir nach einer Krise und mit zunehmenden Druck durch Familienalltag und 
+beruflichen Sorgen abhanden gekommen. Mit großer Wärme und Humor, aber auch mit Ruhe und Klarheit schafft Alice Windolf 
+einen geschützten Raum und gibt mir die Möglichkeit innerlich aufzuatmen und wahrzunehmen was gerade da ist. 
+
+Die für mich erstaunlichste Erfahrung in der Arbeit mit Alice Windolf war zu spüren, dass die Verhärtungen, die mich einmal vor etwas schützen sollten, zugleich auch 
+meine Fähigkeit tief zu Fühlen gebunden halten. Es ist erst der Anfang des Weges, aber die Auflösung dieser Verhärtungen schenkt meinem Leben und Lieben wieder 
+mehr Intensität und Farben. Dafür bin ich so dankbar.  
+
+**Martina W. aus Bremen: 
+
+In der Heilsitzung mit Alice durfte ich erfahren was mein Emotionalkörper ist. Ich konnte erfahren, dass mein Emotionalkörper sich
+von meinem Körper abgetrennt hat und das dass ein Schutzmechanismus meiner Seele ist, den ich mir im laufen meines Lebens angeeignet habe.
+Ich konnte mich mit meinem Emotionalkörper wieder verbinden.
+
+Durch die Behandlung von Alice konnte ich Kontakt zu meinem inneren Kind aufnehmen. Ich konnte mit meinem inneren Kind zusammen herausfinden, was
+es braucht um sich von Situationen abzugrenzen, die mein kindliches Ich nicht betreffen und für die es nicht die Verantwortung übernehmen
+braucht.
+
 
 ![ich](/assets/about-Portrait.jpg)
 
