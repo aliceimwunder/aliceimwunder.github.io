@@ -9,8 +9,8 @@ layout: default
 	<p>Dein Ort für emotionale Stabilität</p>
 	</header>
 	<p>
-	<p><h3>Wann hilft Innere Kindheilung / energetisches Coaching (online)?</h3> 
-		Es können seelisch unangenehme Zustände sein wie: Keine Energie/kein Fokus für das, wovon Du eigentlich träumst... Unverbunden durchs Leben irrend... Gefühl von Fremdbestimmung? Überfordert... Ausgebrannt... Sinnentleertes Leben... Niedergeschlagenheit... Dir ist die Freude am Ausprobieren und die Neugier auf Neues vergangen...? Gefühlsausbrüche... Alte emotionale Trigger, die Dich immer wieder in Gefühls-Reaktionen hineintreiben, die Du schon lange nicht mehr willst...? 
+	<p><h3>Wann hilft Innere Kindheilung / energetisches Coaching (online)?</h3> </p>
+		<p>Es können seelisch unangenehme Zustände sein wie: Keine Energie/kein Fokus für das, wovon Du eigentlich träumst... Unverbunden durchs Leben irrend... Gefühl von Fremdbestimmung? Überfordert... Ausgebrannt... Sinnentleertes Leben... Niedergeschlagenheit... Dir ist die Freude am Ausprobieren und die Neugier auf Neues vergangen...? Gefühlsausbrüche... Alte emotionale Trigger, die Dich immer wieder in Gefühls-Reaktionen hineintreiben, die Du schon lange nicht mehr willst...? </p>
 		
 Du bist hier richtig, wenn Du Dich mit **Innerer Kindheilung** auf einen ganzheitlichen Lösungsweg begeben willst, sodass Du Deinen Lebensweg kraftvoll selbst bestimmen kannst. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiterend binde ich zielgerichtete Heiltools in meine Arbeit als Coach, Traumatherapeutin und energetische Heilerin ein. Hier findest Du mehr [über mich](/alicewindolf.de/about/). 
 
