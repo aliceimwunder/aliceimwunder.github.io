@@ -17,7 +17,7 @@ Ich arbeite online v.a. mit **Innerer Kindheilung und Coaching** und werfe gerne
 
 Alice ist einer der feinfühligsten Therapeuten, die ich kenne. Sie kann jede Gefühls- und Energieschwingung präzise wahrnehmen, was ihre Arbeit kraftvoll und klar macht. Insbesondere mag ich ihren traumatherapeutischen Ansatz. Sie hat mir mit ihrer herzlichen und mütterlichen Art geholfen, verschüttete und ungesehene Anteile in mir zu fühlen, zu umarmen und wieder miteinander in mir zuverbinden. So hatte ich endlich den Mut für mich einzustehen und Leidensdruck deutlich zu vrerringern. Vielen lieben Dank dafür!
 
-**Helen F. aus Zürich: 
+**Helen F. aus Zürich:** 
 
 Alice Windolf weist mir durch die Arbeit mit dem Inneren Kind einen Weg auf mit meinen verdeckten tiefen Gefühlen und verkümmerten Anteilen liebevoll 
 in Kontakt zu kommen. Die Fähigkeit für mich selbst mitfühlend da zu sein war mir nach einer Krise und mit zunehmenden Druck durch Familienalltag und 
@@ -28,7 +28,7 @@ Die für mich erstaunlichste Erfahrung in der Arbeit mit Alice Windolf war zu sp
 meine Fähigkeit tief zu Fühlen gebunden halten. Es ist erst der Anfang des Weges, aber die Auflösung dieser Verhärtungen schenkt meinem Leben und Lieben wieder 
 mehr Intensität und Farben. Dafür bin ich so dankbar.  
 
-**Martina W. aus Bremen: 
+**Martina W. aus Bremen:** 
 
 In der Heilsitzung mit Alice durfte ich erfahren was mein Emotionalkörper ist. Ich konnte erfahren, dass mein Emotionalkörper sich
 von meinem Körper abgetrennt hat und das dass ein Schutzmechanismus meiner Seele ist, den ich mir im laufen meines Lebens angeeignet habe.
