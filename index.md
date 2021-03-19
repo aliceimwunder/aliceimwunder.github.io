@@ -6,11 +6,11 @@ layout: default
 	<div class="content">
 	<header>
 	<h1>Willkommen</h1>
-	<p>Dein Ort für emotionale Stabilität</p>
+	<p>Ein Ort für emotionale Stabilität</p>
 	</header>
 	<p>
 	<p><h3>Deine Seite für Innere Kindheilung und energetisches Coaching (Online-Sitzungen per zoom)</h3> </p>
-<p> Hast Du seelische Zustände, wie z.B.: Keine Energie/kein Fokus für das, wovon Du eigentlich träumst... Unverbunden durchs Leben irrend... Gefühl von Fremdbestimmung? Überfordert... Ausgebrannt... Sinnentleertes Leben... Niedergeschlagenheit... Dir ist die Freude am Ausprobieren und die 			Neugier auf Neues vergangen...? Gefühlsausbrüche... Alte emotionale Trigger, die Dich immer wieder in Gefühls-Reaktionen hineintreiben, die Du schon lange nicht mehr willst...? </p>
+<p> Hast Du seelische Zustände, wie z.B.: Keine Energie/kein Fokus für das, wovon Du eigentlich träumst... Unverbunden durchs Leben irrend... Gefühl von Fremdbestimmung? Überfordert... Ausgebrannt... Sinnentleertes Leben... Niedergeschlagenheit... Dir ist die Freude am Ausprobieren und die Neugier auf Neues vergangen...? Gefühlsausbrüche... Alte emotionale Trigger, die Dich immer wieder in Gefühls-Reaktionen hineintreiben, die Du schon lange nicht mehr willst...? </p>
 		
 <p>Du bist hier richtig, wenn Du Dich mit **Innerer Kindheilung** auf einen ganzheitlichen Lösungsweg begeben willst, sodass Du Deinen Lebensweg kraftvoll selbst bestimmen kannst. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiterend binde ich zielgerichtete Heiltools in meine Arbeit als Coach, Traumatherapeutin und energetische Heilerin ein. Hier findest Du mehr [über mich](/alicewindolf.de/about/). </p>
 
