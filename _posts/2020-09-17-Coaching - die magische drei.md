@@ -6,6 +6,8 @@ Du weißt, wo Du hinwillst? Du bist schon gut auf dem Weg, aber irgendetwas hind
 
 Dann lass Dich begleiten. Zusammen geht es schneller. Meiner Erfahrung nach lassen sich einzelne Hindernisse, an denen man Monate und Jahre herumbeißt, mit persönlicher Begleitung innerhalb von wenigen Wochen spürbar verändern. 
 
+![Sonnenuntergang im Ozean](2020-09-17-Coaching.jpg)
+
 **Typische Fragestellungen rund um Innere Kindheilung, die sich mit Coaching klären lassen**: z.B. Wie kann ich einen Glaubenssatz oder emotionalen Trigger so wandeln, dass er mich unterstützt statt schwächt? Wie kann ich einen guten Abstand für mich zu Menschen finden, die mich Energie kosten/meine Grenzen nicht wahren? Welche Änderungen benötige ich in meinem Berufsalltag, um meine Grenzen wahrzunehmen und mich klar abzugrenzen? Wie kann ich Selbstkritik in Selbstliebe wandeln? Wie beende ich einen mich schädigenden Perfektionismus? u.v.m.
 
 
