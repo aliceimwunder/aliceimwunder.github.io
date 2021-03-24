@@ -15,13 +15,14 @@ layout: default
 <p>Dann bist Du hier richtig. Hier findest Du ganzheitliche Lösungswege, sodass Du Deinen Lebensweg kraftvoll selbst bestimmen kannst. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtete Heiltools in meine Arbeit als Coach, Traumatherapeutin und energetische Heilerin ein. Hier findest Du mehr [über mich](/alicewindolf.de/about/). </p>
 
 <p><h4>Ein Feedback zu meinem InnerChildHealing - Coaching, von Maria W. aus Liechtenstein: </h4></p> 
-<p>"Nun möchte ich, solange das Alltagsleben mich einholt, dir grad noch ein
-Feedback geben. Das Angebot mich zu unterstützen um hinzuschauen, wo die
+<p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
+Feedback geben.</p> 
+<p>Das Angebot mich zu unterstützen um hinzuschauen, wo die
 Blockade noch verankert ist in meinem Lebensverlauf, um es zu integrieren
 hab ich gerne angenommen, weil mich neue Herangehensweisen immer
 interessieren. Dass es dann so hilfreich und klarmachend ist, hat mich
 selbst erstaunt. Durch deine Technik und liebevolle Art, mich mit den
-richtigen Fragen zum Hinschauen zu bewegen, konnte ich sogar das darunter
+richtigen Frage<p>n zum Hinschauen zu bewegen, konnte ich sogar das darunter
 liegende Thema noch entdecken und herauslösen, um es anzuschauen. So
 verstand ich endlich, welche Ängste mich zum Mauer-aufrecht-erhalten
 bewegten, um ja nicht verletzt zu werden. Das verstehen war der eine
