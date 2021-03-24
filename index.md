@@ -14,8 +14,8 @@ layout: default
 		
 <p>Du bist hier richtig, wenn Du Dich mit **Innerer Kindheilung** auf einen ganzheitlichen Lösungsweg begeben willst, sodass Du Deinen Lebensweg kraftvoll selbst bestimmen kannst. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiterend binde ich zielgerichtete Heiltools in meine Arbeit als Coach, Traumatherapeutin und energetische Heilerin ein. Hier findest Du mehr [über mich](/alicewindolf.de/about/). </p>
 
-<p><h3> Ein Feedback zu meinem InnerChildHealing - Coaching, von Maria W. aus Liechtenstein: 
-Nun möchte ich, solange das Alltagsleben mich einholt, dir grad noch ein
+<p>Ein Feedback zu meinem InnerChildHealing - Coaching, von Maria W. aus Liechtenstein: </p> 
+<p>Nun möchte ich, solange das Alltagsleben mich einholt, dir grad noch ein
 Feedback geben. Das Angebot mich zu unterstützen um hinzuschauen, wo die
 Blockade noch verankert ist in meinem Lebensverlauf, um es zu integrieren
 hab ich gerne angenommen, weil mich neue Herangehensweisen immer
