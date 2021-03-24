@@ -14,6 +14,32 @@ layout: default
 		
 <p>Du bist hier richtig, wenn Du Dich mit **Innerer Kindheilung** auf einen ganzheitlichen Lösungsweg begeben willst, sodass Du Deinen Lebensweg kraftvoll selbst bestimmen kannst. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiterend binde ich zielgerichtete Heiltools in meine Arbeit als Coach, Traumatherapeutin und energetische Heilerin ein. Hier findest Du mehr [über mich](/alicewindolf.de/about/). </p>
 
+<p><h3> Ein Feedback zu meinem InnerChildHealing - Coaching, von Maria W. aus Liechtenstein: 
+Nun möchte ich, solange das Alltagsleben mich einholt, dir grad noch ein
+Feedback geben. Das Angebot mich zu unterstützen um hinzuschauen, wo die
+Blockade noch verankert ist in meinem Lebensverlauf, um es zu integrieren
+hab ich gerne angenommen, weil mich neue Herangehensweisen immer
+interessieren. Dass es dann so hilfreich und klarmachend ist, hat mich
+selbst erstaunt. Durch deine Technik und liebevolle Art, mich mit den
+richtigen Fragen zum Hinschauen zu bewegen, konnte ich sogar das darunter
+liegende Thema noch entdecken und herauslösen, um es anzuschauen. So
+verstand ich endlich, welche Ängste mich zum Mauer-aufrecht-erhalten
+bewegten, um ja nicht verletzt zu werden. Das verstehen war der eine
+Schritt, zu dem du mir verholfen hast. Weiters zeigtest du mir auch mit
+deiner Technik, welche Schritte helfen, um die Annäherung zum kleinen Ich
+zu ermöglichen. Das wiederum zeigt mir, welche Veränderungen ich in
+meinem Verhalten tun kann, um genau dies im Alltag zu erreichen. Und dann
+kurz vor dem Abschluss zeigte sich die 2. Angst, zu der wir hingeschaut
+haben - und mithilfe deiner Inspiration bin ich nun daran, auch hier das
+Schattenverhalten zu korrigieren.</p> 
+<p> Deine Art, mich dahin zu führen, ist Hilfreich, Kompetent, Achtsam und
+sehr Erkenntnisreich und vorallem wirklich befreiend.</p> 
+
+<p> hey du liebe, das war wirklich ein Schlüssel, um so schnell
+voranzukommen, das ich deine Hilfe bekam! ein riesiges Dankeschön von
+mir zu dir! </p> 
+
+
 <p>In meinem <a href="/blog">Blog</a> "Auch Buddha ging ins Homeoffice" schreibe ich darüber, wie Du zu seelischer Stabilität kommst, wie Du Dich an Deine ureigene Seelenkraft anbindest und aus Deiner Mitte heraus Dein Leben gestalten kannst. Beginne Dein selbstbestimmtes Leben voller Kraft und Energie! (Was tun wir stattdessen? Die meiste Zeit verbringen wir eher damit, für andere zu funktionieren! Uns von unseren Problemen und der Vergangenheit hypnotisieren zu lassen. So musst Du nicht herumlaufen! </p>
 		</p>
 	
