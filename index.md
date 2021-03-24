@@ -14,7 +14,7 @@ layout: default
 		
 <p>Dann bist Du hier richtig. Hier findest Du ganzheitliche Lösungswege, sodass Du Deinen Lebensweg kraftvoll selbst bestimmen kannst. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtete Heiltools in meine Arbeit als Coach, Traumatherapeutin und energetische Heilerin ein. Hier findest Du mehr [über mich](/alicewindolf.de/about/). </p>
 
-<p><h3>Ein Feedback zu meinem InnerChildHealing - Coaching, von Maria W. aus Liechtenstein: </h3></p> 
+<p><h4>Ein Feedback zu meinem InnerChildHealing - Coaching, von Maria W. aus Liechtenstein: </h4></p> 
 <p>Nun möchte ich, solange das Alltagsleben mich einholt, dir grad noch ein
 Feedback geben. Das Angebot mich zu unterstützen um hinzuschauen, wo die
 Blockade noch verankert ist in meinem Lebensverlauf, um es zu integrieren
