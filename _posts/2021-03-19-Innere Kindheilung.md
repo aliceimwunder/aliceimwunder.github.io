@@ -39,7 +39,7 @@ Grundsätzlich ist der Coaching-Anteil steuerlich absetzbar.
 Ein Feedback einer Klientin, Helga L. aus Liechtenstein, zu dieser sehr wirksamen Kombination: 
 Tausend dank und noch viel mehr🙏🙏🙏🙏🙏bin soooooo glücklich, dass ich dich getroffen habe...Behandlungen sind für mich wie Kombis von allem, wo ich sonst einzeln hin gegangen bin...deshalb: thanks a Million!!!! 😊😊😊😊😊😊😊
 
-# Energetisches Coaching 
+## Energetisches Coaching 
 Du willst Dich klassisch auf dem Weg zu Deinem Ziel persönliche coachen lassen? Dabei die geistige Welt für Dich und Deine Ziele mit nutzen? Dann buche Dir ein energetisches Coaching (Aspekte aus klassichem Coaching, Energieaufstellungen, psychologische Astrologie, Energiemedizin, Aurasreinigung, Ernährungsberatung nach Anthony Williams, Engelreinigungen, Quantenheilung fließen je nach Bedarf in meine Arbeit mit ein. Was ich nicht biete, ist Channeling anderer Wesen. Mir ist es wichtig, dass Du Deine ureigene Seelenkraft auf die Straße bringst.) 
 
 Einzelsitzung: 120,- € oder zu meiner [Dreier Serie](/2020/09/17/Coaching-die-magische-drei.html). 
