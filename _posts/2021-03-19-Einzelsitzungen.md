@@ -43,7 +43,7 @@ Empfehlenswert sind drei Sitzungen zu einem Thema im Wochenabstand, um eine tief
 
 Buch Dir kurz entschlossen Deinen Termin:
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Termin buchen](https://alicewindolf.youcanbook.me)
+**[Termin buchen](https://alicewindolf.youcanbook.me)**
 </span>
 
 oder schreibe mir eine Email: alicewindolf[at]web.de 
