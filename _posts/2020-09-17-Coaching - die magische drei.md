@@ -1,6 +1,8 @@
 ---
-title: Die magische Drei - Dein Online-Coaching zum InnerChildHealing 
+title: Die magische Drei
 ---
+
+##  Dein Online-Coaching zum InnerChildHealing 
 
 ![Sonnenuntergang im Ozean](/assets/2020-09-17-Coaching.jpg)
 
