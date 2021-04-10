@@ -50,12 +50,12 @@ oder schreibe mir eine Email: alicewindolf[at]web.de
 
 
 ## Powerresilienz: die Intensiv-Kombi aus InnerChildHealing und Quantenheilung
-Die intensivsten und schnellsten Ergebnisse haben meine KlientInnen für ihr Leben mit einer Kombination aus **InnerChildHealing Coaching mit Quantenheilung** erfahren. Siehe hier zu meinem Angebot [Powerresilienz].
+Die intensivsten und schnellsten Ergebnisse haben meine KlientInnen für ihr Leben mit einer Kombination aus **InnerChildHealing Coaching mit Quantenheilung** erfahren. Siehe hier zu meinem Angebot **[Powerresilienz](/2021/04/10/Powerresilienz-Kombi.html).**
 
 ## Energetisches Coaching 
 Du willst Dich auf dem Weg zu Deinem Ziel persönliche coachen lassen? Dabei die geistige Welt für Dich und Deine Ziele mit nutzen? Dann buche Dir ein energetisches Coaching (Aspekte aus klassichem Coaching, Energieaufstellungen, psychologische Astrologie, Energiemedizin, Aurasreinigung, Ernährungsberatung nach Anthony Williams, Engelreinigungen, Quantenheilung fließen je nach Bedarf in meine Arbeit mit ein. Was ich nicht biete, ist Channeling anderer Wesen. Mir ist es wichtig, dass Du Deine ureigene Seelenkraft auf die Straße bringst.) 
 
-Einzelsitzung: 120,- € oder zu meiner [Dreier Serie](/2020/09/17/Coaching-die-magische-drei.html). 
+Einzelsitzung: 150,- € oder zu meiner **[Dreier Serie](/2020/09/17/Coaching-die-magische-drei.html).** 
 
 
 
