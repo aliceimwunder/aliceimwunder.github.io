@@ -22,6 +22,7 @@ Diese Kombination funktioniert wie folgt:
 - 3 Sitzungen Innere Kindheilung - Coaching
 - 3 Sitzungen Quantenheilung
 
+Dauer einer Sitzung ca. 60 min. Günstig ist eine Sitzung pro Woche. Ich hatte auch schon KlientInnen, die schneller arbeiten wollten oder die mehr Zeit zur Integration benötigten. Daher dauert diese Kombination etwa 4 bis 8 Wochen. 
 Buch Dir kurz entschlossen Deinen Termin:
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
@@ -30,11 +31,11 @@ Buch Dir kurz entschlossen Deinen Termin:
 
 oder schreibe mir eine Email: alicewindolf[at]web.de 
 
-Kosten 480,- €
-Grundsätzlich ist der Coaching-Anteil steuerlich absetzbar.
+Kosten 480,- € (Grundsätzlich ist der Coaching-Anteil steuerlich absetzbar.)
 
 ## Ein Feedback einer Klientin, Helga L. aus Liechtenstein 
 Sie schrieb mir zu dieser sehr wirksamen Kombination: 
+
 *Tausend dank und noch viel mehr*🙏🙏🙏🙏🙏*bin soooooo glücklich, dass ich dich getroffen habe...Behandlungen sind für mich wie Kombis von allem, wo ich sonst einzeln hin gegangen bin...deshalb: thanks a Million!!!!* 😊😊😊😊😊😊😊
 
 Lieber erst in Ruhe eine Einzelsitzung buchen? [Mein Angebot findest Du hier.](/2021/03/19/Einzelsitzungen.html) 
