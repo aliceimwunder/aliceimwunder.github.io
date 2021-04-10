@@ -3,7 +3,7 @@ title: Powerresilienz - Hol sie Dir
 ---
 
 ## Die effiziente Kombi aus InnerchildHealing und Quantenheilung
-![Monolithen](2020-04-10-Monolithen.jpg)
+![Monolithen](/assets/2021-04-10-Monolithen.jpg)
 
 Werde emotional so robust, dass Du allen widrigen Bedingungen in Deinem Leben gut begegnen kannst. Leichtigkeit und zugleich intensive Tiefe darf in Dein Leben einziehen. 
 
