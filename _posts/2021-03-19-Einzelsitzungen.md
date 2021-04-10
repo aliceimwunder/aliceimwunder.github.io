@@ -16,6 +16,15 @@ Dauer einer Sitzung: ca. 60min. Kosten 99,-€.
 
 Empfehlenswert sind einige Sitzungen im Wochenabstand, um eine tiefere und langanhaltende Wirkung zu erzeugen. 6-Karte: 480,-€. Grundsätzlich sind Coaching-Kosten steuerlich absetzbar. 
 
+Buch Dir kurz entschlossen Deinen Termin:
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Termin buchen](https://alicewindolf.youcanbook.me)
+</span>
+
+oder schreibe mir eine Email: alicewindolf[at]web.de 
+
+
+
 ## Lichtkörperreinigung - Quantenheilung
 Du hast nicht nur einen physischen Körper, den Du unter die Dusche stellen kannst! Es ist sehr wohltuend, den eigenen energetischen Lichtkörper ebenfalls zu reinigen und auszugleichen. Dadurch kannst Du 
 - Dich wesentlich effektiver auf Deine Ziele ausrichten.
@@ -26,10 +35,20 @@ Du hast nicht nur einen physischen Körper, den Du unter die Dusche stellen kann
 
 Günstig ist für diese energetische Arbeit, sich ein positives Ziel auszusuchen. Etwas, das nicht so klappt, wie man es gerne hätte. Dann zeigen sich sofort die Hindernisse auf Deinem Weg, aber ohne dass sie zum Mittelpunkt werden und Dich in ihren Bann schlagen können. Von meinen KlientInnen bisher am häufigsten gewählt: eine,n PartnerIn finden, Geldfluss erhöhen, Lebensmut stärken, Sicherheit für ein Auftreten in der Öffentlichkeit ausbauen, Sexualität freier gestalten. 
 
-Dauer einer Reinigung: ca. 60min. Kosten 99,-€. Empfehlenswert sind drei Sitzungen im Wochenabstand, um eine tiefere und langanhaltende Wirkung zu erzeugen. 3-Karte: 250,-€. 
+Dauer einer Reinigung: ca. 60min. Kosten 99,-€. 
 
-## Kombi aus InnerChildHealing und Quantenheilung
-Die intensivsten und schnellsten Ergebnisse haben meine KlientInnen für ihr Leben mit einer Kombination aus **InnerChildHealing Coaching mit Quantenheilung** erfahren. 
+Empfehlenswert sind drei Sitzungen im Wochenabstand, um eine tiefere und langanhaltende Wirkung zu erzeugen. 3-Karte: 250,-€. 
+
+Buch Dir kurz entschlossen Deinen Termin:
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Termin buchen](https://alicewindolf.youcanbook.me)
+</span>
+
+oder schreibe mir eine Email: alicewindolf[at]web.de 
+
+
+## Powerresilienz: die Intensiv-Kombi aus InnerChildHealing und Quantenheilung
+Die intensivsten und schnellsten Ergebnisse haben meine KlientInnen für ihr Leben mit einer Kombination aus **InnerChildHealing Coaching mit Quantenheilung** erfahren. Siehe hier zu meinem Angebot [Powerresilienz].
 
 Ich biete am liebesten diese Kombi an, weil Du mit dem InnerChildHealing Möglichkeiten zur wirksamen Selbstfürsorge in die Hand bekommst. Du wirst mit der Zeit unabhängiger - auch von mir. Der energetische Anteil der Arbeit beschleunigt dann diese Selbstheilung spürbar, sodass Du schneller Ergebnisse hast (und seien wir mal ehrlich, das ist schon ziemlich cool, wenn man nicht jahrelang auf die Ergebnisse der eigenen Selbstfürsorge warten muss.) Quantenheilung kann zwar grundsätzlich auch jeder, aber die Hürden, ihr im eigenen Leben Wirksamkeit für sich selbst zu geben, sind erfahrungsgemäß so hoch, dass man hier nicht so schnell Ergebnisse erfährt (hängt immer von der Vorerfahrung z.B. mit Meditation, Yoga, TaiChi, Energiearbeit etc. ab.)
 
