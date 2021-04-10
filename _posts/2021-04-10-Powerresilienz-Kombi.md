@@ -40,6 +40,9 @@ Sie schrieb mir zu dieser sehr wirksamen Kombination:
 
 Lieber erst in Ruhe eine Einzelsitzung buchen? [Mein Angebot findest Du hier.](/2021/03/19/Einzelsitzungen.html) 
 
+**Disclaimer**: Coaching/Energiearbeit dient der Selbsthilfe. Es ist kein Ersatz für medizinisch notwendige Behandlungen. Bist Du Dir hinsichtlich Deiner Gesundheit unsicher, wende Dich bitte immer an Deinen Arzt, Psychotherapeuten oder Heilpraktiker vor Ort. 
+
+
 
 
 
