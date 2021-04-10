@@ -18,7 +18,7 @@ Empfehlenswert sind einige Sitzungen im Wochenabstand, um eine tiefere und langa
 
 Buch Dir kurz entschlossen Deinen Termin:
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Termin buchen](https://alicewindolf.youcanbook.me)
+**[Termin buchen](https://alicewindolf.youcanbook.me)**
 </span>
 
 oder schreibe mir eine Email: alicewindolf[at]web.de 
