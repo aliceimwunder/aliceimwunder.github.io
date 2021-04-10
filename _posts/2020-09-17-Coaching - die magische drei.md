@@ -2,7 +2,7 @@
 title: Die magische Drei - Dein Online-Coaching zum InnerChildHealing 
 ---
 
-![Magie im Leben](/assets/2020-09-17-Magie im Leben.jpg)
+![Sonnenuntergang im Ozean](/assets/2020-09-17-Coaching.jpg)
 
 Du weißt, wo Du hinwillst? Du bist schon gut auf dem Weg, aber irgendetwas hindert Dich an Deinem Ziel? Ausgerechnet ein inneres, emotionales Reaktionsmuster, ein alter Glaubenssatz, was Du endlich abstellen willst? Vielleicht kommt auch ausgerechnet bei der Umsetzung regelmäßig Verwirrung zu den nächsten Schritten auf, obwohl Du endlich Klarheit zu Deinem Ziel gefunden hast?
 
@@ -62,8 +62,7 @@ oder schreibe mir eine Email: alicewindolf[at]web.de
 
 **Disclaimer**: Coaching dient der Selbsthilfe. Es ist kein Ersatz für medizinisch notwendige Behandlungen. Bist Du Dir hinsichtlich Deiner Gesundheit unsicher, wende Dich bitte immer an Deinen Arzt, Psychotherapeuten oder Heilpraktiker vor Ort. 
 
-![Sonnenuntergang im Ozean](/assets/2020-09-17-Coaching.jpg)
-
+![Magie im Leben](/assets/2020-09-17-Magie im Leben.jpg)
 
 
 
