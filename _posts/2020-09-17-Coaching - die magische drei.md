@@ -2,6 +2,8 @@
 title: Die magische Drei - Dein Online-Coaching zum InnerChildHealing 
 ---
 
+![Magie im Leben](2020-09-17-Magie im Leben.jpg)
+
 Du weißt, wo Du hinwillst? Du bist schon gut auf dem Weg, aber irgendetwas hindert Dich an Deinem Ziel? Ausgerechnet ein inneres, emotionales Reaktionsmuster, ein alter Glaubenssatz, was Du endlich abstellen willst? Vielleicht kommt auch ausgerechnet bei der Umsetzung regelmäßig Verwirrung zu den nächsten Schritten auf, obwohl Du endlich Klarheit zu Deinem Ziel gefunden hast?
 
 Dann lass Dich begleiten. Zusammen geht es schneller. Meiner Erfahrung nach lassen sich emotionale Hindernisse, an denen man Monate und Jahre herumbeißt, mit persönlicher Begleitung innerhalb von wenigen Wochen spürbar verändern. 
@@ -50,7 +52,7 @@ Persönliche Begleitung für positive Veränderung macht das Leben einfacher. De
 
 Du kannst ehrlich stolz auf Dich sein, wenn Du **in Deinem selbstbestimmten Leben ankommst.** Ehrlich gesagt, aus meiner Erfahrung kann das Monate und Jahre dauern. Vor 2012 hat es zum Teil Jahrzehnte gebraucht. Das muss es nicht mehr. Mit der neuen 5. Dimensionsenergie dürfen es auch einfach mal nur Minuten, Stunden oder ein paar Wochen sein. **Deine Lebenszeit ist zu schade, um sie mit endlosen Versuchen zu verbringen.** 
 
-Kosten: 498,-€
+Kosten: 447,-€
 
 Hol Dir Deine Begleitung: 
 
