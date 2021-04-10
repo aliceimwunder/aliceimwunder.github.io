@@ -1,10 +1,10 @@
 ---
-title: Die magische Drei - Dein Online-Coaching zum Inner Child Healing 
+title: Die magische Drei - Dein Online-Coaching zum InnerChildHealing 
 ---
 
-Du weißt, wo Du hinwillst? Du bist schon gut auf dem Weg, aber irgendetwas hindert Dich an Deinem Ziel? Vielleicht auch ein emotionales Reaktionsmuster, dass Du so gerne abstellen würdest? Vielleicht kommt immer dann Verwirrung zu den nächsten Schritten auf, obwohl Du endlich Klarheit zu Deinem Ziel gefunden hast?
+Du weißt, wo Du hinwillst? Du bist schon gut auf dem Weg, aber irgendetwas hindert Dich an Deinem Ziel? Ausgerechnet ein inneres, emotionales Reaktionsmuster, ein alter Glaubenssatz, was Du endlich abstellen willst? Vielleicht kommt auch ausgerechnet bei der Umsetzung regelmäßig Verwirrung zu den nächsten Schritten auf, obwohl Du endlich Klarheit zu Deinem Ziel gefunden hast?
 
-Dann lass Dich begleiten. Zusammen geht es schneller. Meiner Erfahrung nach lassen sich einzelne Hindernisse, an denen man Monate und Jahre herumbeißt, mit persönlicher Begleitung innerhalb von wenigen Wochen spürbar verändern. 
+Dann lass Dich begleiten. Zusammen geht es schneller. Meiner Erfahrung nach lassen sich emotionale Hindernisse, an denen man Monate und Jahre herumbeißt, mit persönlicher Begleitung innerhalb von wenigen Wochen spürbar verändern. 
 
 ![Sonnenuntergang im Ozean](2020-09-17-Coaching.jpg)
 
@@ -15,7 +15,7 @@ Dann lass Dich begleiten. Zusammen geht es schneller. Meiner Erfahrung nach lass
 
 - **einem kostenfreien Vorgespräch** von ca. 20-30min, in dem wir zusammen prüfen, welche konkrete Blockade Dich auf Deinem Weg von Deinem persönlichen Ziel abhält. Wir klären, ob ich Dich gut unterstützen kann, so wie Du es gerade brauchst. Das Gespräch ist unverbindlich, sodass Du in Ruhe entscheiden kannst, ob ich die richtige Begleitung bin und womit Du Dich am besten unterstützt siehst. Wir klären Deine genaue Ausgangslage.
 - **3 Online-Sessions**. Jeweils ungefähr eine Stunde Raum nur für Dich. Jeweils mit ein bis zwei Wochen Abstand, um die Impulse ausreichend im Alltag integrieren zu können. 
-- **3 auf Dich angepassten Videos/Audios** je nach Deinem Bedarf: beispielsweise zum Thema Meridian-Ausgleich, Meditation, Ernährung (die Dich beim Ausstieg aus Kampf- und Fluchtmechanismen unterstützt), psychologische Astrologie und Wandeln alter Glaubenssätze. 
+- **3 auf Dich angepassten Videos/Audios** je nach Deinem Bedarf: beispielsweise zum Thema Meridian-Ausgleich, Meditation, Ernährung (die Dich beim Ausstieg aus Flucht- und Kampfmechanismen Deines Körpers unterstützt), psychologische Astrologie oder Wandeln alter Glaubenssätze. 
 
 Kostenloses Strategiegespräch buchen: 
 
