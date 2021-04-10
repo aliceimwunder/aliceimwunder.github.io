@@ -37,6 +37,8 @@ Grundsätzlich ist der Coaching-Anteil steuerlich absetzbar.
 Sie schrieb mir zu dieser sehr wirksamen Kombination: 
 *Tausend dank und noch viel mehr*🙏🙏🙏🙏🙏*bin soooooo glücklich, dass ich dich getroffen habe...Behandlungen sind für mich wie Kombis von allem, wo ich sonst einzeln hin gegangen bin...deshalb: thanks a Million!!!!* 😊😊😊😊😊😊😊
 
+Lieber erst in Ruhe eine Einzelsitzung buchen? [Mein Angebot findest Du hier.](/2021/03/19/Einzelsitzungen.html) 
+
 
 
 
