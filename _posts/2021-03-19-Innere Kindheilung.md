@@ -2,7 +2,7 @@
 title: Einzelsitzungen 
 ---
 
-![2020-03-19-innere Kindheilung]
+![2020-03-19-innere Kindheilung.jpg]
 
 ## InnerChildHealing Coaching - Innere Kindheilung
 Innere Kindheilung ist eine wunderbare Methode, um 
