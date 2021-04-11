@@ -13,7 +13,7 @@ Fühlst Du Dich erschöpft, überfordert oder blockiert? Vom Leben irgendwie abg
 
 Dann geht es Dir vielleicht wie vielen anderen. Mit Corona werden alte Systeme immer brüchiger, die Erde reinigt sich gerade im hohen Tempo und **die Schwingung steigt** auf diesem Planeten. Die Übersicht behalten, geerdet aus dem eigenen Sein handeln, kann leichter gesagt als getan sein.
 
-Daher biete ich einmal im Monat **eine offene Meditation** in Form einer Lichtkörperreinigung bzw. Quantenheilung an. Du kannst Deinen Lichtkörper auf einfache Art reinigen lassen und Dich auf Dein Ziel heilend ausrichten.
+Daher biete ich einmal im Monat **eine offene Meditation** in Form einer Lichtkörperreinigung bzw. Quantenheilung an. Du kannst Deinen Lichtkörper auf einfache Art reinigen lassen und Dich auf Dein Ziel heilend ausrichten. Du willst mehr über mich wissen? [Infos findest Du hier](/about/). 
 
 ## Angesprochen?
 Dann melde Dich hier zu **meinem Newsletter** an: alicewindolf@web.de. 
