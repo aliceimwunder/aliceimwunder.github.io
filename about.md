@@ -4,6 +4,8 @@ title: About
 permalink: /about/
 ---
 
+![Jaymaleh](assets/about-Portrait1.jpg)
+
 ## Was biete ich an? 
 Bei mir bist Du richtig, wenn Du emotionale Stabilität für Dich erreichen willst. Eine Stabilität, die Dir Deine **Kreativität und Entscheidungsfreiheit** in herausfordernden Situationen erhält. - Kein automatisches: im Boden versinken, keine blinde Wunt, keine Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Haß oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders, eine Einschränkung der Lebensqualität bedeuten sie alle. 
 
@@ -39,7 +41,7 @@ es braucht um sich von Situationen abzugrenzen, die mein kindliches Ich nicht be
 braucht.
 
 
-![ich](/assets/about-Portrait.jpg)
+![Jaymaleh](/assets/about-Portrait2.jpg)
 
 ## Wie bin ich dazu gekommen, Menschen ihre innere Stabilität und Kraft zu zeigen?
 
