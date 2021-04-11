@@ -2,7 +2,8 @@
 title: Kostenfreie offene Gruppenmeditation
 ---
 
-Melde Dich zu meinem Newsletter an und erhalte Deine Einladung: alicewindolf@web.de.
+## Melde Dich zu meinem Newsletter an und erhalte Deinen zoom-link
+alicewindolf@web.de.
 
 ![Wellen mit Kind](/assets/2021-04-11-Wellen mit Kind.jpg)
 
