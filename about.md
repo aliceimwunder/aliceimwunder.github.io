@@ -23,24 +23,24 @@ Bei Interesse an einer längerfristigen **Traumatherapie** bitte melden (nur off
 
 **Helen F. aus Zürich:** 
 
-Alice Windolf weist mir durch die Arbeit mit dem Inneren Kind einen Weg auf mit meinen verdeckten tiefen Gefühlen und verkümmerten Anteilen liebevoll 
+*Alice Windolf weist mir durch die Arbeit mit dem Inneren Kind einen Weg auf mit meinen verdeckten tiefen Gefühlen und verkümmerten Anteilen liebevoll 
 in Kontakt zu kommen. Die Fähigkeit für mich selbst mitfühlend da zu sein war mir nach einer Krise und mit zunehmenden Druck durch Familienalltag und 
 beruflichen Sorgen abhanden gekommen. Mit großer Wärme und Humor, aber auch mit Ruhe und Klarheit schafft Alice Windolf 
-einen geschützten Raum und gibt mir die Möglichkeit innerlich aufzuatmen und wahrzunehmen was gerade da ist. 
+einen geschützten Raum und gibt mir die Möglichkeit innerlich aufzuatmen und wahrzunehmen was gerade da ist.* 
 
-Die für mich erstaunlichste Erfahrung in der Arbeit mit Alice Windolf war zu spüren, dass die Verhärtungen, die mich einmal vor etwas schützen sollten, zugleich auch 
+*Die für mich erstaunlichste Erfahrung in der Arbeit mit Alice Windolf war zu spüren, dass die Verhärtungen, die mich einmal vor etwas schützen sollten, zugleich auch 
 meine Fähigkeit tief zu Fühlen gebunden halten. Es ist erst der Anfang des Weges, aber die Auflösung dieser Verhärtungen schenkt meinem Leben und Lieben wieder 
-mehr Intensität und Farben. Dafür bin ich so dankbar.  
+mehr Intensität und Farben. Dafür bin ich so dankbar.*  
 
 **Martina W. aus Bremen:** 
 
-In der Heilsitzung mit Alice durfte ich erfahren was mein Emotionalkörper ist. Ich konnte erfahren, dass mein Emotionalkörper sich
+*In der Heilsitzung mit Alice durfte ich erfahren was mein Emotionalkörper ist. Ich konnte erfahren, dass mein Emotionalkörper sich
 von meinem Körper abgetrennt hat und das dass ein Schutzmechanismus meiner Seele ist, den ich mir im laufen meines Lebens angeeignet habe.
-Ich konnte mich mit meinem Emotionalkörper wieder verbinden.
+Ich konnte mich mit meinem Emotionalkörper wieder verbinden.*
 
-Durch die Behandlung von Alice konnte ich Kontakt zu meinem inneren Kind aufnehmen. Ich konnte mit meinem inneren Kind zusammen herausfinden, was
+*Durch die Behandlung von Alice konnte ich Kontakt zu meinem inneren Kind aufnehmen. Ich konnte mit meinem inneren Kind zusammen herausfinden, was
 es braucht um sich von Situationen abzugrenzen, die mein kindliches Ich nicht betreffen und für die es nicht die Verantwortung übernehmen
-braucht.
+braucht.*
 
 
 ## Wie bin ich dazu gekommen, Menschen ihre innere Stabilität und Kraft zu zeigen?
@@ -48,21 +48,21 @@ Ich bin 45 Jahre alt, verheiratet, und habe ein großartiges Tochterherz. In mei
  
 Wenn da nicht diese innere Stimme gewesen wäre, dass ich das Traumleben eines anderen lebte. Wenn ich mich nicht mittlerweile in meinen dritten Burnout manövriert hätte... Die Selbstfürsorge gut vergraben unter dem Kümmern um andere in allen Bereichen meines Lebens. Meine Hellfühligkeit fand ich lästig. Spiritualität war ein nettes Hobby, bei dem schon die Vorstellung, beruflich damit zu arbeiten, schlicht abwegig war. 
 
-Eines Nachts rief mein Mann den Notarzt. Das letzte, was ich hörte, war die Stimme des Notarztes: Wir nehmen Ihre Frau mit, sie hat einen Herzinfarkt. Das letzte, was ich dachte, war, welche Frau meint der denn?
+Eines Nachts rief mein Mann den Notarzt. Das letzte, was ich hörte, war die Stimme des Notarztes: "Wir nehmen Ihre Frau mit, sie hat einen Herzinfarkt." Das letzte, was ich dachte, war, welche Frau meint der denn?
 
 
 ### Das Ende meines Lebens
-Als sich die Nebenlschwaden drei Tage später lichteten, stand ein kardiologischer Chefarzt vor mir. Ich hatte folgende Aussicht von meinem Bett: Dialyse wegen Nierenversagen. Entfernen der Milz wegen schwerer innerer Blutungen, die die Milz erdrückt hätten. Herztransplantation, weil nach zwei Herzinfarkten es sein könnte, dass das nichts mehr wird mit der Originalausgabe in meiner Brust. Schwere OP's wegen Tumor in der Herzaorta. Gar keine Aussicht wegen Leberversagen. Formulierung des Arztes: "Da müsste man Respekt vor dem Leben haben."
+Als sich die Nebenlschwaden drei Tage später lichteten, stand ein kardiologischer Chefarzt vor mir. Ich hatte folgende Aussicht von meinem Bett: Dialyse wegen Nierenversagen. Entfernen der Milz wegen schwerer innerer Blutungen, die die Milz erdrückt hätten. Herztransplantation, weil nach zwei Herzinfarkten in Folge es sein könnte, dass das nichts mehr wird mit der Originalausgabe in meiner Brust. Schwere OP's wegen Tumor in der Herzaorta. Gar keine Aussicht wegen Leberversagen. Formulierung des Arztes: **"Da müsste man Respekt vor dem Leben haben."**
  
-Ich entschied in diesem Bett, dass ich meine damals fünfjährige Tochter nicht allein auf diesem Planeten zurücklassen würde, und dass ich endlich herausfinden würde, was in aller Welt ich auf diesem Planeten wirklich will. Was geht in einem Intensivbett mit gefühlt 100 Schläuchen? Mit dem eigenen Körper reden. Meiner Fähigkeit, Energieströme in einem Körper wahrnehmen zu können, das erste Mal in meinem ganzen Leben Aufmerksamkeit schenken. 
+Ich entschied in diesem Bett, dass ich meine damals fünfjährige Tochter nicht allein auf diesem Planeten zurücklassen würde, und dass ich endlich herausfinden würde, was in aller Welt **ich auf diesem Planeten wirklich will**. Was geht in einem Intensivbett mit gefühlt 100 Schläuchen? Mit dem eigenen Körper reden. Meiner Fähigkeit, Energieströme in einem Körper wahrnehmen zu können, schenkte ich das erste Mal in meinem ganzen Leben ernsthaft Aufmerksamkeit. Ich hatte schlicht nichts anderes zu tun. 
 
-Ab diesem Punkt spielten die Geräte auf der Intensivstation verrückt. Medikamente ließen sich nicht richtig einstellen, es ließ sich keinen medizinischen Grund für den Herzinfarkt finden - trotz zum Teil gruseligsten Untersuchungen. Nichts, nada, rien de rien. Die Ärzte unterstellten sich gegenseitig Inkompetenz. Ich war vom Opfer zum Zaungast einer sehr seltsamen Veranstaltung geworden.
+Ab diesem Punkt spielten die Geräte auf der Intensivstation verrückt. Medikamente ließen sich nicht richtig einstellen.Ees ließ sich keinen medizinischen Grund für den Herzinfarkt finden - trotz zum Teil gruseligsten Untersuchungen. Nichts, nada, rien de rien. Die Ärzte unterstellten sich gegenseitig Inkompetenz. Ich war vom Opfer zum Zaungast einer sehr seltsamen Veranstaltung geworden.
 
 
 ### Meine Weg in mein zweites Leben
-Nach 16 Tagen war Punkt 1 erreicht: Ich marschierte - wenn auch noch etwas wackelig - auf meinen eigenen zwei Beinen mit allen Organen ohne Tumor aus diesem Krankenhaus und meine Tochter hatte ihre Mutter noch.
+Nach 16 Tagen war Punkt 1 erreicht: Ich marschierte - wenn auch wackelig - auf meinen eigenen zwei Beinen mit allen Organen ohne Tumor aus diesem Krankenhaus und meine Tochter hatte ihre Mutter noch.
 
-Für Punkt 2 habe ich eine Weile gebraucht. Die Verwaltungsbeamtin mutierte über die Zeit zur Traumatherapeutin (Heilpraktikerin für Psychotherapie), Coach und energetischen Heilerin. Ich richte mit meinen KlientInnen einen absoluten Fokus darauf, was in ihrem Leben geht und was gehen darf. Ich integriere alte emotionale Trigger, suche mit ihnen nach ihren verschütteten Superpowers und nutze dafür **Coaching-Tools und Innere Kindheilung**. 
+Für Punkt 2 habe ich eine Weile gebraucht. Die Verwaltungsbeamtin mutierte über die Zeit zur Traumatherapeutin (Heilpraktikerin für Psychotherapie), Coach und energetischen Heilerin. Ich richte mit meinen KlientInnen einen absoluten Fokus darauf, was in ihrem Leben geht und wofür sie keine Energie mehr verwenden wollen. Ich unterstütze sie bei der Integration alter emotionaler Trigger, suche mit ihnen nach ihren verschütteten Superpowers und nutze dafür **Coaching-Tools und Innere Kindheilung**. 
 
 ### Lichtkörperaufbau
 Wer weiter gehen möchte, bucht dazu **Lichtkörperreinigung.** All die alten Glaubenssätze, emotionalen Trigger, Selbstkritik, Gefühle von Fremdbestimmung und Niedergeschlagenheit haben einen Abdruck in Deinem Energiekörper (Meridiane, Chacras, Auraschichten). Heilungsprozesse können schneller mit Unterstützung energetische Unterstützung gehen als ohne funktionieren. Wenn ich darüber nachdenke, was ich genau tue, dann würde ich sagen, ich nehme eine energetische Mistgabel, krempel meine inneren Ärmel hoch und helfe meinen KlientInnen auf allen Ebenen zu entrümpeln; Platz zu machen, für die Liebe, die sie sind. Ich klettere mit ihnen in Tiefen, in die sich sonst kaum einer wagt. Ein Turbo-Programm in die 5. Dimension.
