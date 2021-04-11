@@ -16,7 +16,7 @@ Dann geht es Dir vielleicht wie vielen anderen. Mit Corona werden alte Systeme i
 Daher biete ich einmal im Monat **eine offene Meditation** in Form einer Lichtkörperreinigung bzw. Quantenheilung an. Du kannst Deinen Lichtkörper auf einfache Art reinigen lassen und Dich auf Dein Ziel heilend ausrichten.
 
 ## Angesprochen?
-Dann melde Dich hier zu **meinen Newsletter** an: alicewindolf@web.de. 
+Dann melde Dich hier zu **meinem Newsletter** an: alicewindolf@web.de. 
 
 Jeder, der Interesse hat, sich einmal tief zu reinigen und klarer auf ein Thema einzulassen, kann mitmachen. Interesse an Energiearbeit einmal vorausgesetzt.
 
