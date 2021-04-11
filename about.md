@@ -7,17 +7,19 @@ permalink: /about/
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
 ## Was biete ich an? 
-Bei mir bist Du richtig, wenn Du emotionale Stabilität für Dich erreichen willst. Eine Stabilität, die Dir Deine **Kreativität und Entscheidungsfreiheit** in herausfordernden Situationen erhält. - Kein automatisches: im Boden versinken, keine blinde Wunt, keine Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Haß oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders, eine Einschränkung der Lebensqualität bedeuten sie alle. 
+Bei mir bist Du richtig, wenn Du emotionale Stabilität für Dich erreichen willst. Eine Stabilität, die Dir Deine **Kreativität und Entscheidungsfreiheit** in herausfordernden Situationen erhält. - Kein automatisches: im Boden versinken, keine (blinde) Wutanfälle, keine Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Hass oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders, eine Einschränkung der Lebensqualität bedeuten sie alle. 
 
-Den Wunsch, dass der **Raum zwischen Ereignis im Außen und eigener Handlung** darauf größer wird und damit Platz für Selbstbestimmung ensteht, den haben fast alle Menschen. Innere Kindheilung hilft dabei unmittelbar. Mit der gewonnenen Stabilität und Kraft in Dir kannst Du Dein Leben in **DEIN Leben transformieren/wandeln.** Du kannst endlich Deine eigene Seelen-PS auf die Straße bringen. 
+Den Wunsch, dass der **Raum zwischen Ereignis im Außen und eigener Handlung** darauf größer wird und damit Platz für Selbstbestimmung ensteht, den haben fast alle Menschen. Innere Kindheilung hilft dabei unmittelbar. Mit der gewonnenen Stabilität und Kraft in Dir kannst Du Dein Leben in **DEIN Leben transformieren**. Du kannst endlich Deine eigene Seelen-PS auf die Straße bringen. 
 
-Ich arbeite online v.a. mit **Innerer Kindheilung und Coaching** und werfe gerne den **Turbo mit Lichtkörperreinigung** an. Bei mir gibt es ganzheitliche, tragfähige Lösungen. Wissenschaftlich fundiert und spirituell erweiterternd. Verbinde Dich mit Deiner ureigenen Seelenkraft. Dann kannst Du Dein gesamtes Leben von innen nach außen aufbauen, agieren statt reagieren. Bei Interesse an einer längerfristigen **Traumatherapie** bitte melden (nur offline bei mir vor Ort möglich.)
+Ich arbeite online v.a. mit **Innerer Kindheilung und Coaching** und werfe gerne den **Turbo mit Lichtkörperreinigung** an. Bei mir gibt es ganzheitliche, tragfähige Lösungen. Wissenschaftlich fundiert und spirituell erweiterternd. Verbinde Dich mit Deiner ureigenen Seelenkraft. Dann kannst Du Dein gesamtes Leben von innen nach außen aufbauen, agieren statt reagieren. 
+
+Bei Interesse an einer längerfristigen **Traumatherapie** bitte melden (nur offline bei mir vor Ort möglich.)
 
 
 ## Testimonials
 **Agneta N. aus Berlin:**
 
-Alice ist einer der feinfühligsten Therapeuten, die ich kenne. Sie kann jede Gefühls- und Energieschwingung präzise wahrnehmen, was ihre Arbeit kraftvoll und klar macht. Insbesondere mag ich ihren traumatherapeutischen Ansatz. Sie hat mir mit ihrer herzlichen und mütterlichen Art geholfen, verschüttete und ungesehene Anteile in mir zu fühlen, zu umarmen und wieder miteinander in mir zuverbinden. So hatte ich endlich den Mut für mich einzustehen und Leidensdruck deutlich zu vrerringern. Vielen lieben Dank dafür!
+*Alice ist einer der feinfühligsten Therapeuten, die ich kenne. Sie kann jede Gefühls- und Energieschwingung präzise wahrnehmen, was ihre Arbeit kraftvoll und klar macht. Insbesondere mag ich ihren traumatherapeutischen Ansatz. Sie hat mir mit ihrer herzlichen und mütterlichen Art geholfen, verschüttete und ungesehene Anteile in mir zu fühlen, zu umarmen und wieder miteinander in mir zuverbinden. So hatte ich endlich den Mut für mich einzustehen und Leidensdruck deutlich zu vrerringern. Vielen lieben Dank dafür!*
 
 **Helen F. aus Zürich:** 
 
