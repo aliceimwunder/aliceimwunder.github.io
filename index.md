@@ -22,7 +22,7 @@ Blockade noch verankert ist in meinem Lebensverlauf, um es zu integrieren
 hab ich gerne angenommen, weil mich neue Herangehensweisen immer
 interessieren. Dass es dann so hilfreich und klarmachend ist, hat mich
 selbst erstaunt. Durch deine Technik und liebevolle Art, mich mit den
-richtigen Frage<p>n zum Hinschauen zu bewegen, konnte ich sogar das darunter
+richtigen Fragen zum Hinschauen zu bewegen, konnte ich sogar das darunter
 liegende Thema noch entdecken und herauslösen, um es anzuschauen. So
 verstand ich endlich, welche Ängste mich zum Mauer-aufrecht-erhalten
 bewegten, um ja nicht verletzt zu werden. Das verstehen war der eine
