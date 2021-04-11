@@ -73,7 +73,7 @@ Nun wohne ich mit meiner Familie im Berliner Speckgürtel im selbst entworfenen 
 
 In meiner Arbeit verbinde ich wissenschaftliche, wie spirituelle Ansätze, um das bestmögliche Ergebnis zu erziehlen. Hier mein Weg:  
 
-Besuch vieler Seminare zur Persönlichkeitsbildung und ganzheitlicher Heilung, wie z.B. Energy Medicine nach Donna Leon, Aufstellungsarbeit, Walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Lichkörperprozess bei Chamuel Schauffert. Spirituelle Heiltechniken von Pavlina Klemm. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie). Psychologische Astrologie/astrologische Energieaufstellung. 
+Besuch vieler Seminare zur Persönlichkeitsbildung und ganzheitlicher Heilung, wie z.B.: Energy Medicine nach Donna Leon. Aufstellungsarbeit. Walking-in-your-shoes. Inka-Schamanismus. Rhethorik. Körpersprache. Mediation. Meditation. Pranayama und Yoga. Lichkörperprozess bei Chamuel Schauffert. Spirituelle Heiltechniken von Pavlina Klemm. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie). Psychologische Astrologie/astrologische Energieaufstellung. 
 
 - Traumatherapieausbildung, arche medica
 - Heilpraktikerin für Psychotherapie, Berlin
