@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-![Jaymaleh](/assets/about-Portrait1.jpg)
+![Jaymaleh](/assets/about-Portrait2.jpg)
 
 ## Was biete ich an? 
 Bei mir bist Du richtig, wenn Du emotionale Stabilität für Dich erreichen willst. Eine Stabilität, die Dir Deine **Kreativität und Entscheidungsfreiheit** in herausfordernden Situationen erhält. - Kein automatisches: im Boden versinken, keine blinde Wunt, keine Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Haß oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders, eine Einschränkung der Lebensqualität bedeuten sie alle. 
@@ -41,11 +41,8 @@ es braucht um sich von Situationen abzugrenzen, die mein kindliches Ich nicht be
 braucht.
 
 
-![Jaymaleh](/assets/about-Portrait2.jpg)
-
 ## Wie bin ich dazu gekommen, Menschen ihre innere Stabilität und Kraft zu zeigen?
-
-Ich bin 44 Jahre alt, verheiratet, und habe ein großartiges Tochterherz. In meinem "ersten" Leben war ich Verwaltungsjuristin. Wir hatten in einer schicken Stadtwohnung in Berlin mit kleinem Garten gewohnt. Ich war stellvertretende Leiterin eines 10-köpfigen Teams, bei dem es sogar weitere Karriereaussichten trotz Teilzeitmuttidasein gab. Ich ging dabei Bürgerbeschwerden gegen die Berliner Landesverwaltung nach. Privat: Nette Cafés, nette Urlaube. Harmonische Ehe. **Was will der Mensch mehr?**
+Ich bin 45 Jahre alt, verheiratet, und habe ein großartiges Tochterherz. In meinem "ersten" Leben war ich Verwaltungsjuristin. Wir hatten in einer schicken Stadtwohnung in Berlin mit kleinem Garten gewohnt. Ich war stellvertretende Leiterin eines 10-köpfigen Teams, bei dem es sogar weitere Karriereaussichten trotz Teilzeitmuttidasein gab. Ich ging dabei Bürgerbeschwerden gegen die Berliner Landesverwaltung nach. Privat: Nette Cafés, nette Urlaube. Harmonische Ehe. **Was will der Mensch mehr?**
  
 Wenn da nicht diese innere Stimme gewesen wäre, dass ich das Traumleben eines anderen lebte. Wenn ich mich nicht mittlerweile in meinen dritten Burnout manövriert hätte... Die Selbstfürsorge gut vergraben unter dem Kümmern um andere in allen Bereichen meines Lebens. Meine Hellfühligkeit fand ich lästig. Spiritualität war ein nettes Hobby, bei dem schon die Vorstellung, beruflich damit zu arbeiten, schlicht abwegig war. 
 
@@ -65,14 +62,16 @@ Nach 16 Tagen war Punkt 1 erreicht: Ich marschierte - wenn auch noch etwas wacke
 
 Für Punkt 2 habe ich eine Weile gebraucht. Die Verwaltungsbeamtin mutierte über die Zeit zur Traumatherapeutin (Heilpraktikerin für Psychotherapie), Coach und energetischen Heilerin. Ich richte mit meinen KlientInnen einen absoluten Fokus darauf, was in ihrem Leben geht und was gehen darf. Ich integriere alte emotionale Trigger, suche mit ihnen nach ihren verschütteten Superpowers und nutze dafür **Coaching-Tools und Innere Kindheilung**. 
 
-### Lichtkörperheilung
+### Lichtkörperaufbau
 Wer weiter gehen möchte, bucht dazu **Lichtkörperreinigung.** All die alten Glaubenssätze, emotionalen Trigger, Selbstkritik, Gefühle von Fremdbestimmung und Niedergeschlagenheit haben einen Abdruck in Deinem Energiekörper (Meridiane, Chacras, Auraschichten). Heilungsprozesse können schneller mit Unterstützung energetische Unterstützung gehen als ohne funktionieren. Wenn ich darüber nachdenke, was ich genau tue, dann würde ich sagen, ich nehme eine energetische Mistgabel, krempel meine inneren Ärmel hoch und helfe meinen KlientInnen auf allen Ebenen zu entrümpeln; Platz zu machen, für die Liebe, die sie sind. Ich klettere mit ihnen in Tiefen, in die sich sonst kaum einer wagt. Ein Turbo-Programm in die 5. Dimension.
  
 ### Wie Ferien für Immer!
 Nun wohne ich mit meiner Familie im Berliner Speckgürtel im selbst entworfenen Traumhaus mit Blick auf Wald und riesigem Garten. Ich arbeite von zu Hause und helfe - immer noch - Menschen, so wie in meinem ersten "Leben". Mit dem Unterschied: in meinem zweiten habe ich den Eindruck, Menschen so zu unterstützen, dass sie Quantensprünge in ihrem Leben machen und ich ihnen nicht nur beruhigende Briefe schreiben kann.
 
-## Äußerlich sah mein Weg ungefähr so aus: 
-In meiner Arbeit verbinde ich wissenschaftliche, wie spirituelle Ansätze, um das bestmögliche Ergebnis zu erziehlen. Mein Weg sah so aus: 
+## Äußerlich sah mein Weg ungefähr so aus 
+![Jaymaleh](/assets/about-Portrait1.jpg)
+
+In meiner Arbeit verbinde ich wissenschaftliche, wie spirituelle Ansätze, um das bestmögliche Ergebnis zu erziehlen. Hier mein Weg:  
 
 Besuch vieler Seminare zur Persönlichkeitsbildung und ganzheitlicher Heilung, wie z.B. Energy Medicine nach Donna Leon, Aufstellungsarbeit, Walking-in-your-shoes, psychologische Astrologie, Inka-Schamanismus, Rhethorik, Körpersprache, Mediation, Meditation, Pranayama und Yoga. Lichkörperprozess bei Chamuel Schauffert. Spirituelle Heiltechniken von Pavlina Klemm. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie). Psychologische Astrologie/astrologische Energieaufstellung. 
 
