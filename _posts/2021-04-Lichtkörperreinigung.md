@@ -2,8 +2,10 @@
 title: Kostenfreie offene Gruppenmeditation
 ---
 
-Melde Dich zu meinem Newsletter an und erhalte Deine Einladung: 
-alicewindolf@web.de.
+Melde Dich zu meinem Newsletter an und erhalte Deine Einladung: alicewindolf@web.de.
+
+![Wellen mit Kind](/assets/2021-04-11-Wellen mit Kind.jpg)
+
 
 ## Quantenheilung - Lichtkörperreinigung
 Fühlst Du Dich erschöpft, überfordert oder blockiert? Vom Leben irgendwie abgeschnitten? Zu viel von anderen vorgegeben, zu wenig Du selbst in Deinem eigenen Leben? Kannst Du einen **Frischekick für Deinen Alltag** gebrauchen? 
