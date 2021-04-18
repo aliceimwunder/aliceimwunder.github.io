@@ -1,7 +1,11 @@
 ---
 Hilfe, ich habe eine Alltagssucht! Wie Du sie in 7 machbaren Schritten in Selbstliebe wandeln kannst. 
+---
 
-![](/assets/ .jpg)
+![2021-04-18-Strahlen](/assets/2021-04-18-Strahlen.jpg)
+
+Photo by <a href="https://unsplash.com/@sortino?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Joshua Sortino</a> on <a href="https://unsplash.com/s/photos/internet?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
 
 ## Alltagssucht heißt Selbstmedikation
 Alltagssucht lässt sich in hunderten von Varianten finden. Wenn man sich im Alltag umschaut, betäuben sich die aller/aller/allermeisten Menschen mit irgendetwas, um ihren Alltag besser zu bewältigen. Jeder hat so seine Art, Alkohol, Binchwatching, Solitaire, Sport, Schokis, Chips, Surfen bis zum Abwinken, Facebook, Vereinsarbeit bis zum Umfallen, Putzen, Workaholic... 
@@ -35,7 +39,12 @@ Wie gesagt: das ist die Königsdisziplin. Wenn einem 10 kuschelige Husky-Welpen 
 Von der Hirnchemie macht es keinen Unterschied, ob man sich ein 100Sterne Hotel vorstellt und sich in jeder Hinsicht umsorgen lässt oder ob man sich das im Außen überhaupt leisten kann. Dein Gehirn wird Oxytocin und andere Wohlfühlhormone ausschütten, ob es real passiert oder vorgestellt ist in allen Farben inkl. Geruch und Geräusche.. (Das gleiche gilt leider auch in die andere Richtung, sich auf Dauer Sorgen machen ist daher ziemlich unbekömmlich.)
 
 ## Verbiete Dir nicht, Deiner Sucht nachzugehen. 
-Der Trick: Schiebe Deine Alltagssucht für einen für Dich überschaubaren Zeitraum auf und lasse Dir in dieser Zeit genau das zu Gute kommen, was du brauchst. 
+Der Trick: Schiebe Deine Alltagssucht für einen für Dich überschaubaren Zeitraum auf. Lass Dir in dieser Zeit genau das zu Gute kommen, was du brauchst.
+
+![Nachdenkliche Frau](/assets/2021-04-18-Nachdenkliche Frau.jpg)
+
+Photo by <a href="https://unsplash.com/@mitchures?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Mitchell Hollander</a> on <a href="https://unsplash.com/s/photos/drug-abuse?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
 
 **Verbietest Du Dir die Sucht, dann löst das in Dir wahrscheinlich nur noch einen heftigeres Bedürfnis nach der Selbstmedikation aus**. Denn dann legt der innere Anteil in Dir los, einen sensiblen, überforderten Teil in Dir, also ein sensibles Innenkind schützen zu müssen. Dieser Schutzanteil ist unmittelbar mit Deinem Flucht- und Kampfsystem verbunden. D.h., der ist auf Überleben ausgelegt. Schon mal versucht, eine Tigermutter davon abzuhalten, ihr Kleines vor einer Gefahr zu retten? 
 
@@ -48,7 +57,7 @@ Ich wünsche Dir ganz viel Erfolg. Du schaffst das.
 ## Wenn es nicht klappt
 Dann liegt das vermutlich weder an dieser Übung noch an Dir, sondern daran, dass sich mehrere Bedürfnisse über einander gelegt haben. Das ist allein extrem schwierig auseinander zu dröseln. Sich mit dem sensiblen Anteil und diesem sehr kräftigen Schutzanteil in Dir auseinander zu setzen. Es ist machbar, die Überschrift dieses Artikels war ernst gemeint. Aber auch herausfordernd. 
 
-Klappt es auch mit etwas Übung nicht, dann lass Dir helfen und buche bei mir Unterstützung. Zu zweit kann man so viel leichter Klarheit ins System bringen. Quäl Dich nicht! Das macht am aller wenigsten Sinn. Dafür ist Deine Lebenszeit dann doch zu schade. 
+Klappt es auch mit etwas Übung nicht, dann lass Dir helfen und [buche bei mir Unterstützung](/2021/03/19/Einzelsitzungen.html). Zu zweit kann man so viel leichter Klarheit ins System bringen. Quäl Dich nicht! Das macht am aller wenigsten Sinn. Dafür ist Deine Lebenszeit dann doch zu schade. 
 
 
 
