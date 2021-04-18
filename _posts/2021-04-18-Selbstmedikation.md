@@ -1,5 +1,5 @@
 ---
-Hilfe, ich habe eine Alltagssucht! Wie Du sie in 7 machbaren Schritten in Selbstliebe wandeln kannst. 
+title: Hilfe, ich habe eine Alltagssucht! Wie Du sie in 7 machbaren Schritten in Selbstliebe wandeln kannst. 
 ---
 
 ![2021-04-18-Strahlen](/assets/2021-04-18-Strahlen.jpg)
