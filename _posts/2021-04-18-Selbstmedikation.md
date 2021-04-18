@@ -57,7 +57,7 @@ Aus diesem Grund ist es günstig zu schauen, dass es von vornherein nicht mehr n
 Ich wünsche Dir ganz viel Erfolg. Du schaffst das.
 
 ## Wenn es nicht klappt
-Dann liegt das vermutlich weder an dieser Übung noch an Dir, sondern daran, dass sich mehrere Bedürfnisse über einander gelegt haben. Das ist allein extrem schwierig auseinander zu dröseln. Sich mit dem sensiblen Anteil und diesem sehr kräftigen Schutzanteil in Dir auseinander zu setzen. Es ist machbar, die Überschrift dieses Artikels war ernst gemeint. Aber auch herausfordernd. 
+**Dann liegt das vermutlich weder an dieser Übung noch an Dir,** sondern daran, dass sich mehrere Bedürfnisse über einander gelegt haben. Das ist allein extrem schwierig auseinander zu dröseln. Also zumindest mich können verhedderte Knoten in einer Anorakschnur wahnsinnig machen. Genau so kann es Dir damit ergehen. Sich mit dem sensiblen Anteil und diesem sehr kräftigen Schutzanteil in Dir auseinander zu setzen, ist machbar! Die Überschrift dieses Artikels war ernst gemeint. Aber auch herausfordernd. 
 
 Klappt es auch mit etwas Übung nicht, dann lass Dir helfen und [buche bei mir Unterstützung](/2021/03/19/Einzelsitzungen.html). Zu zweit kann man so viel leichter Klarheit ins System bringen. Quäl Dich nicht! Das macht am aller wenigsten Sinn. Dafür ist Deine Lebenszeit dann doch zu schade. 
 
