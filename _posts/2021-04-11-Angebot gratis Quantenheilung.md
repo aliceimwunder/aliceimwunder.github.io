@@ -24,7 +24,7 @@ Jeder, der Interesse hat, sich einmal tief zu reinigen und klarer auf ein Thema 
 
 Du brauchst einen ruhigen Ort, an dem Du stabiles Internet für ein **Gruppentreffen auf zoom** hast, und an dem Du Dich gemütlich hinsetzen oder -legen kannst.
 
-Die **Session dauert ca. 1,5h** mit Ankommen im Gruppenraum, die eigentliche Energiearbeit und gemeinsames Ausklingen. Wunderschön ist es, wenn Du die Möglichkeit hast, im Anschluss noch ein bisschen die Sitzung nachklingen und reflektieren zu lassen. Ganz wie Du magst.  
+Die **Session dauert gut 1h** mit Ankommen im Gruppenraum, die eigentliche Energiearbeit und gemeinsames Ausklingen. Wunderschön ist es, wenn Du die Möglichkeit hast, im Anschluss noch ein bisschen die Sitzung nachklingen und reflektieren zu lassen. Ganz wie Du magst.  
 
 ## Ablauf
 Ich gehe mit der Gruppe **einzelne Auraschichten** durch, die gereinigt und aufgeladen werden. Zur Zeit erscheinen mir vier Schichten besonders hilfreich - angelehnt an die Vorgehensweise von Pavlina Klemm: 
