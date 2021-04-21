@@ -4,12 +4,12 @@ title: Offene Gruppenmeditation
 
 ![Wellen mit Kind](/assets/2021-04-11-Wellen mit Kind.jpg)
 
-## Quantenheilung - Lichtkörperreinigung
+## Gratis Quantenheilung - Lichtkörperreinigung
 Fühlst Du Dich erschöpft, überfordert oder blockiert? Vom Leben irgendwie abgeschnitten? Zu viel von anderen vorgegeben, zu wenig Du selbst in Deinem eigenen Leben? Kannst Du einen **Frischekick für Deinen Alltag** gebrauchen? 
 
 Dann geht es Dir vielleicht wie vielen anderen. Mit Corona werden alte Systeme immer brüchiger, die Erde reinigt sich gerade im hohen Tempo und **die Schwingung steigt** auf diesem Planeten. Die Übersicht behalten, geerdet aus dem eigenen Sein handeln, kann leichter gesagt als getan sein.
 
-Melde Dich hier an: alicewindolf@web.de
+Melde Dich hier zur kostenfreien Quantenheilung an: alicewindolf@web.de
 
 Daher biete ich einmal im Monat **eine offene Meditation** in Form einer Lichtkörperreinigung bzw. Quantenheilung an. Du kannst Deinen Lichtkörper auf einfache Art reinigen lassen und Dich auf Dein Ziel heilend ausrichten. Du willst mehr über mich wissen? [Infos findest Du hier](/about/). 
 
