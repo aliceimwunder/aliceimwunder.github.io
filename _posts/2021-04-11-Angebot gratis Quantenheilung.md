@@ -10,11 +10,11 @@ Fühlst Du Dich erschöpft, überfordert oder blockiert? Vom Leben irgendwie abg
 Dann geht es Dir vielleicht wie vielen anderen. Mit Corona werden alte Systeme immer brüchiger, die Erde reinigt sich gerade im hohen Tempo und **die Schwingung steigt** auf diesem Planeten. Die Übersicht behalten, geerdet aus dem eigenen Sein handeln, kann leichter gesagt als getan sein.
 
 Melde Dich hier zur kostenfreien Quantenheilung an 
-</p>
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+
+<span style='display:inline-block;padding:18px;background:#30A0ff'>
 [Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 </span>
-</p>
+
 oder schreibe mir eine Email: alicewindolf@web.de
 
 Daher biete ich einmal im Monat **eine offene Meditation** in Form einer Lichtkörperreinigung bzw. Quantenheilung an. Du kannst Deinen Lichtkörper auf einfache Art reinigen lassen und Dich auf Dein Ziel heilend ausrichten. Du willst mehr über mich wissen? [Infos findest Du hier](/about/). 
