@@ -11,7 +11,7 @@ Dann geht es Dir vielleicht wie vielen anderen. Mit Corona werden alte Systeme i
 
 Melde Dich hier zur kostenfreien Quantenheilung an 
 
-<span style='display:inline-block;padding:18px;background:#efefef'>
+<span style='display:inline-block;padding:18px;background:#ececec'>
 **[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 </span>
 
