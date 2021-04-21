@@ -12,7 +12,7 @@ Dann geht es Dir vielleicht wie vielen anderen. Mit Corona werden alte Systeme i
 Melde Dich hier zur kostenfreien Quantenheilung an 
 
 <span style='display:inline-block;padding:18px;background:#7F888F'>
-[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+**[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 </span>
 
 oder schreibe mir eine Email: alicewindolf@web.de
