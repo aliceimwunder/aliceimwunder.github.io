@@ -34,4 +34,4 @@ Für die Gruppe nehme ich ein **übergeordnetes Thema**, mit dem sich viele iden
 Du kannst darauf vertrauen, dass Dein Energiekörper Deine Hindernisse für Deine ganz persönlichen Ziele in das Gruppenfeld mit einfließen lässt. Alles ist mit allem verbunden! (Dennoch: ganz individuell kann Dein Thema für eine ganze Gruppe nicht bearbeitet werden. Für Dein konkretes Thema buche bitte [einen Einzeltermin](/2021/03/19/Einzelsitzungen.html).)
 
 ## PS: Energieaustausch
-Mit dem Newsletter versende ich einmal im Monat meinen Termin und meine Blogbeiträge bzw. Angebote. Das ist sozusagen der Energieausgleich - ohne funktioniert Energiearbeit nicht gut. Ich darf Dir meine Art ganz unverbindlich vorstellen. Wenn Du Dich angesprochen fühlst, dann buche einen Termin bei mir. Du hast den Eindruck, jemand in Deiner Umgebung würde auch davon profitieren? Dann empfehle mich weiter.
+Mit dem Newsletter versende ich einmal im Monat meinen Termin und meine Blogbeiträge bzw. Angebote. Das ist sozusagen der Energieausgleich - ohne funktioniert Energiearbeit nicht gut.  
