@@ -9,7 +9,7 @@ Kannst Du einen **Frischekick für Deinen Alltag** gebrauchen? Du würdest gerne
 
 Dann geht es Dir vielleicht wie vielen anderen. Zeitgleich mit Corona werden alte gesellschaftliche Systeme immer brüchiger, die Erde reinigt sich im hohen Tempo und die Schwingung steigt auf diesem Planeten. Die **Übersicht behalten**, **geerdet** aus dem eigenen Sein handeln, kann leichter gesagt als getan sein. **Gelassenheit** bei den kleineren und größen Stürmen Deines Lebens **wäre ein wunderbarer Zustand**? 
 
-Dann hol es Dir. Meine Angebot ist genau darauf ausgerichtet. Dazu biete ich einmal im Monat **eine offene Meditation** in Form einer Lichtkörperreinigung bzw. Quantenheilung an, um mich näher kennenzulernen. Du kannst es bei Dir auf dem Sofa gemütlich machen, Dich reinigen und Dich auf Deine Ziele auf sanfte Weise ausrichten. Starte geerdet in die Woche mit dieser Gruppenmeditation. 
+Dann hol es Dir. Meine Angebot ist genau darauf ausgerichtet. Dazu biete ich einmal im Monat **eine offene Meditation** in Form einer Lichtkörperreinigung bzw. Quantenheilung an, um mich näher kennenzulernen. Du kannst es Dir auf dem Sofa gemütlich machen, Dich reinigen und Dich auf Deine Ziele auf sanfte Weise ausrichten. **Starte geerdet in die Woche** mit dieser Gruppenmeditation. 
 
 Melde Dich hier zur kostenfreien Quantenheilung an: 
 
@@ -37,26 +37,25 @@ Ich gehe mit der Gruppe **einzelne Auraschichten** durch, die gereinigt, aufgela
 3. der Mentalkörper und 
 4. der Kausalkörper 
 
-werden mit Lichtwellen nacheinander behandelt. Ahnen- und andere Fremdeinflüsse dürfen sich sanft in Deinem Tempo verabschieden, sodass die Reinigung nicht destabilisierend wirkt. Dadurch kannst Du **Dich und Deine eigenen Impulse** - vielleicht auch aus den höheren Chakren (z.B.: 9. Chakra: der eigene Lebensplan, 10. Chakra: die Essenz, die Du wirklich bist, 11.: Deine Weisheit aus all den vorherigen Leben) - **deutlicher spüren, gelassener bleiben und Dich besser fokussieren.**  
+werden mit Lichtwellen nacheinander behandelt. Ahnen- und andere Fremdeinflüsse dürfen sich sanft in Deinem Tempo verabschieden, sodass die Reinigung nicht destabilisierend wirkt. Dadurch kannst Du **Dich und Deine eigenen Impulse** - vielleicht auch aus den höheren Chakren (z.B.: 9. Chakra: der eigene Lebensplan, 10. Chakra: die Essenz, die Du wirklich bist, 11. Chakra: Deine Weisheit aus all den vorherigen Leben) - **deutlicher spüren, gelassener bleiben und Dich besser fokussieren.**  
 
-Für die Gruppe nehme ich ein **übergeordnetes Thema**, mit dem sich viele identifizieren können. Themen, die im Grunde für ein gelungenes Leben allgemein als wichtig empfunden werden. Z.B. 
+Für die Gruppe nehme ich ein **übergeordnetes Thema**, mit dem sich viele identifizieren können. Themen, die im Grunde für ein gelungenes Leben allgemein als wichtig empfunden werden, vielleicht auch Du. Z.B. 
 - Alles, was Dein Herz blockiert (damit Du Dich mehr auf das ausrichten kannst, was Deine Seele an Impulsen schickt und weniger, was Deine Umgebung gerade meint, was gut für Dich wäre). Oder 
 - Alles, was Deinen Geldfluss behindert. Oder 
 - Alles, was Dich von harmonischen Partnerschaften abhält (egal, ob Freundschaften, Ehen, KollegInnen oder Businesspartnerschaften...). Oder
 - Alles, was Dich von Deiner seelischen Leichtigkeit abhält.
 Ich richte die Quantenheilung **immer auf ein positives Ergebnis aus.**
 
-Wenn man sich auf ein positives Ergebnis ausrichtet, dann melden sich die Blockaden zwar sofort, sie sind jedoch nicht im Mittelpunkt. Das ist wichtig (sonst manifestiert man nachher nur noch mehr von dem, was man nicht will bzw. man rührt in Problem herum, die zwar da sind, Dich aber eigentlich nicht hindern, sondern Dir nur Deinen Fokus wegnehmen. Beides nicht sinnvoll.) 
+Wenn man sich auf ein positives Ergebnis ausrichtet, melden sich die spezifischen **Blockaden** sofort, sie **sind zugleich nicht im Mittelpunkt**. Das ist wichtig (sonst manifestiert man nachher nur noch mehr von dem, was man nicht will bzw. man rührt in Problemen herum, die zwar da sind, Dich aber eigentlich an dem konkreten Ziel nicht hindern, sondern Dir nur Deinen Fokus wegnehmen. Beides nicht sinnvoll!) 
 
-Energetische Blockaden sind häufig unpassende Schwingungen aus eigenen Traumatisierungen, Verletzungen in der Ahnenreihe in Form von transgenerationelle Traumatierungen (in letzter Zeit haben sich viele unharmonische Schwingungn aus dem 2. Weltkrieg gezeigt), oder kollektive Felder aus geselllschaftlichen Normen, wie man zu sein hat oder nicht sein soll.
+Energetische Blockaden sind häufig unpassende Schwingungen, entstanden **aus eigenen Traumatisierungen, Verletzungen in der Ahnenreihe** in Form von transgenerationelle Traumatierungen (in letzter Zeit haben sich viele unharmonische Schwingungn aus dem 2. Weltkrieg gezeigt), oder kollektive Felder **aus geselllschaftlichen Normen**, wie man zu sein hat oder gefälligst nicht sein soll.
 
-Du kannst darauf vertrauen, dass Dein Energiekörper Deine Hindernisse für Deine ganz persönlichen Ziele in diesem Themenbereich in das Gruppenfeld mit einfließen lässt. Alles ist mit allem verbunden! (Dennoch: ganz individuell kann ich Dein Thema für eine ganze Gruppe nicht bearbeiten. Für Dein konkretes Thema buche bitte [einen Einzeltermin](/2021/03/19/Einzelsitzungen.html).)
+Du kannst darauf vertrauen, dass Dein Energiekörper Deine Hindernisse für Deine ganz persönlichen Ziele in dem jeweils angesprochenen Themenbereich in das Gruppenfeld mit einfließen lässt. Alles ist mit allem verbunden! (Dennoch: ganz individuell kann ich Dein Thema für eine ganze Gruppe nicht bearbeiten. Für Dein konkretes Thema buche bitte [einen Einzeltermin](/2021/03/19/Einzelsitzungen.html).)
 
 Melde Dich hier für meinen Newsletter an: Dort erhälst Du Deinen zoom link.  
 <span style='display:inline-block;padding:18px;background:#ececec'>
 **[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 </span>
-
 
 ## PS: Energieaustausch
 Mit dem Newsletter versende ich einmal im Monat meinen Termin und meine Blogbeiträge bzw. Angebote. Das ist sozusagen der Energieausgleich - ohne funktioniert Energiearbeit nicht gut. :-)  
