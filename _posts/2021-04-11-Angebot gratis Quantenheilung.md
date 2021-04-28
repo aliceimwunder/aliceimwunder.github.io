@@ -9,7 +9,7 @@ Kannst Du einen **Frischekick für Deinen Alltag** gebrauchen? Du würdest gerne
 
 Dann geht es Dir vielleicht wie vielen anderen. Zeitgleich mit Corona werden alte gesellschaftliche Systeme immer brüchiger, die Erde reinigt sich im hohen Tempo und die Schwingung steigt auf diesem Planeten. Die **Übersicht behalten**, **geerdet** aus dem eigenen Sein handeln, kann leichter gesagt als getan sein. **Gelassenheit** bei den kleineren und größen Stürmen Deines Lebens **wäre ein wunderbarer Zustand**? 
 
-Dann hol es Dir. Ich biete dazu einmal im Monat **eine offene Meditation** in Form einer Lichtkörperreinigung bzw. Quantenheilung an. Du kannst es bei Dir auf dem Sofa gemütlich machen, Dich reinigen und Dich auf Deine Ziele auf sanfte Weise ausrichten. Starte geerdet in die Woche mit dieser Gruppenmeditation. 
+Dann hol es Dir. Meine Angebot ist genau darauf ausgerichtet. Dazu biete ich einmal im Monat **eine offene Meditation** in Form einer Lichtkörperreinigung bzw. Quantenheilung an, um mich näher kennenzulernen. Du kannst es bei Dir auf dem Sofa gemütlich machen, Dich reinigen und Dich auf Deine Ziele auf sanfte Weise ausrichten. Starte geerdet in die Woche mit dieser Gruppenmeditation. 
 
 Melde Dich hier zur kostenfreien Quantenheilung an: 
 
