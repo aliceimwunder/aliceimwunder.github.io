@@ -32,10 +32,11 @@ Die **Session dauert gut 1h bis 1,5** mit Ankommen im Gruppenraum, die eigentlic
 
 ## Ablauf
 Ich gehe mit der Gruppe **einzelne Auraschichten** durch, die gereinigt, aufgeladen und ausgerichtet werden. Zur Zeit erscheinen mir vier Schichten besonders hilfreich - angelehnt an die Vorgehensweise von Pavlina Klemm: 
-- Die physische Zellschicht, 
-- der Emotionalkörper, 
-- der Mentalkörper und 
-- der Kausalkörper 
+1. Die physische Zellschicht, 
+2. der Emotionalkörper, 
+3. der Mentalkörper und 
+4. der Kausalkörper 
+
 werden mit Lichtwellen nacheinander behandelt. Ahnen- und andere Fremdeinflüsse dürfen sich sanft in Deinem Tempo verabschieden, sodass die Reinigung nicht destabilisierend wirkt. Dadurch kannst Du **Dich und Deine eigenen Impulse** - vielleicht auch aus den höheren Chakren (z.B.: 9. Chakra: der eigene Lebensplan, 10. Chakra: die Essenz, die Du wirklich bist, 11.: Deine Weisheit aus all den vorherigen Leben) - **deutlicher spüren, gelassener bleiben und Dich besser fokussieren.**  
 
 Für die Gruppe nehme ich ein **übergeordnetes Thema**, mit dem sich viele identifizieren können. Themen, die im Grunde für ein gelungenes Leben allgemein als wichtig empfunden werden. Z.B. 
