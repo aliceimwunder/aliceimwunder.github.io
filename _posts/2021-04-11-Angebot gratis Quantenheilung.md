@@ -19,7 +19,7 @@ Melde Dich hier zur kostenfreien Quantenheilung an:
 
 oder schreibe mir eine Email an: alicewindolf@web.de.
 
-Nächste Termine: **Sonntag, den 16. Mai 2021 und 13. Juni 2021, jeweils 19:00 Uhr.** 
+Nächste Termine: **Montag, den 13. September 2021, und Sonntag, den 24. Oktober 2021, jeweils 19:30 Uhr.** 
 
 Du willst noch etwas über mich wissen? [Infos findest Du hier](/about/). 
 
