@@ -21,6 +21,8 @@ oder schreibe mir eine Email an: alicewindolf@web.de.
 
 Nächste Termine: **Montag, den 13. September 2021, und Sonntag, den 24. Oktober 2021, jeweils 19:30 Uhr.** 
 
+Thema am 13.9.: Transformiere Schwingungen, die Deine Freiheit einschränken. 
+
 Du willst noch etwas über mich wissen? [Infos findest Du hier](/about/). 
 
 ## Angesprochen?
