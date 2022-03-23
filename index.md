@@ -6,7 +6,7 @@ layout: default
 	<div class="content">
 	<header>
 	<h1>Willkommen</h1>
-	<p>Ein Ort für emotionale Stabilität</p>
+	<p>Ein Ort für Achtsamkeit</p>
 	</header>
 	<p>
 	<p><h3>Deine Seite für Innere Kindheilung und energetisches Coaching (Online-Sitzungen per zoom)</h3> </p>
