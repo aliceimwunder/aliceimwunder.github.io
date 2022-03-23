@@ -10,9 +10,10 @@ layout: default
 	</header>
 	<p>
 	<p><h3>Deine Seite für Innere Kindheilung und energetisches Coaching (Online-Sitzungen per zoom)</h3> </p>
-<p> Hast Du seelische Zustände, wie z.B.: Keine Energie/kein Fokus für das, wovon Du eigentlich träumst... Unverbunden durchs Leben irrend... Gefühl von Fremdbestimmung? Überfordert... Ausgebrannt... Sinnentleertes Leben... Niedergeschlagenheit... Dir ist die Freude am Ausprobieren und die Neugier auf Neues vergangen...? Gefühlsausbrüche... Alte emotionale Trigger, die Dich immer wieder in Gefühls-Reaktionen hineintreiben, die Du schon lange nicht mehr willst...? häufiger ungewollte Stressreaktionen (Kampf- und Fluchtreaktionen Deines Körpers)?</p>
+
+	<p> Du bist hier richtig, wenn Du Dein Leben selbst in die Hand nehmen willst. Welche Erfahrungen willst Du wirklich in Deinem Leben erschaffen? Was willst Du manifestieren, wenn Du achtsam auf Deine Seele hörst? Lass Deinen geistigen Fokus unbeirrbar werden. Lass seelische Zustände wie mangelnde Energie, Gefühl von Fremdbestimmung, häufige ungewollte Stressreaktionen (Kampf- und Fluchtreaktionen Deines Körpers) hinter Dir. Werde emotional stabil. Halte Dich nicht mehr mit emotionalen Triggern, alten Zellerinnerungen, transgenerationalen Traumatisierungen usw. von Deinem Traumleben ab. </p>
 		
-<p>Dann bist Du hier richtig. Hier findest Du ganzheitliche Lösungswege, sodass Du Deinen Lebensweg kraftvoll selbst bestimmen kannst. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtete Heiltools in meine Arbeit als Coach, Traumatherapeutin und energetische Heilerin ein. Hier findest Du mehr [über mich](/about/). </p>
+<p>Hier findest Du ganzheitliche, achtsame Lösungswege, sodass Du Deinen Lebensweg kraftvoll selbst bestimmen kannst. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtete Heiltools in meine Arbeit als Coach, Traumatherapeutin und energetische Heilerin ein. Mehr [über mich](/about/). </p>
 
 <p><h4>Ein Feedback zu meinem InnerChildHealing - Coaching, von Maria W. aus Liechtenstein: </h4></p> 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
