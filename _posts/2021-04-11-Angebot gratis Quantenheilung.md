@@ -19,7 +19,7 @@ Melde Dich hier zur kostenfreien Quantenheilung an:
 
 oder schreibe mir eine Email an: alicewindolf@web.de.
 
-Nächste Termine: **Montag, den 13. September 2021, und Sonntag, den 24. Oktober 2021, jeweils 19:30 Uhr.** 
+Nächste Termine: **Sonntag, den 3. April 2022, 16:30 Uhr, und Sonntag, den 8. Mai 2022, 19:30 Uhr.** 
 
 Thema am 13.9.: Transformiere Schwingungen, die Deine Freiheit einschränken. 
 
