@@ -1,7 +1,7 @@
 ---
 title: Wege aus Erschöpfung - mit dem Inneren Kind.
 ---
-![Erprobte Wege aus Erschöpfung](/assets/2022-04-08-meine erpobten Wege aus Erschoepfung.jpg)
+![Erprobte Wege aus Erschöpfung - Sessel](/assets/2022-04-08-meine erpobten Wege aus Erschoepung - Sessel.jpg)
 
 <span>Photo by <a href="https://unsplash.com/@annapostovaya?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Hanna Postova</a> on <a href="https://unsplash.com/s/photos/burnout?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
@@ -24,7 +24,7 @@ Das Dumme daran ist, dass sich niemand ohne Grund in die Erschöpfung hineinman�
 2. **An den äußeren Umständen lässt sich NICHTS ändern!** So ist das Leben halt. In den FB-Gruppen liest man zum Thema: Ich bin allein erziehende Mutter; ich habe schon drei Stellen verloren, diese darf ich nicht mehr verlieren; ich muss den Kredit abzahlen; ich verliere meine Wohnung... Was soll ich bloß tun, weiter krankschreiben geht nicht...
 3. andere (insb. Ärzte, aber gerne auch Arbeitgeber) **halten einen für Hochstapler**. Jetzt reißen Sie sich mal zusammen. Ich verschreibe Ihnen da mal was... Gehen Sie mal auf Kur... 
 
---> All das ist blanker Unsinn. Es muss überhaupt nicht weitergehen! Die äußeren Umstände sind nie aus Beton gegossen! Und was andere darüber denken, kann einem eigentlich komplett furz egal sein!
+--> All das ist blanker Unsinn, den der eigene Verstand in Reaktion auf das Umfeld produziert. Es muss überhaupt nicht weitergehen! Die äußeren Umstände sind nie aus Beton gegossen! Und was andere darüber denken, kann einem eigentlich komplett furz egal sein!
 
 Eigentlich. Tatsächlich herrscht im Kopf eine in sich geschlossene, **vollkommen logische Illusion**, dass das Leben eben so sei, wie es ist. Daher erscheinen einem diese Gedanken als so wahr und unentrinnbar. Es ist auch nicht so einfach, sich selbst zu sagen: So, das ist jetzt eine Illusion. Ich lasse das jetzt mal. Ab jetzt kann ich mich erholen und nach mir die Sinnflut. Das funktioniert vermutlich nicht. (Jedenfalls nicht bei mir.) Dann meldet sich sofort der Verstand. Und, wie bitte schön, bezahlst Du die Stromrechnung? Mit Innerer Kindheilung kannst Du einen Weg aus der Illusion finden, die für Dich persönlich funktioniert. (Es gibt auch viele andere Wege, wie z.B. schamanische Heilsitzungen, Aufstellungen, Atemtherapie, Meditation etc. Ich habe vieles ausprobiert. Vieles funktioniert. Innere Kindheilung funktonierte für mich am besten, daher empfehle ich diesen Weg.) 
 
@@ -38,6 +38,11 @@ Innere Kindheilung kann Dir helfen herauszufinden, wo Du aus Deiner persönliche
 Ich durfte gerade meiner Tochter **Karlsson vom Dach von Astrid Lindgren** vorlesen. Eine der Geschichten darin hatte mich etwas verdutzt. In einer klassisch patriachalen - idyllisch schwedischen Familie der 50er: Eine Hausfrau mit drei Kindern und berufstätigem Ehemann bekommt die ärztliche Diagnose, sie sei zu erschöpft und bräuchte dringend Ruhe. Sie müsse die Versorgung ihrer Familie für eine Weile abgeben. Die Mutter sitzt verzweifelt am Esstisch. Dennoch ist eine klare Lösung sofort da: eine Haushälterin. In dieser Geschichte dauert es einen Tag, dann erscheint eine Haushälterin. 
 
 Es ist in dieser Geschichte aus den 50ern überhaupt **kein moralisches Problem**, weder dass die Mutter ihre Koffer ein paar Tage später packt, noch dass diese Haushälterin nicht gerade ideal ist. (Meinung der Kinder: ein Hausbock!) Stell Dir das mal vor, so ohne gefühlt 100 Formulare bei der Krankenkasse durchdrungen und gefühlt 96 Telefonaten, wo man denn einen Kur-Platz bekäme... Die Lösung funktioniert irrerweise, ohne dass die Welt untergeht. Klar ist die Lösung nicht immer so schnell da wie in Romanen, doch überleg mal, wenn dieser ganze moralische Klimbim, du kannst doch nicht... und der ganze bürokratische Overhead, weg wäre und Du würdest Dir einfach die Erlaubnis geben, Dich zu erholen - egal, wie lange das dauerte.      
+
+![Erprobte Wege aus Erschöpfung](/assets/2022-04-08-meine erpobten Wege aus Erschoepfung.jpg)
+
+<span>Photo by <a href="https://unsplash.com/@annapostovaya?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Hanna Postova</a> on <a href="https://unsplash.com/s/photos/burnout?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
+
 
 ## Die nächsten Tipps: 
 
