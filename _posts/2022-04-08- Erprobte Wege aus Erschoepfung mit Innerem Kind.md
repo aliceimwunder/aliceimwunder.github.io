@@ -64,7 +64,9 @@ Medikamten können im Notfall sinnvoll sein. Sie lösen allerdings keine Ursache
 
 Sinnvoller als Medikamente war, dass ich mir auf meinem Heilweg immer Unterstützung gesucht habe. **Persönliche Begleitung ist hilfreich.** Mit der Hilfe eines passenden Therapeuten bist Du viel schneller wieder auf den Beinen. Klar, mit jemandem, der nicht zu Dir passt, dauert es leider länger.  Auch ein Therapeut ist nicht über allem erhaben. Insofern, nicht nur Augen auf beim Autokauf.
 
-Diese Wege bin ich alle gegangen und gehe sich immer noch weiter: 
+## Diese Wege bin ich alle gegangen und gehe sich immer noch weiter:
+Nichts davon schließt sich gegenseitig aus. Man kann unterschiedliche Methoden benutzen, um die verschiedenen Punkte für sich zu erarbeiten. Es ist auch nicht so, dass man zwingend alle gegangen sein muss, damit endlich Heilung eintreten könnte. Das hängt davon ab, wo Du gerade stehst, was in Deinem Leben relevant ist und was Du alles schon ausprobiert hast. 
+
 ![Erprobte Wege aus der Erschöpfung](/assets/2020-10-20-Wege aus dem Burnout.svg)
 
 Du hast den Impuls, Dich auf Deinem Weg mit Innerer Kindheilung von mir Unterstützung zu holen? Dann buche Dir hier Deinen Termin und wir klären gemeinsam, ob meine Unterstützung Dich weiterbringt. 
