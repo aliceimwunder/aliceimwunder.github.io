@@ -1,7 +1,7 @@
 ---
 title: Wege aus Erschöpfung - mit dem Inneren Kind.
 ---
-![Erprobte Wege aus Erschöpfung](/assets/2020-10-20-meine erpobten Wege aus dem Burnout.jpg)
+![Erprobte Wege aus Erschöpfung](/assets/2022-04-08-meine erpobten Wege aus Erschoepfung.jpg)
 
 <span>Photo by <a href="https://unsplash.com/@annapostovaya?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Hanna Postova</a> on <a href="https://unsplash.com/s/photos/burnout?utm_source=unsplash&amp;utm_medium=referral&amp;utm_content=creditCopyText">Unsplash</a></span>
 
