@@ -1,6 +1,8 @@
 title: Was ist Innere Kindheilung? 
 
-Photo by Jill Sauve on Unsplash 
+![mein Innenkind halten](2022-04-17-mein Innenkindhalten.jpg)
+Photo by <a href="https://unsplash.com/@jillsauve?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Jill Sauve</a> on <a href="https://unsplash.com/s/photos/baby?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
 
 Unter dem Stichwort Innere Kindheilung erwartet Dich **emotionale Gelassenheit** bei den Herausforderungen des Alltags, **geistige Klarheit**, wie Du auf Deine Umgebung reagieren willst (keine automatisches Reagieren mehr) und ein **tiefes Vertrauen in Dich und das Leben**. 
 
