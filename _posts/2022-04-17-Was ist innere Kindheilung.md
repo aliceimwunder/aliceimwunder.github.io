@@ -1,4 +1,6 @@
+---
 title: Was ist Innere Kindheilung? 
+---
 
 ![mein Innenkind halten](/assets/2022-04-17-mein Innenkindhalten.jpg)
 Photo by <a href="https://unsplash.com/@jillsauve?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Jill Sauve</a> on <a href="https://unsplash.com/s/photos/baby?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
