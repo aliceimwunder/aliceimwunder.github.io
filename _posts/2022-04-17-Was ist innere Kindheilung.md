@@ -1,6 +1,6 @@
 title: Was ist Innere Kindheilung? 
 
-![mein Innenkind halten](2022-04-17-mein Innenkindhalten.jpg)
+![mein Innenkind halten](assets/2022-04-17-mein Innenkindhalten.jpg)
 Photo by <a href="https://unsplash.com/@jillsauve?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Jill Sauve</a> on <a href="https://unsplash.com/s/photos/baby?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
   
 
@@ -83,9 +83,8 @@ Der beste Raum um verletzte Innere Anteile zu heilen ist, wenn Du eine Bindung a
 In meinem Coachingangebot InnerchildHealing bin ich **Dein Personal Coach**. Ich öffne für Dich einen sicheren emotionalen Raum und gehe Schritt für Schritt diesen Weg mit Dir zusammen. Dafür habe ich auch eine Menge Tools im Gepäck, die ich Dir zeigen kann. Das Vertrauen, dass Heilung und Integration eintreten wird, ist dann schon da. 
 
 Hast Du den Impuls, mit mir arbeiten zu wollen? 
+Dann **[buche bei mir Unterstützung](/2021/03/19/Einzelsitzungen.html).**   
 
-Dann melde Dich hier: 
+Du kannst Dir auch meinen Newsletter holen. Ich schreibe Dir, wenn ich wieder etwas Neues poste. Hier geht's zur [Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html).
 
-Du kannst Dir auch meinen Newsletter holen. Ich schreibe Dir, wenn ich wieder etwas Neues poste. 
-/2021/04/21/Landingspage-Newsletteranmeldung.html
 
