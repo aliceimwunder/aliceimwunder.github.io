@@ -83,8 +83,9 @@ Der beste Raum um verletzte Innere Anteile zu heilen ist, wenn Du eine Bindung a
 In meinem Coachingangebot InnerchildHealing bin ich **Dein Personal Coach**. Ich öffne für Dich einen sicheren emotionalen Raum und gehe Schritt für Schritt diesen Weg mit Dir zusammen. Dafür habe ich auch eine Menge Tools im Gepäck, die ich Dir zeigen kann. Das Vertrauen, dass Heilung und Integration eintreten wird, ist dann schon da. 
 
 Hast Du den Impuls, mit mir arbeiten zu wollen? 
+
 Dann melde Dich hier: 
 
-
-
+Du kannst Dir auch meinen Newsletter holen. Ich schreibe Dir, wenn ich wieder etwas Neues poste. 
+/2021/04/21/Landingspage-Newsletteranmeldung.html
 
