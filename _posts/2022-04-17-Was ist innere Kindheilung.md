@@ -8,7 +8,7 @@ Photo by <a href="https://unsplash.com/@jillsauve?utm_source=unsplash&utm_medium
 
 Unter dem Stichwort Innere Kindheilung erwartet Dich **emotionale Gelassenheit** bei den Herausforderungen des Alltags, geistige Klarheit, wie Du auf Deine Umgebung reagieren willst (keine automatisches Reagieren mehr) und ein tiefes Vertrauen in Dich und das Leben. 
 
-Das Erwachsensein wird viel leichter mit dem inneren Kind, sodass man die eigenen Bedürfnisse wahrnimmt und auch darauf in Eigenverantwortung und angemessen reagieren kann. Zugleich darf das Spielerische im Leben sein. 
+Das **Erwachsensein wird mit dem inneren Kind viel leichter und freudiger**, sodass man die eigenen Bedürfnisse wahrnimmt und auch darauf in Eigenverantwortung und angemessen reagieren kann. Zugleich darf das Spielerische im Leben sein. 
 
 Das bedeutet: 
 
