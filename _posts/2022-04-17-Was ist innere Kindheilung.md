@@ -61,9 +61,10 @@ Diese ewig gleichen Verhaltensmuster kann man ändern. Die Voraussetzungen dafü
 2. Will man Innere Kindheilung nutzen, braucht es **einen Willen zur Selbstreflexion** über sich selbst. Daher hilft Innere Kindheilung nicht, wenn Du jemanden zur Inneren Kindheilung schicken willst, der keinen ernsthaften inneren Impuls dazu hat. (Auch wenn Du wahrnimmst, er oder sie bräuchte es dringend.) Innere Kindheilung dient dazu, dass man an sich selbst etwas verändern will, weil man für sich zu dem Schluss kommt, dass man das eigene Leben sinnhafter oder glücklicher oder gelassener oder, oder, oder gestalten will. 
 3. Mit Innerer Kindheilung kann **niemand etwas bei Dir “weg machen.”** Sie ist nicht vergleichbar zu einer Sportmassage, bei der Du einen Masseur beauftragst, die Verspannung wegzumassieren. Oder zum Chirurg, bitte rausoperieren. Das funktioniert nicht. Innere Kindheilung ist eine Art Werkstatt für Selbstschrauber. D.h., **Verantwortung für sich selbst übernehmen ist die Devise.** Für diese Art innere Arbeit darfst und musst Du Energie und Aufwand in Dich selbst investieren. Jeden Tag **ein paar Minuten können kleine Berge versetzen**. Vielleicht kannst Du es eher mit einem Fitnessstudio vergleichen: Der Personaltrainer zeigt Dir, wie Du am besten die Geräte einsetzt, gibt Dir Vertrauen und Motivation. Sucht Alternativen, wenn Dein Körper etwas nicht zulässt. dann trainierst Du. Es hilft leider nicht für Deine Muskeln, wenn der Personaltrainer Dir etwas vorturnt. 
 
-
 ![sich selbst die Hand geben](/assets/2022-04-17-sich selbst die Hand halten.jpg)
-Bei der Inneren Kindheilung lernst Du, Dich selbst zu halten. Das kann niemand für Dich übernehmen. Im Grund ist es ganz leicht, wenn man weiß, wie es geht. 
+Photo by <a href="https://unsplash.com/@huchenme?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Hu Chen</a> on <a href="https://unsplash.com/s/photos/baby?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+
+Bei der Inneren Kindheilung lernst Du, Dich selbst seelisch zu halten und immer seelisch immer vollständiger zu werden. Das kann niemand für Dich übernehmen. Im Grund ist es ganz leicht, wenn man weiß, wie es geht. 
 
 ## Und wie funktioniert nun Innere Kindheilung - InnerChildCoaching
 Im Grunde ist das einfach. 
