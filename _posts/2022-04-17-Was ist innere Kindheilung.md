@@ -62,6 +62,9 @@ Diese ewig gleichen Verhaltensmuster kann man ändern. Die Voraussetzungen dafü
 3. Mit Innerer Kindheilung kann **niemand etwas bei Dir “weg machen.”** Sie ist nicht vergleichbar zu einer Sportmassage, bei der Du einen Masseur beauftragst, die Verspannung wegzumassieren. Oder zum Chirurg, bitte rausoperieren. Das funktioniert nicht. Innere Kindheilung ist eine Art Werkstatt für Selbstschrauber. D.h., **Verantwortung für sich selbst übernehmen ist die Devise.** Für diese Art innere Arbeit darfst und musst Du Energie und Aufwand in Dich selbst investieren. Jeden Tag **ein paar Minuten können kleine Berge versetzen**. Vielleicht kannst Du es eher mit einem Fitnessstudio vergleichen: Der Personaltrainer zeigt Dir, wie Du am besten die Geräte einsetzt, gibt Dir Vertrauen und Motivation. Sucht Alternativen, wenn Dein Körper etwas nicht zulässt. dann trainierst Du. Es hilft leider nicht für Deine Muskeln, wenn der Personaltrainer Dir etwas vorturnt. 
 
 
+![sich selbst die Hand geben](/assets/2022-04-17-sich selbst die Hand halten.jpg)
+Bei der Inneren Kindheilung lernst Du, Dich selbst zu halten. Das kann niemand für Dich übernehmen. Im Grund ist es ganz leicht, wenn man weiß, wie es geht. 
+
 ## Und wie funktioniert nun Innere Kindheilung - InnerChildCoaching
 Im Grunde ist das einfach. 
 - Das Erwachsene-Ich Stück für Stück stabilisieren. Man braucht einen starken Erwachsenen dafür.
