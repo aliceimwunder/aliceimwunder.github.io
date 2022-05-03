@@ -2,7 +2,7 @@
 title: Wie entstehen Innenkinder?
 ---
 
-[girl covering her face](/assets/2022-05-04-girl covering her face.jpg)
+[girl covering her face](/assets/2022-05-03-girl covering her face.jpg)
 
 Photo by <a href="https://unsplash.com/@caleb_woods?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Caleb Woods</a> on <a href="https://unsplash.com/s/photos/child?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
 
@@ -38,7 +38,7 @@ In meiner Ausbildung zur Traumatherapeutin teilten wir die verschiedenen Anteile
 
 Das bedeutet: Wir sind fröhlich und ausgelassen, wenn wir mit unserem Nachwuchs auf einem Trampolin hüpfen. Wir sind beruhigend und gelassen, wenn wir mit dem Chef, der gerade einen schlechten Tag hat, sprechen. Wir sind ganz neutral beim Brötchenkaufen. Und wir sind klar und rücksichtsvoll, wenn die Schwiegermutter bespaßt werden muss. **Wir wissen, wann der eigene Körper Essen, Sport oder Schlaf braucht,** wann wir uns emotional zurückziehen und einkuscheln müssen; wie wir uns selbst beruhigen, ohne jemanden zwingend dafür zu brauchen. 
 
-![Junge lachend](/assets/2022-05-04-Junge lachend.jpg)
+![Junge lachend](/assets/2022-05-03-Junge lachend.jpg)
 
 Photo by <a href="https://unsplash.com/@phammi?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">MI PHAM</a> on <a href="https://unsplash.com/s/photos/child?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
 
