@@ -3,12 +3,14 @@ title: Wie entstehen Innenkinder?
 —
 [girl covering her face](/assets/2022-05-04-girl covering her face.jpg)
 
+Photo by <a href="https://unsplash.com/@caleb_woods?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Caleb Woods</a> on <a href="https://unsplash.com/s/photos/child?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+
 ## Inneres Kind psychologisch erklärt
 In der Psychologie geht man von dem Modell aus, dass Du nicht aus einem einzelnen Ich bestehst, sondern **Deine Psyche sich aus vielen Anteilen zusammensetzt**, die Du jeden Tag zu einem Ich-Gefühl zusammensetzt. Du kannst Dir das als die verschiedenen Aspekte, Interessen und Bedürfnisse vorstellen, die Du unter einen Hut bekommen willst. Du hast vermutlich eine Vorstellung von Dir, wie Du Dich verhalten willst, wenn Du mit Freunden an einem Lagerfeuer sitzt, und eine andere von Dir, wenn Du zum Zahnarzt gehst und wie Du dort üblicherweise auftrittst, etc. 
 
 Du verhältst Dich in den verschiedenen Situationen Deines Alltags anders, verfolgst andere Ziele und bedienst andere Bedürfnisse. Das ist dann **jeweils ein Aspekt** - ein Anteil von Dir. Die einzelnen Deiner Aspekte enthalten Gedanken, Glaubenssätze, Emotionen und Verhalten, jeweils darauf angepasst, für welche Situation sie Dir dienen. Die einzelnen Aspekte allein für sich ergeben normalerweise keine vollständige Person, kein stimmiges Ich. Sie sind immer nur ein Aspekt von Dir. (Bei schweren seelischen Schäden können einzelne Aspekte zu eigenständigen Persönlichkeiten werden.)
 
-Willst Du allgemein etwas über Innere Kindheilung wissen? Dann findest Du den Blogbeitrag [Was ist Innere Kindheilung hier](/2022/04/17/Was-ist-innere-Kindheilung.html).
+Willst Du allgemein etwas über Innere Kindheilung wissen? Dann findest Du den Blogbeitrag [Was ist Innere Kindheilung? hier](/2022/04/17/Was-ist-innere-Kindheilung.html).
 
 **Einige dieser Anteile in Dir sind jünger**, als Du vom Alter in Deinem Personalausweis her betrachtet bist. Das kannst Du selbst leicht überprüfen, z.B. wenn Du ausgelassen mit Deinem Kind oder dem Nachbarskind oder Enkel etc. etwas unternimmst. In solchen Situationen fühlt man sich ganz anders - in der Regel viel jünger - als wenn man gerade an der Steuererklärung sitzt. 
 
@@ -36,6 +38,8 @@ In meiner Ausbildung zur Traumatherapeutin teilten wir die verschiedenen Anteile
 Das bedeutet: Wir sind fröhlich und ausgelassen, wenn wir mit unserem Nachwuchs auf einem Trampolin hüpfen. Wir sind beruhigend und gelassen, wenn wir mit dem Chef, der gerade einen schlechten Tag hat, sprechen. Wir sind ganz neutral beim Brötchenkaufen. Und wir sind klar und rücksichtsvoll, wenn die Schwiegermutter bespaßt werden muss. **Wir wissen, wann der eigene Körper Essen, Sport oder Schlaf braucht,** wann wir uns emotional zurückziehen und einkuscheln müssen; wie wir uns selbst beruhigen, ohne jemanden zwingend dafür zu brauchen. 
 
 ![Junge lachend](/assets/2022-05-04-Junge lachend.jpg)
+
+Photo by <a href="https://unsplash.com/@phammi?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">MI PHAM</a> on <a href="https://unsplash.com/s/photos/child?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
 
 Zusammengefasst: Auch wenn wir aus vielen verschiedenen Anteilen unser Ich-Gefühl zusammensetzen, sind alle Anteile unseres psychischen Systems gut integriert. **Wir verhalten uns in Alltags-Situationen auf natürliche Weise unterschiedlich und betrachten uns zugleich als eine gesunde Person mit einer Ich-Identität.** Wir handeln angemessen zur jeweils sich präsentierenden Herausforderung - mal kindlicher, mal strenger, mal neutraler, mal professioneller. Alles Anteile in uns mit unterschiedlichen Gedanken, Interessen, Gefühlen, die im Großen und Ganzen gut zusammen harmonieren. Grob lassen sie sich in Kind, Erwachsener und Eltern-Ich einteilen. Unser System ist natürlich sehr komplex und es gibt eine Menge Zwischentöne. 
 
