@@ -87,3 +87,6 @@ oder
 buche direkt. 
 
 
+Du kannst Dir auch meinen Newsletter holen. Ich schreibe Dir, wenn ich wieder etwas Neues poste. Hier geht's zur **[Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html).**
+
+
