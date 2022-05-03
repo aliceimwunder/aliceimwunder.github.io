@@ -80,11 +80,10 @@ Ich arbeite auch energetisch - neben der Inneren Kindheilung. Ich nehme diese ab
 
 Wenn Du Lust hast, Dich auf die Reise zu Dir selbst zu machen und mit Innerer Kindheilung zu arbeiten, [dann findest Du hier mein Angebot](/2021/03/19/Einzelsitzungen.html).
 
-Oder buche Dir direkt ein Vorgespräch (20min) bei mir und wir finden gemeinsam heraus, wie ich Dich gerade am besten unterstützen kann. 
+Oder buche Dir direkt ein Vorgespräch (20min) bei mir: **[Termin buchen](https://alicewindolf.youcanbook.me)**
+und wir finden gemeinsam heraus, wie ich Dich gerade am besten unterstützen kann. 
 
-Schreibe mir eine Email 
-oder 
-buche direkt. 
+oder schreibe mir eine Email: alicewindolf@web.de
 
 
 Du kannst Dir auch meinen Newsletter holen. Ich schreibe Dir, wenn ich wieder etwas Neues poste. Hier geht's zur **[Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html).**
