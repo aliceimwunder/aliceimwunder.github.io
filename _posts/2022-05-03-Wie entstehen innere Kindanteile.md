@@ -2,7 +2,7 @@
 title: Wie entstehen Innenkinder?
 ---
 
-[girl covering her face](/assets/2022-05-03-girl covering her face.jpg)
+![girl covering her face](/assets/2022-05-03-girl covering her face.jpg)
 
 Photo by <a href="https://unsplash.com/@caleb_woods?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Caleb Woods</a> on <a href="https://unsplash.com/s/photos/child?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
 
