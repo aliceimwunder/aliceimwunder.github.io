@@ -38,10 +38,10 @@ In meiner Ausbildung zur Traumatherapeutin teilten wir die verschiedenen Anteile
 
 Das bedeutet: Wir sind fröhlich und ausgelassen, wenn wir mit unserem Nachwuchs auf einem Trampolin hüpfen. Wir sind beruhigend und gelassen, wenn wir mit dem Chef, der gerade einen schlechten Tag hat, sprechen. Wir sind ganz neutral beim Brötchenkaufen. Und wir sind klar und rücksichtsvoll, wenn die Schwiegermutter bespaßt werden muss. **Wir wissen, wann der eigene Körper Essen, Sport oder Schlaf braucht,** wann wir uns emotional zurückziehen und einkuscheln müssen; wie wir uns selbst beruhigen, ohne jemanden zwingend dafür zu brauchen. 
 
-![Junge lachend](/assets/2022-05-03-Junge langend.jpg)
+![in Ruhe sitzend](/assets/2022-05-03-in Ruhe sitzend.jpg)
 
-Photo by <a href="https://unsplash.com/@phammi?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">MI PHAM</a> on <a href="https://unsplash.com/s/photos/child?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
-
+Photo by <a href="https://unsplash.com/@isabellwinter?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Isabell Winter</a> on <a href="https://unsplash.com/s/photos/relaxing?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
 Zusammengefasst: Auch wenn wir aus vielen verschiedenen Anteilen unser Ich-Gefühl zusammensetzen, sind alle Anteile unseres psychischen Systems gut integriert. **Wir verhalten uns in Alltags-Situationen auf natürliche Weise unterschiedlich und betrachten uns zugleich als eine gesunde Person mit einer Ich-Identität.** Wir handeln angemessen zur jeweils sich präsentierenden Herausforderung - mal kindlicher, mal strenger, mal neutraler, mal professioneller. Alles Anteile in uns mit unterschiedlichen Gedanken, Interessen, Gefühlen, die im Großen und Ganzen gut zusammen harmonieren. Grob lassen sie sich in Kind, Erwachsener und Eltern-Ich einteilen. Unser System ist natürlich sehr komplex und es gibt eine Menge Zwischentöne. 
 
 ### Die Emotionalen Persönlichkeitsanteile in uns (Verletzte Innere Kindanteile)
@@ -78,13 +78,16 @@ So viel zur Entstehung von Jüngeren Ichs bzw. Inneren Kindanteilen, die NICHT i
 ## Der energetische Aspekt meiner Arbeit und was das mit Innerer Kindheilung zu tun hat
 Ich arbeite auch energetisch - neben der Inneren Kindheilung. Ich nehme diese abgespaltenen Inneren Anteile auch als Schwingung im Energiekörper wahr. Das ist einfach verdichtete Energie bzw. u**nharmonisch schwingende Energie** in der Aura. Grundsätzlich ist das Deine seelische Energie. Wandelt man diese Energie bzw. hebt die Schwingung an, dann können sich die alten Emotionen und Zellerinnerungen in höherer Geschwindigkeit aus Deinem seelischen System lösen. Die Energie, die man *unbewusst* gebraucht hat, um diesen Zustand aufrecht zu erhalten, steht einem wieder anderweitig zur Verfügung. Zugleich kommt auch die seelische Energie, die verdichtet war, Deinem System mehr zugute. Daher kann eine Kombination von energetischer Reinigung und Innere Kindheilung in kurzer Zeit gute Heilergebnisse bringen und dem Leben neuen Schwung bringen. 
 
+![Junge lachend](/assets/2022-05-03-Junge langend.jpg)
+
+Photo by <a href="https://unsplash.com/@phammi?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">MI PHAM</a> on <a href="https://unsplash.com/s/photos/child?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+
 Wenn Du Lust hast, Dich auf die Reise zu Dir selbst zu machen und mit Innerer Kindheilung zu arbeiten, [dann findest Du hier mein Angebot](/2021/03/19/Einzelsitzungen.html).
 
 Oder buche Dir direkt ein Vorgespräch (20min) bei mir: **[Termin buchen](https://alicewindolf.youcanbook.me)**
 und wir finden gemeinsam heraus, wie ich Dich gerade am besten unterstützen kann. 
 
 oder schreibe mir eine Email: alicewindolf@web.de
-
 
 Du kannst Dir auch meinen Newsletter holen. Ich schreibe Dir, wenn ich wieder etwas Neues poste. Hier geht's zur **[Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html).**
 
