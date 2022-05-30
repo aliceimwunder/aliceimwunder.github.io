@@ -21,8 +21,6 @@ Im Ergebnis stellen wir den psychischen Zustand von **“Das bin ich”** tägli
 
 Bist Du extrem übermüdet, oder hast **einen starken Jetlag, kann dieses Ich-Gefühl leiden**. Dann merkst Du vielleicht, dass Du Dich erst einmal sammeln musst, um dieses Gefühl, “Das bin ich”, herzustellen. 
 
-Leider ist es sogar möglich, dass mehrere Ich-Zustände nebeneinander - nicht zu einem einzigen Ich-Gefühl zusammenfügbar - in Dir existieren. Diesen Zustand nennt man **Dissoziative Persönlichkeitsstörung** (früher: multiple Persönlichkeiten.) In der aktuellen Trauma-Forschung geht man davon aus, dass man vor dem 9. Lebensjahr erheblichen Übergriffen, im Prinzip Folter, ausgesetzt gewesen sein muss -, damit mehrere Ich-Persönlichkeiten entstehen. Wenn manchmal in Filmen dargestellt wird, dass man auch Erwachsene z.B. in Kampfmaschinen verwandeln kann, ohne dass sie es über sich wissen, so ist das - zumindest noch - Fiktion. Ein signifikantes Symptom einer Dissoziativen Persönlichkeitsstörung wäre, dass Dir im Hier und Jetzt Deines Lebens Zeit fehlt, weil jeder der Ich-Zustände nur einen Teil des Alltags erlebt. (Ist aber selten.)
-
 ## Was bedeutet das, dass sich unser Ich-Gefühl aus verschiedenen Anteilen zusammensetzt?
 Wir haben **unterschiedliche Bedürfnisse, Interessen, Gedanken, Emotionen etc. in uns**, die in ganz unterschiedliche Richtungen ziehen können. Einfaches Beispiel: Ich ernähre mich gesund. Mmh, ist die Schokolade lecker… und weg ist die Schokolade… 
 
