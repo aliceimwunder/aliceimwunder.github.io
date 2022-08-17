@@ -1,6 +1,6 @@
-—
+---
 title: Wie viele Innere Kindanteile haben wir? 
-—
+---
 
 Viele. 
 
