@@ -2,7 +2,7 @@
 title: Wie viele Innere Kindanteile haben wir? 
 ---
 
-**Viele.** 
+**Viele.** Oder auch: Wer bin ich und wenn ja, wie viele?
 
 ![Luftballon](/assets/2022-08-17-luftballons.jpg)
 
