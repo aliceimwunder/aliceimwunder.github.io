@@ -47,7 +47,7 @@ Günstig ist für diese energetische Arbeit, sich ein positives Ziel auszusuchen
 
 **Positive Ziele**, die meine KlientInnen bisher am häufigsten gewählt haben: eine,n PartnerIn finden, Geldfluss erhöhen, Lebensmut stärken, Sicherheit für ein Auftreten in der Öffentlichkeit ausbauen, Sexualität liebevoller gestalten. 
 
-Dauer einer Reinigung: ca. 60min. Kosten 120,-€. 
+Dauer einer Reinigung: ca. 60min. Kosten 120,-€. (oder buch Dir kostengünstiger mehrere Sitzungen.)
 
 Empfehlenswert sind drei Sitzungen zu einem Thema im Wochenabstand, um eine tiefere und anhaltende Wirkung zu erzeugen. 3-Karte: 300,-€. 
 
