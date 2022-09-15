@@ -12,34 +12,44 @@ Innere Kindheilung ist eine wunderbare Methode, um
 - mit realen Kindern liebevoller und harmonischer zusammenzuleben (was in Zeiten von Lockdown und Homeschooling ein echter Segen sein kann),  
 - Stressreaktionen auf einer ganzheitlichen Ebene zu wandeln (Stress gilt mittlerweile als die Hauptursache schlechthin für den Arztbesuch).
 
-Dauer einer Sitzung: ca. 60min. Kosten 99,-€. 
+Dauer einer Einzelsitzung: ca. 60min. 
 
-Empfehlenswert sind einige Sitzungen im Wochenabstand, um eine tiefere und langanhaltende Wirkung zu erzeugen. 6-Karte: 480,-€. Grundsätzlich sind Coaching-Kosten steuerlich absetzbar. 
+Kosten: 
 
-Buch Dir kurz entschlossen Deinen Termin:
+**Einzelsitzung: 120,-€.**
+
+Buch Dir hier Deinen Termin:
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 **[Termin buchen](https://alicewindolf.youcanbook.me)**
-</span>
-
+ 
 oder schreibe mir eine Email: alicewindolf[at]web.de 
 
+Empfehlenswert sind mehrere Sitzungen im Wochenabstand, um eine langanhaltende Wirkung zu erzeugen. (Grundsätzlich sind Coaching-Kosten steuerlich absetzbar, soweit Du sie dazu nutzen willst, Dich beruflich besser aufzustellen). 
+  
+Dreierkarte: 300,- €.
+
+Sechserkarte: 540,- €.
+
+10-Karte 850,- €
+
+</span>
 
 
 ## Lichtkörperreinigung - Quantenheilung
 Du hast nicht nur einen physischen Körper, den Du unter die Dusche stellen kannst! Es ist sehr wohltuend, den eigenen energetischen Lichtkörper ebenfalls zu reinigen und auszugleichen. Dadurch kannst Du 
 - Dich wesentlich effektiver auf Deine Ziele ausrichten.
 - ein tieferes Gefühl von Selbstwirksamkeit für Dein Leben entwickeln. 
-- einen laserscharfen Fokus auf das entwickeln, was du willst, und nicht in einer Problem-Hypnose versinken.
+- einen laserscharfen Fokus auf das aufbauen, was du willst, und nicht mehr in einer Problem-Hypnose versinken.
 - Heilprozesse intensiver gestalten. 
-- Deine Gesundheits- und Stressprävention aktiver gestalten (sprich: mehr Harmonie mit Deinem persönlichen "inneren Schweinehund" erreichen). 
+- Deine Gesundheits- und Stressprävention aktiver bewältigen (sprich: mehr Harmonie mit Deinem persönlichen "inneren Schweinehund" erreichen). 
 
-Günstig ist für diese energetische Arbeit, sich ein positives Ziel auszusuchen. Etwas, das Du erreichen willst, aber noch nicht so klappt, wie Du es gerne hättest. Stellt man ein positives Ergebnis in den Raum, zeigen sich die Hindernisse auf Deinem Weg, aber ohne dass diese zum Mittelpunkt werden und Dich in ihren Bann schlagen. Denn dann manifestiert man genau das: Das Hindernis! 
+Günstig ist für diese energetische Arbeit, sich ein positives Ziel auszusuchen. Etwas, das Du erreichen willst, aber noch nicht so klappt, wie Du es gerne hättest. Stellt man ein positives Ergebnis in den Raum, zeigen sich die Hindernisse auf Deinem Weg ohnehin, aber ohne dass diese zum Mittelpunkt werden und Dich in ihren Bann schlagen können. Will man "nur endlich" etwas weghaben, was stört, dann manifestiert man genau das: Das Hindernis! 
 
-**Positive Ziele**, die meine KlientInnen bisher am häufigsten gewählt haben: eine,n PartnerIn finden, Geldfluss erhöhen, Lebensmut stärken, Sicherheit für ein Auftreten in der Öffentlichkeit ausbauen, Sexualität freier gestalten. 
+**Positive Ziele**, die meine KlientInnen bisher am häufigsten gewählt haben: eine,n PartnerIn finden, Geldfluss erhöhen, Lebensmut stärken, Sicherheit für ein Auftreten in der Öffentlichkeit ausbauen, Sexualität liebevoller gestalten. 
 
-Dauer einer Reinigung: ca. 60min. Kosten 99,-€. 
+Dauer einer Reinigung: ca. 60min. Kosten 120,-€. 
 
-Empfehlenswert sind drei Sitzungen zu einem Thema im Wochenabstand, um eine tiefere und anhaltende Wirkung zu erzeugen. 3-Karte: 250,-€. 
+Empfehlenswert sind drei Sitzungen zu einem Thema im Wochenabstand, um eine tiefere und anhaltende Wirkung zu erzeugen. 3-Karte: 300,-€. 
 
 Buch Dir kurz entschlossen Deinen Termin:
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
