@@ -6,7 +6,7 @@ description: Du willst raus aus Überforderung und alten Mustern - dafür rein i
 baseurl: "/" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site
 author: Alice Windolf
-street_address: c/o Aquariana, Am Tempelhofer Berg 7Dd
+street_address: im Aquariana,<br> Am Tempelhofer Berg 7d
 city: Berlin
 state:
 zip_code: 10965
