@@ -6,16 +6,10 @@ description: Du willst raus aus Überforderung und alten Mustern - dafür rein i
 baseurl: "/" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site
 author: Alice Windolf
-street_address: Im Aquariana, Am Tempelhofer Berg 7D, (HH, 4. Etage)
+street_address: c/o Aquariana, Am Tempelhofer Berg 7Dd
 city: Berlin
 state:
 zip_code: 10965
-
-
-street_address: Praxiswagen: Petershagener Straße 15b
-city: Briesen/Mark
-state:
-zip_code: 15518
 country:
 phone: 0160 / 7047080
 
