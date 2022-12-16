@@ -12,12 +12,6 @@ permalink: /about/
 - Innere Kindheilung - Coaching - Erreiche ein konkretes Ziel
 - Traumasensible Energiearbeit zum Lösen energetischer Blockaden 
 
---> **Aufräumen mit der Vergangenheit**, um endlich das eigene Leben selbstbestimmt zu gestalten! Vergangenheitsbewältigung ist kein Selbstzweck. Am Ende steht die Frage: Was macht mich aus? Wie will ich mein Leben gestalten? Dazu braucht man Klarheit und Stabilität, innere Freiheit und Selbstbewusstsein: ein Okay mit sich selbst, so wie man tatsächlich ist und nicht, was andere aus einem machen. Den eigenen Rhythmus finden, sodass emotionale Achterbahnen und Fremdbestimmung keine Chance mehr haben. Achtsamkeit für die eigene Intuition, Visionen und Wünsche. Liebevolle, bzw. positive freundschaftliche Bindungen zu anderen Menschen eingehen können. Im Ergebnis: Vertrauen in sich, in andere, ins Leben - selbst wenn es mal schwierig wird.   
-
-Dann entsteht **Kreativität und Entscheidungsfreiheit**, die selbst in herausfordernden Situationen zum Tragen kommen. Z.B.: Kein automatisches im Boden Versinken mehr, keine (blinde) Wutanfälle oder Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Hass oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders, eine Einschränkung der Lebensqualität bedeuten sie alle. All das hinter sich lassen! Dann kommt die entscheidende Frage: Wie sieht dann das Leben aus? 
-
-Ich biete an: 
-
 **Traumatherapie**: Bei psychischen und psychosomatischen Symptomen, die die Lebensqualität einschränken. Oder allgemein einem Bedarf, das Leben grundsätzlich in neue Bahnen zu richten. Ein tiefgehendes Okay damit erreichen, dass das Leben nicht immer Okay war. Egal, ob die Vergangenheit ein konkretes überlastendes Ergeinis bot (z.B. Arbeitsunfall, Opfer einer Gewalttat,...) oder ob in der Vergangenheit längerfristiges Ungemach bot (z.B. Scheidung der Eltern, Missbrauch, Mobbing...). Es ist nicht notwendig, sich an die konkreten Misstände in der Vergangenheit erinnern zu können. Mit Traumatherapie kann man tiefgreifend herausfinden, was einen selbst seelisch ausmacht und das Leben selbstbestimmt gestalten.  
 Wöchentlich oder alle zwei Wochen Sitzungen von ca. 50min. über einen längeren Zeitraum. Nur Vor Ort Sitzungen möglich. Als Psychotherapeutin nach dem HeilprakG habe ich keine Kassenzulassung. 
 
@@ -26,6 +20,12 @@ Wöchentlich oder alle zwei Wochen Sitzungen von ca. 50min. über einen längere
 **Einzelaufstellungen-Clean Space**: Clean Space ist eine traumasensible, projektorientierte Aufstellung. Bei Clean Space handelt es sich um ein aus Neuseeland stammende Form der Aufstellung. Dabei wird nicht wie bei Familienaufstellungen ein Familiensystem aufgestellt sondern ein konkretes Problem, das sich wandeln, oder ein Projekt, das sich klären soll. Clean Space bringt Klarheit in verworrene Situationen und die Motivation, die nächsten Schritte zu gehen. Eine Einzelsitzung bringt einen tiefgreifenden Klärungsprozess. Meist zeigt sich am Ende ein Folgethema/-prozess/-entwicklung, sodass ich drei Sitzungen im Abstand von einigen Wochen empfehle. Bevorzugt offline, online möglich. 
 
 **Energiearbeit**: Ich biete ganzheitliche, tragfähige Lösungen in der Traumaheilung an. Wissenschaftlich fundiert. Und wer will, spirituell erweiterternd. Jedoch immer geerdet und traumasensibel. Ich biete in einer Gruppe regelmäßig innere Visionsreisen mit Lichtkörperreinigung und Quantenheilung zu seelischen Themen an, um die meine Art zu arbeiten kennenzulernen. Außerdem möglich: Aura-/Chakrenreinigung in Einzelsitzungen zum Lösen alter Schocks aus dem Energiekörper, Reinkarnationsreisen zum Auffinden und Lösen alter Traumatisierungen, Löschen von einschränkenden Symbolen aus der Aura (z.B. religiöse Symbole), Begleitung von schwierigen, körperlichen (tramatisierenden) Heilprozessen mit Engelenergie. Vieles ist Online möglich, einige Techniken nur vor Ort. Lässt sich wunderbar mit Innerer Kindheilung verbinden. Je nach Bedarf drei bis sechs Sitzungen. Bei längerfristigen Heilprozessen, wie z.B. OP-Nachsorge entsprechend dem körperlichen Heilprozess. 
+
+--> **Aufräumen mit der Vergangenheit**, um endlich das eigene Leben selbstbestimmt zu gestalten! Vergangenheitsbewältigung ist kein Selbstzweck. Am Ende steht die Frage: Was macht mich aus? Wie will ich mein Leben gestalten? Dazu braucht man Klarheit und Stabilität, innere Freiheit und Selbstbewusstsein: ein Okay mit sich selbst, so wie man tatsächlich ist und nicht, was andere aus einem machen. Den eigenen Rhythmus finden, sodass emotionale Achterbahnen und Fremdbestimmung keine Chance mehr haben. Achtsamkeit für die eigene Intuition, Visionen und Wünsche. Liebevolle, bzw. positive freundschaftliche Bindungen zu anderen Menschen eingehen können. Im Ergebnis: Vertrauen in sich, in andere, ins Leben - selbst wenn es mal schwierig wird.   
+
+Dann entsteht **Kreativität und Entscheidungsfreiheit**, die selbst in herausfordernden Situationen zum Tragen kommen. Z.B.: Kein automatisches im Boden Versinken mehr, keine (blinde) Wutanfälle oder Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Hass oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders, eine Einschränkung der Lebensqualität bedeuten sie alle. All das hinter sich lassen! Dann kommt die entscheidende Frage: Wie sieht dann das Leben aus? 
+
+
 
 ## Testimonials
 **Agneta N. aus Berlin:**
@@ -89,14 +89,17 @@ In meiner Arbeit verbinde ich wissenschaftliche, wie spirituelle Ansätze, um da
 Besuch vieler Seminare zur Persönlichkeitsbildung und ganzheitlicher Heilung, wie z.B.: Energy Medicine nach Donna Leon. Aufstellungsarbeit. Walking-in-your-shoes. Inka-Schamanismus. Rhethorik. Körpersprache. Mediation. Meditation. Pranayama und Yoga. Lichkörperprozess bei Chamuel Schauffert. Spirituelle Heiltechniken von Pavlina Klemm. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie). Psychologische Astrologie/astrologische Energieaufstellung. 
 
 - Traumatherapieausbildung, arche medica
+- Klientenzentrierte Gesprächstherapie nach Rogers, paracelsus Heilpraktiker Schule
+- Spirituell mediale Beraterin I (Chamuel Schauffert)
 - Heilpraktikerin für Psychotherapie, Berlin
 - Coachingausbildung, arche medica
 - Stellvertretenden Leiterin des Sekretariats des Petitionsausschusses des Abgeordnetenhauses von Berlin
 - Ausschuss-Referentin am Abgeordnetenhaus von Berlin
+- Führungskräfte-Fortbildung der Berliner Landesverwaltung
 - Referentin in der Berliner Senatsverwaltung für Bildung, Bereich Hochschulzugang
 - Wissenschaftliche Assistentin für Staatsrecht in Bayreuth
 - Praktikum am Europäischen Gerichtshof für Menschenrechte
 - Erstes und Zweites Juristisches Staatsexamen Berlin-Brandenburg
-- Licence en droit, Paris II
+- Licence en droit, Univerité Paris Assas 
 - Jurastudium in Potsdam, Berlin und Paris 
 - Schulbesuche in Berlin, Florenz, Heidelberg und Schleswig-Holstein
