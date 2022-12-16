@@ -7,14 +7,25 @@ permalink: /about/
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
 ## Was biete ich an? 
-Bei mir bist Du richtig, wenn Du emotionale Stabilität für Dich erreichen willst. Eine Stabilität, die Dir Deine **Kreativität und Entscheidungsfreiheit** in herausfordernden Situationen erhält. - Kein automatisches: im Boden versinken, keine (blinde) Wutanfälle, keine Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Hass oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders, eine Einschränkung der Lebensqualität bedeuten sie alle. 
+- Psychodynamische imaginative Traumatherapie nach Luise Reddemann (Nach dem HeilprakG)  
+- EMDR, traumasensible Hypnotherapie 
+- Innere Kindheilung - Coaching - Erreiche ein konkretes Ziel
+- Traumasensible Energiearbeit zum Lösen energetischer Blockaden 
 
-Den Wunsch, dass der **Raum zwischen Ereignis im Außen und eigener Handlung** darauf größer wird und damit Platz für Selbstbestimmung ensteht, den haben fast alle Menschen. Innere Kindheilung hilft dabei unmittelbar. Mit der gewonnenen Stabilität und Kraft in Dir kannst Du Dein Leben in **DEIN Leben transformieren**. Du kannst endlich Deine eigene Seelen-PS auf die Straße bringen. 
+--> **Aufräumen mit der Vergangenheit**, um endlich das eigene Leben selbstbestimmt zu gestalten! Vergangenheitsbewältigung ist kein Selbstzweck. Am Ende steht die Frage: Was macht mich aus? Wie will ich mein Leben gestalten? Dazu braucht man Klarheit und Stabilität, innere Freiheit und Selbstbewusstsein: ein Okay mit sich selbst, so wie man tatsächlich ist und nicht, was andere aus einem machen. Den eigenen Rhythmus finden, sodass emotionale Achterbahnen und Fremdbestimmung keine Chance mehr haben. Achtsamkeit für die eigene Intuition, Visionen und Wünsche. Liebevolle, bzw. positive freundschaftliche Bindungen zu anderen Menschen eingehen zugehen können -Vertrauen in sich, in andere, ins Leben, selbst wenn es mal schwierig wird.   
 
-Ich arbeite online v.a. mit **Innerer Kindheilung und Coaching** und werfe gerne den **Turbo mit Lichtkörperreinigung** an. Bei mir gibt es ganzheitliche, tragfähige Lösungen. Wissenschaftlich fundiert und spirituell erweiterternd. Verbinde Dich mit Deiner ureigenen Seelenkraft. Dann kannst Du Dein gesamtes Leben von innen nach außen aufbauen, agieren statt reagieren. 
+Dann entsteht **Kreativität und Entscheidungsfreiheit**, die selbst in herausfordernden Situationen zum Tragen kommen. Z.B.: Kein automatisches im Boden Versinken mehr, keine (blinde) Wutanfälle oder Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Hass oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders, eine Einschränkung der Lebensqualität bedeuten sie alle. All das hinter sich lassen! Dann kommt die entscheidende Frage: Wie sieht dann das Leben aus? 
 
-Bei Interesse an einer längerfristigen **Traumatherapie** bitte melden (nur offline bei mir vor Ort möglich.)
+Ich biete an: 
 
+**Traumatherapie**: Bei psychischen und psychosomatischen Symptomen, die die Lebensqualität einschränken. Oder allgemein einem Bedarf, das Leben grundsätzlich in neue Bahnen zu richten. Ein tiefgehendes Okay damit erreichen, dass das Leben nicht immer Okay war. Egal, ob die Vergangenheit ein konkretes überlastendes Ergeinis bot (z.B. Arbeitsunfall, Opfer einer Gewalttat,...) oder ob in der Vergangenheit längerfristiges Ungemach bot (z.B. Scheidung der Eltern, Missbrauch, Mobbing...). Es ist nicht notwendig, sich an die konkreten Misstände in der Vergangenheit erinnern zu können. Mit Traumatherapie kann man tiefgreifend herausfinden, was einen selbst seelisch ausmacht und das Leben selbstbestimmt gestalten.  
+Wöchentlich oder alle zwei Wochen Sitzungen von ca. 50min. über einen längeren Zeitraum. Nur Vor Ort Sitzungen möglich. Als Psychotherapeutin nach dem HeilprakG habe ich keine Kassenzulassung. 
+
+**Innere Kindheilung**: Ein aus der Traumatherapie stammende Coaching-Methode. Sie dient dazu, ein konkretes Reaktionsmuster: Z.B. die KollegInnen laden regelmäßig Probleme bei einem ab oder die Mutter ruft zu beliebigen Zeiten an, und man bringt es einfach nicht übers Herz, klare Grenzen zu setzen. D.h. man will ein bestimmtes einschränkendes Reaktionsmuster auf wiederkehrende Situationen wandeln. Online und Vor-Ort-Sitzungen möglich. Ich empfehle 6 Sitzungen zu einem Thema, um eine fundierte langhaltende Wirkung zu erzeugen. 
+
+**Einzelaufstellungen-Clean Space**: Clean Space ist eine traumasensible, projektorientierte Aufstellung. Bei Clean Space handelt es sich um ein aus Neuseeland stammende Form der Aufstellung. Dabei wird nicht wie bei Familienaufstellungen ein Familiensystem aufgestellt sondern ein konkretes Problem, das sich wandeln, oder ein Projekt, das sich klären soll. Clean Space bringt Klarheit in verworrene Situationen und die Motivation, die nächsten Schritte zu gehen. Eine Einzelsitzung bringt einen tiefgreifenden Klärungsprozess. Meist zeigt sich am Ende ein Folgethema/-prozess/-entwicklung, sodass ich drei Sitzungen im Abstand von einigen Wochen empfehle. Bevorzugt offline, online möglich. 
+
+**Energiearbeit**: Ich biete ganzheitliche, tragfähige Lösungen in der Traumaheilung an. Wissenschaftlich fundiert. Und wer will, spirituell erweiterternd. Jedoch immer geerdet und traumasensibel. Ich biete in einer Gruppe regelmäßig innere Visionsreisen mit Lichtkörperreinigung und Quantenheilung zu seelischen Themen an, um die meine Art zu arbeiten kennenzulernen. Außerdem möglich: Aura-/Chakrenreinigung in Einzelsitzungen zum Lösen alter Schocks aus dem Energiekörper, Reinkarnationsreisen zum Auffinden und Lösen alter Traumatisierungen, Löschen von einschränkenden Symbolen aus der Aura (z.B. religiöse Symbole), Begleitung von schwierigen, körperlichen (tramatisierenden) Heilprozessen mit Engelenergie. Vieles ist Online möglich, einige Techniken nur vor Ort. Lässt sich wunderbar mit Innerer Kindheilung verbinden. Je nach Bedarf drei bis sechs Sitzungen. Bei längerfristigen Heilprozessen, wie z.B. OP-Nachsorge entsprechend dem körperlichen Heilprozess. 
 
 ## Testimonials
 **Agneta N. aus Berlin:**
@@ -34,8 +45,8 @@ mehr Intensität und Farben. Dafür bin ich so dankbar.*
 
 **Martina W. aus Bremen:** 
 
-*In der Heilsitzung mit Alice durfte ich erfahren was mein Emotionalkörper ist. Ich konnte erfahren, dass mein Emotionalkörper sich
-von meinem Körper abgetrennt hat und das dass ein Schutzmechanismus meiner Seele ist, den ich mir im laufen meines Lebens angeeignet habe.
+*In der Heilsitzung mit Alice durfte ich erfahren, was mein Emotionalkörper ist. Ich konnte erfahren, dass mein Emotionalkörper sich
+von meinem Körper abgetrennt hat und dass das ein Schutzmechanismus meiner Seele ist, den ich mir im laufe meines Lebens angeeignet habe.
 Ich konnte mich mit meinem Emotionalkörper wieder verbinden.*
 
 *Durch die Behandlung von Alice konnte ich Kontakt zu meinem inneren Kind aufnehmen. Ich konnte mit meinem inneren Kind zusammen herausfinden, was
