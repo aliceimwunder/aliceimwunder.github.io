@@ -63,7 +63,7 @@ Eines Nachts rief mein Mann den Notarzt. Das letzte, was ich hörte, war die Sti
 
 
 ### Das Ende meines Lebens
-Als sich die Nebenlschwaden drei Tage später lichteten, stand ein kardiologischer Chefarzt vor mir. Ich hatte folgende Aussicht von meinem Bett: Dialyse wegen Nierenversagen. Entfernen der Milz wegen schwerer innerer Blutungen, die die Milz erdrückt hätten. Herztransplantation, weil nach zwei Herzinfarkten in Folge es sein könnte, dass das nichts mehr wird mit der Originalausgabe in meiner Brust. Schwere OP's wegen Tumor in der Herzaorta. Gar keine Aussicht wegen Leberversagen. Formulierung des Arztes: **"Da müsste man Respekt vor dem Leben haben."**
+Als sich die Nebenlschwaden drei Tage später lichteten, stand ein kardiologischer Chefarzt vor mir. Ich hatte folgende Aussicht von meinem Bett: Dialyse wegen Nierenversagen. Entfernen der Milz wegen schwerer innerer Blutungen, die die Milz erdrückt hätten. Herztransplantation, weil nach zwei Herzinfarkten in Folge es sein könnte, dass das nichts mehr wird mit der Originalausgabe in meiner Brust. Schwere OP's wegen Tumor in der Herzaorta drohten. Gar keine Aussicht wegen Leberversagen. Formulierung des Arztes: **"Da müsste man Respekt vor dem Leben haben."**
  
 Ich entschied in diesem Bett, dass ich meine damals fünfjährige Tochter nicht allein auf diesem Planeten zurücklassen würde, und dass ich endlich herausfinden würde, was in aller Welt **ich auf diesem Planeten wirklich will**. Was geht in einem Intensivbett mit gefühlt 100 Schläuchen und weiträumigen Organversagen? Mit dem eigenen Körper reden. Meiner Fähigkeit, Energieströme in einem Körper wahrnehmen zu können, schenkte ich das erste Mal in meinem ganzen Leben ernsthaft Aufmerksamkeit. Ich hatte schlicht nichts anderes zu tun. 
 
