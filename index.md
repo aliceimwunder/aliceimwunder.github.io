@@ -70,6 +70,6 @@ mir zu dir!" </p>
 
 	</div>
 	<span class="image object">
-	<img src="assets/2020-10-13-Frontbild.jpg" alt="" />
+	<img src="assets/2020-10-13-Frontbild1.jpg" alt="" />
 	</span>
 </section>
