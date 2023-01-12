@@ -11,9 +11,17 @@ layout: default
 	<p>
 	<p><h3>Praxis für Traumaheilung und Coaching</h3> </p>
 
-	<p>Du bist hier richtig, wenn Du Dein Leben selbst in die Hand nehmen willst. Welche Erfahrungen willst Du wirklich in Deinem Leben erschaffen? Was willst Du manifestieren, wenn Du achtsam auf Deine Seele hörst? Lass Deinen geistigen Fokus unbeirrbar werden. Lass seelische Zustände wie mangelnde Energie, Gefühl von Fremdbestimmung, häufige ungewollte Stressreaktionen (Kampf- und Fluchtreaktionen Deines Körpers) hinter Dir. Werde emotional stabil. Halte Dich nicht mehr mit emotionalen Triggern, alten Zellerinnerungen, transgenerationalen Traumatisierungen usw. von Deinem Traumleben ab. </p>
-		
-<p>Hier findest Du ganzheitliche, achtsame Lösungswege, sodass Du Deinen Lebensweg kraftvoll selbst bestimmen kannst. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtete Heiltools in meine Arbeit als Coach, Traumatherapeutin und energetische Heilerin ein. Mehr [über mich](/about/). </p>
+	<p> Ich bin Traumatherapeutin (hp psych) und Coach. Ich begleitet Menschen, die ihr Leben selbstbestimmt gestalten wollen. Menschen, die bisher mit 		Stressfolgeerkrankungen kämpfen, seelisch belastet sind oder die sich in alten Mustern verstrickt haben und die nun endlich das leben wollen, 			wonach sich ihre Seele in ihrem Innersten sehnt. </p>
+	<p> Hier finden Sie ganzheitliche, achtsame Lösungswege, sodass Sie Ihren Lebensweg kraftvoll selbst bestimmen können. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtete Heiltools in meine Arbeit für Sie ein. Mehr [über mich](/about/). </p>
+
+	<p> Das Angebot meiner Praxis: </p>
+	<p> - Psychodynamische imaginative sowie enaktive Traumatherapie nach Luise Reddemann und Ellert Nijenhuis, EMDR und Hypnotherapie</p>
+	<p> - Innere Kindheilung - Coaching</p>
+	<p> - Einzelaufstellungen/InnerSpace </p>
+	<p> - Energiearbeit </p>
+	
+	<p> Lassen Sie seelische Zustände wie mangelnde Energie, Gefühl von Fremdbestimmung, häufige ungewollte Stressreaktionen (Kampf- und Fluchtreaktionen des Körpers) hinter sich. Werden Sie emotional stabil. Halte Sie sich nicht mehr mit emotionalen Triggern, alten Zellerinnerungen, 	(transgenerationalen) Traumatisierungen usw. von Ihrem selbstbestimmten Leben ab. Lassen Sie Mitgefühl für sich und das Leben um sich in Ihr Leben fließen.</p>
+	<p>Hier finden Sie ganzheitliche, achtsame Lösungswege, sodass Sie Ihren Lebensweg kraftvoll selbst bestimmen können. Von wissenschaftlich fundiert 		über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtete Heiltools in meine Arbeit als Traumatherapeutin, Heilpraktikerin, Coach 			und energetische Heilerin ein. Mehr [über mich](/about/). </p>
 
 <p><h4>Ein Feedback zu meinem InnerChildHealing - Coaching, von Maria W. aus Liechtenstein: </h4></p> 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
