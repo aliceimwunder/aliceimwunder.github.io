@@ -22,6 +22,7 @@ layout: default
 	<p> Lassen Sie seelische Zustände wie mangelnde Energie, Gefühl von Fremdbestimmung, häufige ungewollte Stressreaktionen (Kampf- und Fluchtreaktionen des Körpers) hinter sich. Werden Sie emotional stabil. Halte Sie sich nicht mehr mit emotionalen Triggern, alten Zellerinnerungen, 	(transgenerationalen) Traumatisierungen usw. von Ihrem selbstbestimmten Leben ab. Lassen Sie Mitgefühl für sich und das Leben um sich in Ihr Leben fließen.</p>
 	<p>Hier finden Sie ganzheitliche, achtsame Lösungswege, sodass Sie Ihren Lebensweg kraftvoll selbst bestimmen können. Von wissenschaftlich fundiert 		über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtete Heiltools in meine Arbeit als Traumatherapeutin, Heilpraktikerin, Coach 			und energetische Heilerin ein. Mehr [über mich](/about/). </p>
 
+	
 <p><h4>Ein Feedback zu meinem InnerChildHealing - Coaching, von Maria W. aus Liechtenstein: </h4></p> 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
 Feedback geben.</p> 
@@ -70,6 +71,6 @@ mir zu dir!" </p>
 
 	</div>
 	<span class="image object">
-	<img src="assets/2020-10-13-Frontbil.jpg" alt="" />
+	
 	</span>
 </section>
