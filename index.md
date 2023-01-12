@@ -12,9 +12,8 @@ layout: default
 	<p><h3>Praxis für Traumaheilung und Coaching</h3> </p>
 
 	<p> Ich bin Traumatherapeutin (hp psych) und Coach. Ich begleitet Menschen, die ihr Leben selbstbestimmt gestalten wollen. Menschen, die bisher mit 		Stressfolgeerkrankungen kämpfen, seelisch belastet sind oder die sich in alten Mustern verstrickt haben und die nun endlich das leben wollen, 			wonach sich ihre Seele in ihrem Innersten sehnt. </p>
-	<p> Hier finden Sie ganzheitliche, achtsame Lösungswege, sodass Sie Ihren Lebensweg kraftvoll selbst bestimmen können. Von wissenschaftlich fundiert über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtete Heiltools in meine Arbeit für Sie ein. Mehr [über mich](/about/). </p>
-
-	<p> Das Angebot meiner Praxis: </p>
+	
+	<p><h4> Das Angebot meiner Praxis:>/h4> </p>
 	<p> - Psychodynamische imaginative sowie enaktive Traumatherapie nach Luise Reddemann und Ellert Nijenhuis, EMDR und Hypnotherapie</p>
 	<p> - Innere Kindheilung - Coaching</p>
 	<p> - Einzelaufstellungen/InnerSpace </p>
