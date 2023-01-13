@@ -11,20 +11,20 @@ layout: default
 	<p>
 	<p> <h3> Praxis für Traumaheilung und Coaching </h3> </p>
 
-	<p> Ich bin Traumatherapeutin (hp psych) und Coach. Ich begleitet Menschen, die ihr Leben selbstbestimmt gestalten wollen. Menschen, die bisher mit 		Stressfolgeerkrankungen kämpfen, seelisch belastet sind oder die sich in alten Mustern verstrickt haben und die nun endlich das leben wollen, 			wonach sich ihre Seele in ihrem Innersten sehnt. </p>
+	<p> Ich bin Traumatherapeutin (hp psych) und Coach. Ich begleite Menschen, die ihr Leben selbstbestimmt gestalten wollen. Menschen, die bisher mit 		Stressfolgeerkrankungen kämpfen, seelisch belastet sind oder die sich in alten Mustern verstrickt haben und die nun endlich das leben wollen, 			wonach sich ihre Seele in ihrem Innersten sehnt. </p>
 	
 	<p><h4> Das Angebot meiner Praxis: </h4> </p>
-	<ul>
+	
 	<li> Psychodynamische imaginative sowie enaktive Traumatherapie nach Luise Reddemann und Ellert Nijenhuis, EMDR und Hypnotherapie</li>
 	<li> Innere Kindheilung - Coaching</li>
 	<li> Einzelaufstellungen/InnerSpace </li>
 	<li> Energiearbeit </li>
-	
-	<p> Lassen Sie seelische Zustände wie mangelnde Energie, Gefühl von Fremdbestimmung, häufige ungewollte Stressreaktionen (Kampf- und Fluchtreaktionen des Körpers) hinter sich. Werden Sie emotional stabil. Halte Sie sich nicht mehr mit emotionalen Triggern, alten Zellerinnerungen, 	(transgenerationalen) Traumatisierungen usw. von Ihrem selbstbestimmten Leben ab. Lassen Sie Mitgefühl für sich und das Leben um sich in Ihr Leben fließen.</p>
-	<p>Hier finden Sie ganzheitliche, achtsame Lösungswege, sodass Sie Ihren Lebensweg kraftvoll selbst bestimmen können. Von wissenschaftlich fundiert 		über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtete Heiltools in meine Arbeit als Traumatherapeutin, Heilpraktikerin, Coach 			und energetische Heilerin ein. Mehr [über mich](/about/). </p>
+	<ul>
+	<p> Lassen Sie seelische Zustände wie mangelnde Energie, Gefühl von Fremdbestimmung, häufige ungewollte Stressreaktionen des Körpers hinter sich. Werden Sie emotional stabil. Halte Sie sich nicht mehr mit emotionalen Triggern, alten Zellerinnerungen, (transgenerationalen) Traumatisierungen usw. von Ihrem selbstbestimmten Leben ab. Lassen Sie Mitgefühl für sich und das Leben um sich einfließen.</p>
+	<p>Hier finden Sie ganzheitliche, achtsame Lösungswege, sodass Sie Ihren Lebensweg kraftvoll selbst bestimmen können. Von wissenschaftlich fundiert 		über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtet Heiltools in meine Arbeit als Traumatherapeutin, Heilpraktikerin für Psychotherapie, Coach und energetische Begleiterin ein. Mehr [über mich](/about/). </p>
 
 	
-<p><h4>Ein Feedback zu meinem InnerChildHealing - Coaching, von Maria W. aus Liechtenstein: </h4></p> 
+<p><h4>Ein Feedback zu meiner Inneren Kindheilung - Coaching, von Maria W. aus Liechtenstein: </h4></p> 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
 Feedback geben.</p> 
 <p>Das Angebot mich zu unterstützen um hinzuschauen, wo die
@@ -47,20 +47,10 @@ Schattenverhalten zu korrigieren.</p>
 sehr Erkenntnisreich und vorallem wirklich befreiend.</p> 
 
 <p> hey du liebe, das war wirklich ein Schlüssel, um so schnell
-voranzukommen, das ich deine Hilfe bekam! ein riesiges Dankeschön von
+voranzukommen. Das ich deine Hilfe bekam! ein riesiges Dankeschön von
 mir zu dir!" </p> 
 
-		</p>
-	
-		<p><h3>Quantenheilung/Lichtkörperreinigung</h3>  </p>
-<p>Arbeite ich mit meinen KlientInnen, beginne ich mit klassischen Tools aus **Coaching und innerer Kindheilung** (bewährten Methoden entlehnt aus der Traumatherapie). Damit kommst Du bereits effektiv ein gutes Stück weiter auf Deinem Weg in Dein selbstbestimmtes Leben. Bist Du offen für spirituelle Methoden? Alle seelischen Themen zeigen sich auch auf einer feinstofflichen Ebene. Nach intensivem Training kann ich sehr präzise den Energiekörper (Meridiane, Chakren, Auraschichten) erfühlen und ihn durchreinigen. Alte emtionale Trigger lösen sich in ungeahnter Geschwindigkeit aus Deinem Leben und machen Platz für das, was Du tatsächlich erschaffen wilst - zum Teil in nur wenigen Wochen (je nach dem, wo Du schon stehst.)</p>
-
-		<p><h3>Längerfristige Traumatherapie (nur offline vor Ort möglich)</h3> 
-		Mit seelischen Herausforderungen laufen wir alle herum. Deswegen ist man nicht gleich reif für eine Therapie. ABER: wenn Deine Herausforderungen Deine Lebensqualität erheblich einschränken, dann macht es keinen Sinn, Deine Symptome unbehandelt zu lassen. Eine Traumatherapie ist eine Psychotherapie, die Dir bei seelischen Leiden wie Depression, Panikattacken, Angst, Depersonalisation, Flashbacks, Alpträume etc. hilft. Lerne, Deinen Teufelskreis (wie auch immer er bei Dir genau aussehen mag: Erschöpfung, emotionalen Ausbrüchen, Lücken im Gedächtnis, Flash Backs, Depression, Angst- und Panikattacken, Gefühle von Verfolgtwerden, Alpträume etc.) zu unterbrechen.</p>
-		
-		<p>Was der eigene Sinn im Leben ist, ist meist etwas anderes, als in Zeitschriften und lifestyle-Blogs suggeriert wird. Finde Deinen Weg, Deinen Sinn mit Lebensfreude auszuleben.</p>
-		
-		<h3 id="hier-findest-du-antworten-die-funktionieren">Hier findest Du Antworten, die funktionieren.</h3>
+	<p><h3 id="hier-findest-du-antworten-die-funktionieren">Hier findest Du Antworten, die funktionieren.</h3></p>
 	<p>Manchmal ist es notwendig, in die Vergangenheit zu tauchen und alte Knoten zu lösen. Sobald das erledigt ist, können wir unsere Zeit damit verbringen, unsere Lebenszeit zum Aufbau unseres selbstbestimmten Lebens zu nutzen. In der Vergangenheit herumzufischen hat keinen Selbstwert - zumindest würde ich das nicht als Hobby betreiben. Was ein erfülltes Leben ausmacht? In Leichtigkeit magnetisch anziehen, was uns wirklich Sinn für unser Leben gibt.</p>
 		
 		<p>In meinem Blog schreibe ich im Wesentlichen darüber, wie ich meinen Weg in die fünfte Dimenstion gefunden habe und was Dir vielleicht Inspiration sein kann, Dein Leben voller Energie zu kreieren:</p>
