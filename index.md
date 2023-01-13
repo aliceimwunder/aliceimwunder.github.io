@@ -26,11 +26,11 @@ layout: default
 	<p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Antworten, die im Alltag funktionieren: Aus dem Bereich 		Traumatherapie, Innere Kindheilung, Coaching und Spiritualität trage ich alles zusammen, was ich erfahren und/oder ausprobiert habe, um das Leben 			selbstbestimmt in Leichtigkeit und Freude - also mit dem Inneren Kind, mit unserer Seele - gestalten zu können. Von wissenschaftlich 			fundiert über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtet Heiltools in meine Arbeit als Traumatherapeutin, 			Heilpraktikerin für Psychotherapie, Coach und energetische Begleiterin ein und erzähle davon.
 	
 	<p> <h4> Mein Newsletter - Manifestieren mit dem Inneren Kind</h4> </p>
-		<p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html">Auf meinem Newsletter </a></strong> bekommt man genau das direkt in sein Email-Fach: Mit dem Inneren Kind das Leben gestalten. Inneres Kind beschreibt im Grunde die Energien von Neugier, Lebensfreude, Leichtigkeit, Verbundenheit und Schaffenskraft. Alles, was mir aus Therapie, Coaching und Spiritualität über den Weg läuft - zusammen mit meinen aktuellen Angeboten - kommt frisch zu Dir geliefert. Was ein erfülltes Leben ausmacht? In Leichtigkeit magnetisch anziehen, was uns wirklich Sinn für unser Leben gibt. 				Hol Dir dazu den Newsletter und bleib auf dem Laufenden.</p
+		<p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Auf meinem Newsletter </a></strong> bekommt man genau das direkt in sein Email-Fach: Mit dem Inneren Kind das Leben gestalten. Inneres Kind beschreibt im Grunde die Energien von Neugier, Lebensfreude, Leichtigkeit, Verbundenheit und Schaffenskraft. Alles, was mir aus Therapie, Coaching und Spiritualität über den Weg läuft - zusammen mit meinen aktuellen Angeboten - kommt frisch zu Dir geliefert. Was ein erfülltes Leben ausmacht? In Leichtigkeit magnetisch anziehen, was uns wirklich Sinn für unser Leben gibt. 				Hol Dir dazu den Newsletter und bleib auf dem Laufenden.</p
 	
 		<ul>
-	<li><strong>Mein Blog:</strong>  "Auch Buddha ging ins Homeoffice" - mit ganzheitlichem Wissen um emotionale Stabilität, Energie und Kraft für ein 		selbstbestimmtes Leben<strong><a href="/blog.html">Selbsthilfetools für Zuhause</a></strong></li>
-	<li><strong>Mein Newsletter: </strong>Manifestieren mit dem Inneren Kind! 
+	<li><strong>Mein Blog:</strong>  "Auch Buddha ging ins Homeoffice" - mit ganzheitlichem Wissen um emotionale Stabilität, Energie und Kraft für ein 		selbstbestimmtes Leben mit dem Inneren Kind: <strong><a href="/blog.html"> Selbsthilfetools für Zuhause </a></strong></li>
+	<li><strong> Mein Newsletter: <strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"></strong> Manifestieren mit dem Inneren Kind! </a></strong>
 	<li><strong>mit meiner persönlichen Begleitung</strong> auf Deinem Weg aus der Krise? <strong>Lerne <a href="/about/">mich kennen</a></strong>.</li>
 	</ul>
 	</p>
