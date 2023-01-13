@@ -19,8 +19,8 @@ layout: default
 	<li> Innere Kindheilung - Coaching</li>
 	<li> Einzelaufstellungen/InnerSpace </li>
 	<li> Energiearbeit </li>
-	<ul>
-	<p> Lassen Sie seelische Zustände wie mangelnde Energie, Gefühl von Fremdbestimmung, häufige ungewollte Stressreaktionen des Körpers hinter sich. Werden Sie emotional stabil. Halte Sie sich nicht mehr mit emotionalen Triggern, alten Zellerinnerungen, (transgenerationalen) Traumatisierungen usw. von Ihrem selbstbestimmten Leben ab. Lassen Sie Mitgefühl für sich und das Leben um sich einfließen.</p>
+	<ul><ul>
+	<p> Lassen Sie seelische Zustände wie mangelnde Energie, Gefühl von Fremdbestimmung, häufige ungewollte Stressreaktionen des Körpers hinter sich. 		Werden Sie emotional stabil. Halte Sie sich nicht mehr mit emotionalen Triggern, alten Zellerinnerungen, (transgenerationalen) 				Traumatisierungen usw. von Ihrem selbstbestimmten Leben ab. Lassen Sie Mitgefühl für sich und das Leben um sich einfließen.</p>
 	<p>Hier finden Sie ganzheitliche, achtsame Lösungswege, sodass Sie Ihren Lebensweg kraftvoll selbst bestimmen können. Von wissenschaftlich fundiert 		über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtet Heiltools in meine Arbeit als Traumatherapeutin, Heilpraktikerin für Psychotherapie, Coach und energetische Begleiterin ein. Mehr [über mich](/about/). </p>
 
 	
