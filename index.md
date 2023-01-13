@@ -13,15 +13,15 @@ layout: default
 
 	<p> Ich bin Traumatherapeutin (hp psych) und Coach. Ich begleite Menschen, die ihr Leben selbstbestimmt gestalten wollen. Menschen, die bisher mit 		Stressfolgeerkrankungen kämpfen, seelisch belastet sind oder die sich in alten Mustern verstrickt haben und die nun endlich das leben wollen, 			wonach sich ihre Seele in ihrem Innersten sehnt. </p>
 	
-	<p><h4> Das Angebot meiner Praxis: </h4> </p>
+	<p><h4> Das Angebot meiner Praxis: </h4>
 	
 	<li> Psychodynamische imaginative sowie enaktive Traumatherapie nach Luise Reddemann und Ellert Nijenhuis, EMDR und Hypnotherapie</li>
 	<li> Innere Kindheilung - Coaching</li>
 	<li> Einzelaufstellungen/InnerSpace </li>
 	<li> Energiearbeit </li>
-	<ul><ul>
+	</p><ul>
 	<p> Lassen Sie seelische Zustände wie mangelnde Energie, Gefühl von Fremdbestimmung, häufige ungewollte Stressreaktionen des Körpers hinter sich. 		Werden Sie emotional stabil. Halte Sie sich nicht mehr mit emotionalen Triggern, alten Zellerinnerungen, (transgenerationalen) 				Traumatisierungen usw. von Ihrem selbstbestimmten Leben ab. Lassen Sie Mitgefühl für sich und das Leben um sich einfließen.</p>
-	<p>Hier finden Sie ganzheitliche, achtsame Lösungswege, sodass Sie Ihren Lebensweg kraftvoll selbst bestimmen können. Von wissenschaftlich fundiert 		über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtet Heiltools in meine Arbeit als Traumatherapeutin, Heilpraktikerin für Psychotherapie, Coach und energetische Begleiterin ein. Mehr [über mich](/about/). </p>
+	<p>Hier finden Sie ganzheitliche, achtsame Lösungswege, sodass Sie Ihren Lebensweg kraftvoll selbst bestimmen können. Von wissenschaftlich fundiert 		über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtet Heiltools in meine Arbeit als Traumatherapeutin, Heilpraktikerin für 		Psychotherapie, Coach und energetische Begleiterin ein. Mehr [über mich](/about/). </p>
 
 	
 <p><h4>Ein Feedback zu meiner Inneren Kindheilung - Coaching, von Maria W. aus Liechtenstein: </h4></p> 
