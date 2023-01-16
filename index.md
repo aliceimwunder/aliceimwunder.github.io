@@ -32,8 +32,8 @@ layout: default
 	<li><strong>Mein Blog:</strong>  "Auch Buddha ging ins Homeoffice" - mit ganzheitlichem Wissen um emotionale Stabilität, Energie und Kraft für ein 		selbstbestimmtes Leben mit dem Inneren Kind: <strong><a href="/blog.html"> Selbsthilfetools für Zuhause </a></strong></li>
 	<li><strong> Mein Newsletter:<strong> <a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"></strong> Manifestieren mit dem Inneren Kind! </a>
 	<li><strong>mit meiner persönlichen Begleitung</strong> auf Deinem Weg aus der Krise? <strong>Lerne <a href="/about/">mich kennen</a></strong>.</li>
-	</ul>
-	</p>
+
+
 	
 <p><h4>Ein Feedback zu meiner Inneren Kindheilung - Coaching, von Maria W. aus Liechtenstein: </h4></p> 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
