@@ -4,6 +4,8 @@ title: Innere Kindheilung - Coaching in Berlin
 
 ![Innere Kindheilung in Berlin](/assets/2023-01-28-Innere Kindheilung.jpg)
 
+Foto von <a href="https://unsplash.com/es/@allentaylorjr?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Allen Taylor</a> auf <a href="https://unsplash.com/de/fotos/dAMvcGb8Vog?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
 In meiner Unterstützung für meine KlientInnen frage ich immer danach, wo wollen Sie seelisch hin? Was wollen Sie wirklich erleben, wie Ihr Leben seelisch gestalten? Wie soll es genau sein? Dafür eignen sich Coaching-Tools ganz hervorragend: 
 
 
