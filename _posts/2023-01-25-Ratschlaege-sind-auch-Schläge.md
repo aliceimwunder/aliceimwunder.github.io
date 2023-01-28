@@ -1,6 +1,10 @@
 ---
 title: Auf Ratschläge kann ich gut verzichten! 
 ---
+![Baseballschlag](/assets/
+
+Foto von <a href="https://unsplash.com/@joshhemsley?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Josh Hemsley</a> auf <a href="https://unsplash.com/de/fotos/e-f17L4EBBc?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
 
 ## Kurze Einführung in Clean Language
 Kennst Du das? Du willst einfach darüber reden, dass etwas gerade nicht so läuft in Deinem Leben, wie Du es gerne hättest… 
