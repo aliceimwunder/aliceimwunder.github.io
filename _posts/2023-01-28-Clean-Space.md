@@ -2,6 +2,11 @@
 title: Buch Dir Clean Space in Berlin 
 ---
 
+![Clean Space](/assets/2023-01-28-Clean Space.jpg)
+
+Foto von <a href="https://unsplash.com/@timchowstudio?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Tim Chow</a> auf <a href="https://unsplash.com/de/fotos/9IcKPSQ9G5Q?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
+
 ## Was ist der Clean-Space-Prozess?
 Der Clean-Space-Prozess ist ein **leistungsstarkes Werkzeug** für persönliches und berufliches Wachstum. Es ist eine Form von Aufstellung. 
 
@@ -17,7 +22,7 @@ Dann begegnete mir **Clean Space** und ich war hellauf von dieser Form von Aufst
 **Clean Space ist absolut traumasensibel** und daher auch für die KlientInnen ein Geschenk, die mit Traumatisierungen zu kämpfen haben oder die sich in Gruppen nicht so gerne mit ihren Themen öffnen oder die spirituell sich weiter entwickeln wollen. 
 
 
-Es ist möglich, den Clean-Space-Prozess vollständig mit sich selbst oder im Austausch mit mir als Therapeutin durchzuführen. Ich habe schon Prozesse durchgeführt, bei denen ich weder das Thema noch den Inhalt des Prozesses kannte. Doch allein die Körpersprache von Beginn bis Ende des Prozesses sprachen Bände. Die Klientin faltete sich förmlich aus sich selbst heraus und ging fokussiert und entschlossen aus der Sitzung.
+Es ist möglich, den Clean-Space-Prozess vollständig **mit sich selbst** oder im Austausch mit mir als Therapeutin durchzuführen. Ich habe schon Prozesse durchgeführt, bei denen ich weder das Thema noch den Inhalt des Prozesses kannte. Doch allein die Körpersprache von Beginn bis Ende des Prozesses sprachen Bände. Die Klientin faltete sich förmlich aus sich selbst heraus und ging fokussiert und entschlossen aus der Sitzung.
 
 
 ## Wofür ist Clean Space geeignet? 
