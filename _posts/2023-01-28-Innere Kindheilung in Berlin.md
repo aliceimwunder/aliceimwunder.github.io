@@ -2,6 +2,8 @@
 title: Innere Kindheilung - Coaching in Berlin 
 ---
 
+![Innere Kindheilung in Berlin](assets/2023-01-28-Innere Kindheilung.jpg)
+
 In meiner Unterstützung für meine KlientInnen frage ich immer danach, wo wollen Sie seelisch hin? Was wollen Sie wirklich erleben, wie Ihr Leben seelisch gestalten? Wie soll es genau sein? Dafür eignen sich Coaching-Tools ganz hervorragend: 
 
 
