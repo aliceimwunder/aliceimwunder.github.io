@@ -1,7 +1,7 @@
 ---
 title: Auf Ratschläge kann ich gut verzichten! 
 ---
-![Baseballschlag](/assets/
+![Baseballschlag](/assets/2023-01-25-Baseballschlag.jpg)
 
 Foto von <a href="https://unsplash.com/@joshhemsley?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Josh Hemsley</a> auf <a href="https://unsplash.com/de/fotos/e-f17L4EBBc?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
   
@@ -70,13 +70,13 @@ Antwort z.B.: Mein Baum ist eine wunderschöne Kastanie.
 - Was für eine *wunderschöne Kastanie* ist Deine Kastanie? 
 Ja, also meine ist eine rosa blühende. Kastanien finde ich sehr ästhetisch.
 
--Was ist das für ein *ästhetisch*? (Man kann auch nach den rosa Blüten fragen. Das ist egal. Nimm das, was Dir in dem Satz Deines Gegenübers am meisten auffällt und wiederhole das wörtlich in Form einer Frage.)
+-Was für ein ästhetisch ist Dein *ästhetisch*? (Man kann auch nach den rosa Blüten fragen. Das ist egal. Nimm das, was Dir in dem Satz Deines Gegenübers am meisten auffällt und wiederhole das wörtlich in Form einer Frage. Oder nachfragen: Gibt es da noch etwas über die rosa blühende Kastanie?)
 Na, ästhetisch bedeutet für mich, dass sie so ganz symmetrisch gewachsen ist und perfekt in die Umgebung passt. 
 
 - In welche *Umgebung passt* Deine Kastanie perfekt? 
 Meine Kastanie steht mitten in einem großen Schlosspark und …  
 
-- Oh, was für ein **großer Schlosspark** ist dieser Schlosspark? Oder: Was gibt es noch über **Deine Kastanie** zu wissen? 
+- Oh, was für ein **großer Schlosspark** ist dieser Schlosspark? Oder: Was gibt es noch über **Deine Kastanie in dem großen Schloßpark** zu wissen? 
 
 Merkst Du, dass in der Frage immer ein Satzschnipsel vom Erzählenden vorkommt? 
 
@@ -104,7 +104,7 @@ Daher ist es wichtig, vom Problem zur Lösung wechseln - aber nicht zu einem Rat
 Bsp: Ich muss mein Auto staubsaugen und habe dazu keine Lust. Also so richtig keine Lust. Das erzähle ich nun meiner Freundin. Nerv, ich muss schon wieder das Auto staubsaugen. Der Hund haart die ganze Zeit. Bla, bla, bla, Das ist blöd. 
 Wenn jetzt mein Gegenüber mir sofort erklärt. Komm, das ist doch nicht schlimm, mal eben das Auto zu staubsaugen. Das machst Du doch mit links. - Dann kann ich Dir sagen: Nein, das wollte ich nicht hören. Das weiß ich glatt selbst. Schon grummelt es in mir, statt dass ich eine angenehme Unterhaltung geführt hätte. 
 
-Daher am Anfang nur nachfragen. Wie sieht dieses Haaren denn aus? Oder, Dein Hund haart viel? (Einen Wortlaut aufgreifen, der ohnehin da ist. Nichts Kompliziertes fragen.) Ja, überall sind Haare halt... Und Du musst das alles staubsaugen? Ja. Dazu habe ich so was von keine Lust! Woran liegt es, dass Du so was von keine Lust hast? (Wörtliches Wiederholen! plus eine offene W-Frage) Ich habe keine Lust, weil mich das so viel Kraft kostet (oder weil es so laut ist, oder weil ich keine Zeit habe…) 
+Daher **am Anfang nur nachfragen**. Wie sieht dieses Haaren denn aus? Oder, Dein Hund haart viel? (Einen Wortlaut aufgreifen, der ohnehin da ist. Nichts Kompliziertes fragen.) Ja, überall sind Haare halt... Und Du musst das alles staubsaugen? Ja. Dazu habe ich so was von keine Lust! Woran liegt es, dass Du so was von keine Lust hast? (Wörtliches Wiederholen! plus eine offene W-Frage) Ich habe keine Lust, weil mich das so viel Kraft kostet (oder weil es so laut ist, oder weil ich keine Zeit habe…) 
 
 Jetzt fange ich überhaupt erst an, über das eigentliche Problem nachzudenken. Denn es ist ein Unterschied, ob ich mit zu viel Perfektionismus daran gehe und Staubsaugen deswegen endlos dauert, oder ob das Gerät so unangenehm ist, weil es zu laut oder zu schwer ist, oder ob die verwendete Bürste für Hundehaare ungeeignet ist und daher frustierend lange braucht… Selbst ein so simples Problem wie “Auto Staubsaugen” kann ganz unterschiedliche Lösungen haben. Daher ist die Wahrscheinlichkeit, dass ein gut gemeinter Ratschlag überhaupt das Richtige trifft, gering. Stattdessen könnte man nachfragen: Wie “laut” (exakt die Wortwahl nehmen) ist denn Dein Staubsauger? …  
 
