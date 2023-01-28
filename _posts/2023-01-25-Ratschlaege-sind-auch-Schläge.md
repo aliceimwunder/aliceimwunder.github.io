@@ -147,8 +147,8 @@ Du merkst, Du hälst den “Schmerz” anderer nicht aus und kannst einfach nich
 
 Traumatherapie oder Innere Kindheilung - Coaching können hier sehr effizient und schnell weiterhelfen. Das Leben ist entschieden zu kurz, um es damit zu verbringen, sich im Kreis zu drehen oder mit Rat-Schlägen um sich zu schlagen. Egal, wie gut das alles gemeint ist. 
 
-### Hinterlass einen Kommentar
-Probier die Strategie von Clean Language einfach aus. Es ist super einfach, wenn man einmal den Dreh raus hat und hebt die eigene Kommunikationsqualität in andere Sphären. Vielleicht magst Du zu Deinen Erfahrungen einen Kommentar hinterlassen?
+### Schreibe mir
+Probier die Strategie von Clean Language einfach aus. Es ist super einfach, wenn man einmal den Dreh raus hat und hebt die eigene Kommunikationsqualität in andere Sphären. Vielleicht magst Du zu Deinen Erfahrungen mit mir teilen? 
 
-Auf meinem Newsletter "Manifestieren mit dem Inneren Kind" findest Du noch mehr Unterstützung, Dein Leben aktiv zu gestalten, sowie aktuelle Termine und Angebote. 
+Auf meinem Newsletter ["Manifestieren mit dem Inneren Kind"](/2021/04/21/Landingspage-Newsletteranmeldung.html) findest Du noch mehr Unterstützung, Dein Leben aktiv zu gestalten, sowie aktuelle Termine und Angebote. 
 
