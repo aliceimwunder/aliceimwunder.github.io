@@ -15,4 +15,6 @@ Gem::Specification.new do |spec|
   spec.add_development_dependency "jekyll", "~> 4.0"
   spec.add_development_dependency "bundler"
   spec.add_development_dependency "jekyll-feed", "~> 0.6"
+  #spec.add_development_dependency "jekyll-remote-theme"
+  #spec.add_development_dependency "webrick"
 end
