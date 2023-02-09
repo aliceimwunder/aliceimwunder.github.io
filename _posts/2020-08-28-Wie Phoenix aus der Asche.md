@@ -1,5 +1,5 @@
 ---
-title: Mein Traumleben erschaffen: Powerresilienz 2.0
+title: "Mein Traumleben erschaffen: Powerresilienz 2.0"
 ---
 
 ![Erste Pflanzen auf Vulkanasche](/assets/2020-08-28-Erste Pflanzen auf Vulkanasche.jpg)
