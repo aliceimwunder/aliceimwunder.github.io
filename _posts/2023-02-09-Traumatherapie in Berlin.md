@@ -24,7 +24,7 @@ Belastende Erfahrungen können sich an einen dieser Aspekte in uns haften. Unser
 In der Psychotherapie nennt man die versteckten Muster, sei es ein Verhalten, sei es ein Gefühl, sei es eine längere Stimmung, für die wir uns nicht bewusst entscheiden, **Dissoziation**. Es ist ein alter Schutzmechanismus, der uns bei bzw. direkt nach einer belastenden Erfahrung weiter unser Leben gestalten lässt, bis wir die Zeit haben, mit der Vergangenheit abzuschließen. 
 
 
-Diese Schutzmauern in uns sind wunderbare Helfer in belastenden Situationen. Doch sie kosten Kraft, sie lassen uns nicht mit unserer vollen seelischen Kraft unser Leben gestalten und genießen. Psychische und psychosomatische Symptome entstehen. 
+Diese Schutzmauern in uns sind wunderbare Helfer in belastenden Situationen. Sie auf Dauer bestehen zu lassen kostet Kraft, kann Symptome aller Art verursachen. Sie lassen uns nicht mit unserer vollen seelischen Kraft unser Leben gestalten und genießen. Psychische und psychosomatische Symptome entstehen. 
 
 
 ## Traumatherapie 
