@@ -14,7 +14,7 @@ Nehmen Sie sich als ausgebrannt oder überfordert in Ihrem Leben wahr? Vielleich
 Dann entsteht vielleicht der **Wunsch nach Regeneration** in uns. Ein Wunsch danach, die Vergangenheit hinter sich zu lassen und das ganz eigene Leben zu entfalten: **Seelisch Kraft aufbauen**, sich zentrieren, sich wieder mit einem positiven Strom des Lebens verbinden und inneres Wachstum geschehen lassen. 
 
 
-Wir bestehen nicht nur aus einem einzigen festen, unveränderlichen Ich. Wir haben viele Seiten in uns, viele Aspekte, die gelebt werden wollen. Manches, von dem, was wir erleben, wollen wir doch nicht mehr fortsetzen. **Alte Muster, alte Gefühle, altes Verhalten.** Das Gefühl, nicht frei das Leben gestalten zu können, weil manches aus der Vergangenheit wie ein Stein wiegt. Die verschiedenen Aspekte in uns, die wir leben können oder wollen oder nicht wollen (wir sind anders, wenn wir einkaufen gehen, oder wenn wir mit einem Kind sprechen oder wenn wir ein Beratungsgespräch in einer Bank wahrnehmen), sind alle Anteile in uns, die unser Ich zusammen bilden. 
+Wir bestehen nicht nur aus einem einzigen festen, unveränderlichen Ich. Wir haben viele Seiten in uns, viele Aspekte, die gelebt werden wollen. Manches, von dem, was uns geschieht, wollen wir jedoch nicht mehr fortsetzen. **Alte Muster, alte Gefühle, altes Verhalten.** Das Gefühl, nicht frei das Leben gestalten zu können, weil manches aus der Vergangenheit wie ein Stein wiegt. Die verschiedenen Aspekte in uns, die wir leben können oder wollen oder nicht wollen (wir sind anders, wenn wir einkaufen gehen, oder wenn wir mit einem Kind sprechen oder wenn wir ein Beratungsgespräch in einer Bank wahrnehmen), sind alle Anteile in uns, die unser Ich zusammen bilden. 
 
 
 ## Die Vergangenheit 
