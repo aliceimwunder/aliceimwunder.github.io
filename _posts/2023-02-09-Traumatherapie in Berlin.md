@@ -41,15 +41,16 @@ Daher besteht eine Traumatherapie aus drei Schritten, die sich wiederholen und a
 Wir sind keine Einzelkämpfer von Natur aus. Unser Körper ist kein Einzelkämpfer. Er hat seine Evolution immer im Verbund mit anderen Wesen gelebt. Deswegen geht Heilung zusammen in einer Therapie leichter. Denn gemeinsam heißt nicht mehr nur 1 + 1 = 2. 
 
 
-Geht man den Weg gemeinsam, wieder 
+Geht man **den Weg gemeinsam**,  
 - Vertrauen in sich aufzubauen, 
 - Sicherheit wahrzunehmen, 
 - Vertrauen in den eigenen Heilungsprozess zu entwickeln, 
-- Motivation und Durchhaltevermögen für andere Entscheidungen in sich finden, 
-- seine Kraft in weniger innere Schutzmechanismen und mehr in aktive Gestaltung des Lebens investieren,
-- Resilient werden (Resilienz bei Belastungserfahrungen ist kein Gen, das man hat oder nicht; eher eine Art Muskel, den wir trainieren können),
-- flexibel auf die weiteren Herausforderungen des Lebens reagieren können
-dann ist man nicht nur schneller, auch sicherer auf dem eigenen Heilweg unterwegs. Ist jemand da, der den Raum für Sicherheit und Offenheit halten kann, dann wird aus der Anwesenheit von zwei Personen viel mehr als 2. Es kann drei, vier oder fünf werden.
+- Motivation und Durchhaltevermögen für andere Entscheidungen in sich zu finden, 
+- seine Kraft in weniger innere Schutzmechanismen und mehr in aktive Gestaltung des Lebens zu investieren,
+- resilient zu werden (Resilienz bei Belastungserfahrungen ist kein Gen, das man hat oder nicht; eher eine Art Muskel, den wir trainieren können),
+- flexibel auf die weiteren Herausforderungen des Lebens zu reagieren,
+
+dann ist man nicht nur schneller, auch sicherer und tiefgreifender **auf dem eigenen Heilweg unterwegs**. Ist jemand da, der den Raum für Sicherheit und Offenheit halten kann, dann wird aus der Anwesenheit von zwei Personen viel mehr als 2. Es kann drei, vier oder fünf werden.
  
 
 
