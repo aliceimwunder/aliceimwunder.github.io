@@ -28,7 +28,7 @@ Diese Schutzmauern in uns sind wunderbare Helfer in belastenden Situationen. Sie
 
 
 ## Traumatherapie 
-In der Traumatherapie dürfen sich diese alten Muster und damals überlastenden Erfahrungen auf ganz sanfte Art zeigen, jetzt ohne zu überlasten. Die Anteile mit ihren angehefteten Erfahrungen können sich wieder in unser Ich auf harmonische Weise einordnen. Dazu brauchen wir ein **Gefühl von Sicherheit, von Getragen sein.** Sonst lässt unser psychisches System keinen direkten Zugriff zu (Schutz!). Bis Schutz da ist, bis Raum und Zeit für diese Art Heilung gekommen  ist. 
+In der Traumatherapie dürfen sich diese alten Muster und damals überlastenden Erfahrungen auf ganz sanfte Art zeigen, im Hier und Jetzt, aber ohne erneut zu überlasten. Die Anteile mit ihren angehefteten Erfahrungen können sich wieder in unser Ich auf harmonische Weise einordnen, ohne Schutzmauer. Dazu brauchen wir ein **Gefühl von Sicherheit, von Getragen sein.** Sonst lässt unser psychisches System keinen direkten Zugriff zu. Bis genügend Vertauen und Schutz wahrgenommen wird; bis Raum und Zeit für diese Art Heilung gekommen ist. 
 
 
 Daher besteht eine Traumatherapie aus drei Schritten, die sich wiederholen und aufeinander aufbauen. Dadurch entsteht **ein gangbarer, zuverlässiger Weg** in ein selbstbestimmtes Leben. Verletzungen und Überlastungen aus der Vergangenheit können sich auswirken, als ob man keinen Einfluss auf das eigene Leben hat. Stattdessen darf man sich nun wieder ans Steuer seines Lebens setzen. Als Therapeutin bin ich dabei keine Fahrlehrerin, eher eine Reisebegleiterin, die auf einen sicheren und liebevollen Weg achtet. 
@@ -42,13 +42,13 @@ Wir sind keine Einzelkämpfer von Natur aus. Unser Körper ist kein Einzelkämpf
 
 
 Geht man den Weg gemeinsam, wieder 
--Vertrauen in sich aufzubauen, 
--Sicherheit wahrzunehmen, 
--Vertrauen in den eigenen Heilungsprozess zu entwickeln, 
--Motivation und Durchhaltevermögen für andere Entscheidungen in sich finden, 
--seine Kraft in weniger innere Schutzmechanismen und mehr in aktive Gestaltung des Lebens investieren,
--Resilient werden,
--flexibel auf die weiteren Herausforderungen des Lebens reagieren können
+- Vertrauen in sich aufzubauen, 
+- Sicherheit wahrzunehmen, 
+- Vertrauen in den eigenen Heilungsprozess zu entwickeln, 
+- Motivation und Durchhaltevermögen für andere Entscheidungen in sich finden, 
+- seine Kraft in weniger innere Schutzmechanismen und mehr in aktive Gestaltung des Lebens investieren,
+- Resilient werden (Resilienz bei Belastungserfahrungen ist kein Gen, das man hat oder nicht; eher eine Art Muskel, den wir trainieren können),
+- flexibel auf die weiteren Herausforderungen des Lebens reagieren können
 dann ist man nicht nur schneller, auch sicherer auf dem eigenen Heilweg unterwegs. Ist jemand da, der den Raum für Sicherheit und Offenheit halten kann, dann wird aus der Anwesenheit von zwei Personen viel mehr als 2. Es kann drei, vier oder fünf werden.
  
 
