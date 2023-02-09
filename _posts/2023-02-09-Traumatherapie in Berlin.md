@@ -58,7 +58,7 @@ dann ist man nicht nur schneller, auch sicherer und tiefgreifender **auf dem eig
 Traumatherapie ist ideal einmal wöchentlich. Eine psychotherapeutische Sitzung umfasst 50 min. Andere Gestaltungsformen, von einem zweiwöchentlichen Rhythmus bis zu mehrmals pro Woche, sind je nach Bedarf ebenfalls möglich. 
 
 
-Kosten für Selbstzahler:  80,-/Sitzung in einer fortlaufenden Therapie. 
+**Kosten: 80,-€**/Sitzung in einer fortlaufenden Therapie. 
 
 
 Ein telefonisches Vorgespräch zur Klärung von Fragen bzw. für einen ersten Eindruck à ca. 20 min biete ich kostenfrei an. (Auch per zoom mit Video ist möglich.)
