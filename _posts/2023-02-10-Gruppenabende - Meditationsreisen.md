@@ -78,6 +78,7 @@ Sie können darauf vertrauen, dass Ihr Energiekörper Ihre Hindernisse für Ihre
 
 Wollen Sie mehr über die jeweiligen Themen der Abende wissen? Dann melde Sie sich hier für meinen Newsletter an: Dort schreibe ich ausführlicher über die einzelnen Themen.  
 
+Weitere Informationen auf meinem Newsletter:  
 <span style='display:inline-block;padding:18px;background:#ececec'>
 **[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 </span>
