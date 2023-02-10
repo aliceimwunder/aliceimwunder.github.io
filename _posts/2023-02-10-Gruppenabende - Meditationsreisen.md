@@ -6,7 +6,7 @@ Nächster Termin: Freitag, den 24.02.2023, 19:00 Uhr auf zoom!
 
 Anmeldung per Email an: info@alicewindolf.de
 
-![Wellen mit Kind](/assets/2021-04-11-Wellen mit Kind.jpg)
+![Licht am Horizont](/assets/2023-02-10-Licht am Horizont.jpg)
 
 ## Meditationsreisen - Aurareinigung - Innere Kindheilung
 Können Sie einen **Frischekick für Ihren Alltag** gebrauchen? Sie würden gerne mehr in Ihrer Mitte sein? Ist zu viel von anderen/Gesellschaft/Beruf in Ihrem Leben vorgegeben, zu wenig Sie selbst in Ihrem eigenen Leben? Fühlen Sie sich manchmal erschöpft, überfordert oder blockiert?  
