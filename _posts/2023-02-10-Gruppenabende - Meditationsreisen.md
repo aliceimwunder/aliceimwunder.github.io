@@ -4,6 +4,8 @@ title: Offene Gruppenmeditation
 
 Nächster Termin: Freitag, den 24.02.2023, 19:00 Uhr auf zoom!
 
+Anmeldung per Email: info@alicewindolf.de
+
 ![Wellen mit Kind](/assets/2021-04-11-Wellen mit Kind.jpg)
 
 ## Meditationsreisen - Aurareinigung - Innere Kindheilung
