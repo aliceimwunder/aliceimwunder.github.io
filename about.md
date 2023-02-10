@@ -7,7 +7,7 @@ permalink: /about/
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
 ## Was biete ich an? 
-- Psychodynamische imaginative Traumatherapie nach Luise Reddemann (Nach dem HeilprakG)  
+- Traumatherapie (nach dem HeilprakG) basierend auf psychodynamisch imaginativen Traumatherapie nach Luise Reddemann und enaktiver Traumatherapie nach Ellert Nijenhuis  
 - EMDR, traumasensible Hypnotherapie 
 - Innere Kindheilung - Coaching - Erreiche ein konkretes Ziel
 - Clean Space/Einzelaufstellungen
