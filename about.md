@@ -13,7 +13,7 @@ permalink: /about/
 - Clean Space/Einzelaufstellungen
 - Traumasensible Energiearbeit zum Lösen energetischer Blockaden 
 
-Ich begleite Menschen, die wissen, dass in ihnen mehr ruht, als sie in ihrem Leben bisher umsetzen konnten, die sich nicht mehr von ihren seelischen Verletzungen und alten Mustern beschränken lassen wollen. Endlich das Leben wollen, wonach sie sich seelisch sehnen. Jeder Mensch bringt seine Weisheit, seine Kraft und seine Liebe ins Leben mit. Die innere Ruhe, Stabilität, Kraft und Neugier ins Leben lässt sich wiederfinden.   
+Ich begleite Menschen, die wissen, dass in ihnen mehr ruht, als sie in ihrem Leben bisher umsetzen konnten, die sich nicht mehr von ihren seelischen Verletzungen und alten Mustern beschränken lassen wollen. Endlich das Leben wollen, wonach sie sich seelisch sehnen. Jeder Mensch bringt seine Weisheit, seine Kraft und seine Liebe ins Leben mit. Dann können belastende Erlebnisse einen Menschen im Laufe seines Lebens aus seiner Mitte fallen bringen. Die innere Ruhe, Stabilität, Kraft und Neugier ins Leben lässt sich wiederfinden.   
 
 ## Wie bin ich dazu gekommen, Menschen ihre innere Stabilität und Kraft zu zeigen?
 In meinem "ersten" Leben war ich Verwaltungsjuristin. Ich wohnte mit meinem Mann und meiner Tochter in einer schicken Stadtwohnung in Berlin mit kleinem Garten. Ich war stellvertretende Leiterin eines 10-köpfigen Teams, bei dem es sogar weitere Karriereaussichten trotz Teilzeitmuttidasein gab. Ich ging dabei Bürgerbeschwerden gegen die Berliner Landesverwaltung nach. Privat: Nette Cafés, nette Urlaube. Harmonische Ehe, niedliche Tochter. **Was will der Mensch mehr?**
