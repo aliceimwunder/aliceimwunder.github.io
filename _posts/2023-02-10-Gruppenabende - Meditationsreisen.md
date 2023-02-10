@@ -4,7 +4,7 @@ title: Offene Gruppenmeditation
 
 Nächster Termin: Freitag, den 24.02.2023, 19:00 Uhr auf zoom!
 
-Anmeldung per Email: info@alicewindolf.de
+Anmeldung per Email an: info@alicewindolf.de
 
 ![Wellen mit Kind](/assets/2021-04-11-Wellen mit Kind.jpg)
 
@@ -48,7 +48,7 @@ Jeder, der Interesse hat, sich einmal tief zu reinigen und klarer auf ein positi
 Die **Abende dauern gut 1,5h bis max. 2h** mit Ankommen im Gruppenraum, die eigentliche Energiearbeit und gemeinsames Ausklingen. Wunderschön ist es, wenn Sie die Möglichkeit haben, im Anschluss noch ein bisschen die Sitzung nachklingen und reflektieren zu lassen. Ganz wie Sie es einrichten können.  
 
 ## Ablauf
-Jeder kann sich von mir in eine leichte Trance führen lassen. Ich gehe mit der Gruppe **einzelne Auraschichten** durch, die gereinigt, aufgeladen und ausgerichtet werden. Auch Chakren oder festsitzende Energien in Körperteilen können gereinigt werden. Ich richte mich immer vollständig danach, was in die Gruppe eingebracht wird. Die Themen, mit denen man sich gerade im Leben beschäftigt, hinterlassen Spuren im Energiekörper. Verbinden sich die Energien zu einer Gruppe, so zeigt sich das, was für alle Teilnehmer in dem Moment relevant ist zu harmonisieren.   
+Jeder kann sich von mir in eine leichte Trance führen lassen. Ich gehe mit der Gruppe **einzelne Auraschichten** durch, die gereinigt, aufgeladen und ausgerichtet werden. Auch Chakren oder festsitzende Energien in Körperteilen können gereinigt werden. Ich richte mich immer vollständig danach, was in die Gruppe eingebracht wird. Die Themen, mit denen man sich gerade im Leben beschäftigt, hinterlassen Spuren im Energiekörper. Verbinden sich die Energien zu einer Gruppe, so zeigt sich das, was für alle Teilnehmer in dem Moment relevant ist, zu harmonisieren.   
 
 Zur Zeit erscheinen mir oft folgende vier Schichten besonders hilfreich zu reinigen - angelehnt an die Vorgehensweise von Pavlina Klemm: 
 1. Die physische Zellschicht, 
@@ -80,9 +80,9 @@ Sie können darauf vertrauen, dass Ihr Energiekörper Ihre Hindernisse für Ihre
 
 Wollen Sie mehr über die jeweiligen Themen der Abende wissen? Dann melde Sie sich hier für meinen Newsletter an: Dort schreibe ich ausführlicher über die einzelnen Themen.  
 
-Weitere Informationen auf meinem Newsletter:  
+**Weitere Informationen auf meinem Newsletter**: 
 <span style='display:inline-block;padding:18px;background:#ececec'>
-**[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
+[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 </span>
 
 ## Energieaustausch
@@ -90,7 +90,7 @@ Für einen Abend: 30,- €
 
 Dauer des Abends: ca. 1,5h-2h. 
 
-Sie erhalten eine Aufnahme der Mediation per Link zum Runterladen. 
+Sie erhalten **eine Aufnahme der Mediation** per Link zum Runterladen. 
 
 Buchen Sie sich drei Abende und vertiefen damit die Wirkung jedes Mal, können Sie einen Rabatt mitnehmen. Bei Buchung von drei Abenden: 25,-€/Abend. 
 
