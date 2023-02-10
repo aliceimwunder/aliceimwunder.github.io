@@ -15,8 +15,8 @@ Dann lassen Sie sich auf mehr Gelassenheit ein. Diese Gruppe ist genau darauf au
 
 Dabei reinige ich tiefgreifend die Aura und nutze Quantenheilung, um neue Impulse zu integrieren. Eine leichte Trance entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung angewandt werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Denn bei mir müssen alle Angebote auch immer traumasensibel sein. 
 
-## Ort der geleiteten Meditation? 
-Meist finden diese reinigenden Meditationsreisen auf zoom statt. Daher können Sie es sich dabei **auf Ihrem Sofa gemütlich machen**, oder jedem anderen Ort, an dem Sie zur Ruhe kommen können. Einfach meiner Stimme in eine leichte Trance folgen. So können Sich sich vom Stress des Alltags auf leichte Weise reinigen und sich auf Ihre persönlichen Ziele auf sanfte Weise ausrichten. 
+## Ort der geleiteten Meditation 
+Meist finden diese reinigenden Meditationsreisen **auf zoom** statt. Daher können Sie es sich dabei **auf Ihrem Sofa gemütlich machen**, oder jedem anderen Ort, an dem Sie zur Ruhe kommen können. Einfach meiner Stimme in eine leichte Trance folgen. So können Sich sich vom Stress des Alltags auf leichte Weise reinigen und sich auf Ihre persönlichen Ziele in sanfter Art und Weise ausrichten. 
 
 Sie benötigen einen *Internetanschluss und ein dazu passendes Gerät*, mit dem Sie auf Zoom mitmachen können. Natürlich funktioniert die Meditation auch ohne Bild. Zoom bietet die Möglichkeit, sich per Telefon einzuwählen, wenn ein privater Internetanschluss nicht vorhanden ist. (Zoom benötigt ca. 1GB Datenrate/Stunde, ansonsten handelt es sich bei der von zoom bereitgestellten Telefonnummer um eine Festnetznummer.) 
 
