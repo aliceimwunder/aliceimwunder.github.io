@@ -7,13 +7,11 @@ Nächster Termin: Freitag, den 24.02.2023, 19:00 Uhr auf zoom!
 ![Wellen mit Kind](/assets/2021-04-11-Wellen mit Kind.jpg)
 
 ## Meditationsreisen - Aurareinigung - Innere Kindheilung
-Können Sie einen **Frischekick für Deinen Alltag** gebrauchen? Sie würden gerne mehr in Ihrer Mitte sein? Ist zu viel von anderen/Gesellschaft/Beruf in Ihrem Leben vorgegeben, zu wenig Sie selbst in Ihrem eigenen Leben? Fühlen Sie sich manchmal erschöpft, überfordert oder blockiert?  
+Können Sie einen **Frischekick für Ihren Alltag** gebrauchen? Sie würden gerne mehr in Ihrer Mitte sein? Ist zu viel von anderen/Gesellschaft/Beruf in Ihrem Leben vorgegeben, zu wenig Sie selbst in Ihrem eigenen Leben? Fühlen Sie sich manchmal erschöpft, überfordert oder blockiert?  
 
-Dann geht es Ihnen vielleicht wie vielen anderen. Die **Übersicht behalten**, **geerdet** aus dem eigenen Sein handeln, kann leichter gesagt als getan sein. 
+Dann geht es Ihnen vielleicht wie vielen anderen. Die **Übersicht behalten**, geerdet aus dem eigenen Sein handeln, kann leichter gesagt als getan sein. **Gelassenheit** bei den kleineren und größen Stürmen Ihres Lebens: **Wäre das ein wunderbarer Zustand**? Und vor allem schneller im Wochenende ankommen, wenn die Woche von Montag bis Freitag gut vollgepackt war? 
 
-**Gelassenheit** bei den kleineren und größen Stürmen Ihres Lebens: **Wäre das ein wunderbarer Zustand**? Und vor allem schneller im Wochenende ankommen, wenn die Woche von Montag bis Freitag gut vollgepackt war. 
-
-Dann lassen Sie sich auf mehr Gelassenheit ein. ;-) Diese Gruppe ist genau darauf ausgerichtet: **Eine intensive Meditationsreise**, die Sie schnell zu Ihrer Mitte zurückbringt. 
+Dann lassen Sie sich auf mehr Gelassenheit ein. Diese Gruppe ist genau darauf ausgerichtet: **Eine intensive Meditationsreise**, die Sie schnell zu Ihrer Mitte zurückbringt. 
 
 Dabei reinige ich tiefgreifend die Aura und nutze Quantenheilung, um neue Impulse zu integrieren. Eine leichte Trance entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung angewandt werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Denn bei mir müssen alle Angebote auch immer traumasensibel sein. 
 
