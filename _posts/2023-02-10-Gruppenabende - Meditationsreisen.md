@@ -22,8 +22,9 @@ Sie benötigen einen *Internetanschluss und ein dazu passendes Gerät*, mit dem 
 
 ## Starten Sie geerdet in Ihr Wochenende mit dieser Gruppenmeditation. 
 
-Anmeldung: Schreiben Sie mir einfach eine Email: info@alicewindolf.de, dass Sie dabei sein wollen. Weitergehende Infos zu den einzelnen Themen der Abende teile ich auf meinem Newsletter mit Dir.  
+Anmeldung: Schreiben Sie mir **einfach eine Email: info@alicewindolf.de**, dass Sie dabei sein wollen. Weitergehende Infos zu den einzelnen Themen der Abende teile ich auf meinem Newsletter mit Dir.  
 
+Weitere Informationen auf meinem Newsletter: 
 <span style='display:inline-block;padding:18px;background:#ececec'>
 **[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 </span>
