@@ -2,7 +2,7 @@
 title: Offene Gruppenmeditation
 ---
 
-Nächster Termin: Freitag, den 24.02.2023, 19:00 Uhr auf zoom!
+Nächster Termin: Freitag, den 03.03.2023, 19:00 Uhr auf zoom!
 
 Anmeldung per Email an: info@alicewindolf.de
 
