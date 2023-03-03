@@ -33,7 +33,7 @@ Weitere Informationen auf meinem Newsletter:
 
 Nächste Termine per zoom:
 
-**Freitag, den 24.2., 19:00, Thema: Gestaltungskraft** - gestalte 2023 mit Deiner vollen Kraft - mit der Jahresenergie "Entfaltung"
+**Freitag, den 03.3., 19:00, Thema: Gestaltungskraft** - gestalte 2023 mit Deiner vollen Kraft - mit der Jahresenergie "Entfaltung"
 
 Freitag, den 28.4., 19:00, Thema: Erdung - verbinde Dich tiefer mit Deinem Körper und erhöhe damit Stabilität und Fokus in Deinem Leben.
 
