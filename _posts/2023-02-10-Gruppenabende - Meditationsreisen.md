@@ -2,7 +2,7 @@
 title: Offene Gruppenmeditation
 ---
 
-Nächster Termin: Freitag, den 03.03.2023, 19:00 Uhr auf zoom!
+Nächster Termin: Freitag, den 12.05.2023, 19:00 Uhr auf zoom!
 
 Anmeldung per Email an: info@alicewindolf.de
 
@@ -33,11 +33,12 @@ Weitere Informationen auf meinem Newsletter:
 
 Nächste Termine per zoom:
 
-**Freitag, den 03.3., 19:00, Thema: Gestaltungskraft** - gestalte 2023 mit Deiner vollen Kraft - mit der Jahresenergie "Entfaltung"
-
-Freitag, den 28.4., 19:00, Thema: Erdung - verbinde Dich tiefer mit Deinem Körper und erhöhe damit Stabilität und Fokus in Deinem Leben.
+**Freitag, den 12.5., 19:00, Thema: Erdung - verbinde Dich tiefer mit Deinem Körper und erhöhe damit Stabilität und Fokus in Deinem Leben.**
 
 Freitag, den 16.6., 19:00, Thema: Lebenslust - eine Prise Abenteuerlust braucht es, um sich positiv mit dem Leben verbinden zu können. 
+
+Freitag, den 22.9., 19:00, Thema: noch offen.
+
 
 
 Sie wollen noch etwas über mich dazu wissen? [Infos finden Sie hier](/about/). 
