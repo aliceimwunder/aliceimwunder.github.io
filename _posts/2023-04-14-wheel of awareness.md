@@ -2,7 +2,7 @@
 title: Wheel of awareness
 ---
 
-![Mindfulness](2023-04-12-mindfulness.jpg)
+![Mindfulness](/assets/2023-04-12-mindfulness.jpg)
 
 Foto von <a href="https://unsplash.com/@jblesly?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Lesly Juarez</a> auf <a href="https://unsplash.com/de/s/fotos/achtsamkeit?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
   
