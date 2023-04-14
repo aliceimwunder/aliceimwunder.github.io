@@ -2,14 +2,14 @@
 title: Dein Newsletter
 ---
 
-##  Manifestieren mit dem Inneren Kind
+###  Manifestieren mit dem Inneren Kind
 
 Als Geschenk für Deine Anmeldung auf dem Newsletter erhälst Du regelmäßig Zugang zu einer kostenfreien Meditation: 
 
 <iframe width="540" height="525" src="https://82868399.sibforms.com/serve/MUIEAJEnFmETVM0ogc7LVk4ktqFqArJOvKQsbklksNw3aT8EK1UJAjl5BkMo2-goYAYmUBh5KdGwPcgdhO0QsNA15PkdQtYpiU9-jaauLTCssBcoaUCc2PprpRFislkgEgSEFHC2UPAnjnxW_kx1mgf4ugRek-ezOrZMGHifCdYURkvC8owdxSUTfjpt-mWsR8AL0dMqLpBxGRxM" frameborder="0" scrolling="auto" allowfullscreen style="display: block;margin-left: auto;margin-right: auto;max-width: 100%;"></iframe>
 
 
-## Kostenfreie geführte Meditation nach Dr. Dan Siegel: 
+### Kostenfreie geführte Meditation nach Dr. Dan Siegel: 
 
 **Wheel of Awareness.**
 
@@ -23,7 +23,7 @@ Alltag ist das, was wir am meisten leben und damit der beste Ort, um das Leben *
 
 Dazu meine Angebote und Blog-Posts.
 
-Ich freue mich auf Dich. 
+Ich freue mich auf Dich! 
 
 
 </p>
