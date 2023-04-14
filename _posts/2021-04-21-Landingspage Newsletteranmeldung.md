@@ -13,13 +13,13 @@ Als Geschenk für Deine Anmeldung auf dem Newsletter erhälst Du regelmäßig Zu
 
 **Wheel of Awareness.**
 
-In der Regel an einem Freitag, ca. 1h., 18:30 Uhr. Du kannst vor Ort im Aquariana oder online per Zoom teilnehmen. 
+In der Regel an einem Freitag im Monat, ca. 1h., 18:30 Uhr. Du kannst vor Ort im Aquariana oder online per Zoom teilnehmen. 
 
 Alle Infos im Newsletter. 
 
-Dazu gibt es auf dem Newsetter: Geschichten für Dein Inneres Kind. Wie Du Deinen Alltag seelisch für Dich nutzen kannst, statt mit ihm kämpfen. 
+Dazu gibt es auf dem Newsletter: Geschichten für **Dein Inneres Kind**. Wie Du Deinen Alltag seelisch für Dich nutzen kannst, statt mit ihm kämpfen. 
 
-Alltag ist das, was wir am meisten leben und damit der beste Ort, um das Leben Schritt für Schritt selbstbestimmt mit Deinem Inneren Kind zu gestalten.  
+Alltag ist das, was wir am meisten leben und damit der beste Ort, um das Leben **selbstbestimmt** mit Deinem Inneren Kind zu gestalten.  
 
 Dazu meine Angebote und Blog-Posts.
 
