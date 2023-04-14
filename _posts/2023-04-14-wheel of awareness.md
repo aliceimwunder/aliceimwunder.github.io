@@ -28,7 +28,7 @@ Sie gibt es in verschiedenen Ausführungen und man kann sie auf Englisch auch fr
 Ich biete sie meinen Newsletter-Abonenten kostenfrei an. Die eigentliche Meditation dauert ca. 30 min. Mit Zusammenkommen, Fragen beantworten etc. dauert daher die Veranstaltung immer ca. 1h. 
 
 ### Vorteil einer geführten Meditation
-Man kann diese Meditation jederzeit frei im Netz finden. Es hat allerdings große Vorteile, wenn man sie gemeinsam mit anderen unter Anleitung macht: 
+Es hat große Vorteile, wenn man eine Meditation gemeinsam mit anderen unter Anleitung macht: 
 
 1. Du kannst Fragen stellen, wenn Dir etwas unklar ist. 
 2. Du hast einen festen Termin, an dem man sich wirklich hinsetzt und die Meditation durchführt. Damit kann man den eigenen Schweinehund beim Üben überlisten.  
