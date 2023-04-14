@@ -21,7 +21,7 @@ Unterstellt einmal, man kann sich eine regelmäßige Meditationspraxis aneignen,
 spürbaren Stressresistenz, unterstützt eine gute Work-Life-Balance, lässt Dich besser Krisenzeiten überstehen und wirkt vorbeugend bei Ängsten.
 
 ### Form der Meditation
-In dieser Meditationsreise durchwandert man mit seiner Achtsamkeit acht verschiede Felder. Diese Felder hat Dr. Dan Siegel für ein besseres Verständnis, was dabei gemacht wird, visuell als Kreis dargestellt. Daher heißt diese Form "Wheel of Awareness" im Original. 
+In dieser Meditationsreise durchwandert man mit seiner Achtsamkeit acht verschiedene Felder. Diese Felder hat Dr. Dan Siegel für ein besseres Verständnis, was dabei gemacht wird, visuell als Kreis dargestellt. Daher heißt diese Form "Wheel of Awareness" im Original. 
 
 Sie gibt es in verschiedenen Ausführungen und man kann sie auf Englisch auch frei im Netz finden. Ich leite sie ungefähr einmal im Monat kostenfrei im Aquariana, Seminar- und Praxiszentrum, in Berlin Kreuzberg an und übertrage sie gleichzeitig per zoom, sodass man sie von überall, wo man etwas Ruhe und einen Internetanschluss hat, mitmachen kann. 
 
