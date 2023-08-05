@@ -5,6 +5,8 @@ title: Wheel of Awareness
 
 **freitags 1.9., 6.10., 17.11., 8.12.,** immer 18:30 - 19:30 Uhr: im Aquariana-Berlin Kreuzberg, zeitgleich **online (zoom)**
 
+Kostenfrei für Newsletter-AbonnentInnen: **[Newsletter-Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
+
 
 ![Mindfulness](/assets/2023-04-14-mindfulness.jpg)
 
@@ -46,4 +48,6 @@ Ungefähr einmal im Monat biete ich diese Meditation an. Du kannst vor Ort oder 
 
 Der Abend dauert ca. eine Stunde, Beginn 18:30 Uhr. Die eigentliche Meditation ist auf 30 min ausgelegt. 
 
-Voraussetzung: Du meldest Dich [für den Newsletter](/2021/04/21/Landingspage-Newsletteranmeldung.html) an. Dort gebe ich die konkreten Daten an. Damit kannst Du Dich für den Abend, an dem Du teilnehmen willst, anmelden. 
+Voraussetzung: Du meldest Dich **[für den Newsletter](/2021/04/21/Landingspage-Newsletteranmeldung.html)** an. Dort gebe ich die konkreten Daten weiter. Per Email kannst Du Dich für den Abend, an dem Du teilnehmen willst, anmelden. 
+
+Selbstverständlich kannst Du Dich jederzeit vom Newsletter abmelden. 
