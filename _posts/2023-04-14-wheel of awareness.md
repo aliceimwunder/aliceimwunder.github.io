@@ -1,6 +1,10 @@
 ---
-title: Wheel of awareness
+title: Wheel of Awareness
 ---
+Nächste Termine: 
+
+**freitags 1.9., 6.10., 17.11., 8.12.,** immer 18:30 - 19:30 Uhr: im Aquariana-Berlin Kreuzberg,zeitgleich online (zoom)
+
 
 ![Mindfulness](/assets/2023-04-14-mindfulness.jpg)
 
