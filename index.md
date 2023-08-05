@@ -11,9 +11,9 @@ layout: default
 
 
 	<h3> Praxis für Traumaheilung und Coaching </h3>
-		<p> Ich bin Traumatherapeutin (hp psych) und Coach. Ich begleite Menschen, die ihr Leben selbstbestimmt gestalten 				wollen. Menschen, die bisher mit Stressfolgeerkrankungen kämpfen. Menschen, die seelisch belastet sind oder die sich 			in alten Mustern verstrickt haben. Menschen, die nun <strong>endlich das leben wollen, wonach sich ihre Seele 				Innersten sehnt.</strong> </p>
+		<p> Ich bin Traumatherapeutin (hp psych) und Coach. Ich begleite Menschen, die ihr Leben selbstbestimmt gestalten 				wollen. Menschen, die bisher mit Stressfolgeerkrankungen kämpfen. Menschen, die seelisch belastet sind oder die sich 			in alten Mustern verstrickt haben. Menschen, die nun <strong>endlich das Leben wollen, nach dem sich ihre Seele 			im Innersten sehnt.</strong> </p>
 
-	<h3> Nächste Termine </h3>
+	<h4> Nächste Termine </h4>
 	<ul>
  		<li><strong> 1.9.2023, 18:30 Uhr. Wheel of Awareness:</strong> <a href="/2021/04/21/Landingspage-Newsletteranmeldung.html">  			Kostenfrei für NewsletterabonnentInnen</a>
 		<li><strong> 22.9.2023, 19:00 Uhr. Aura-Clearing:</strong> Tiefgehende geführte Meditation in der Gruppe <strong><a 				href="/2023/02/10/Gruppenabende-Meditationsreisen"> Frische für den Energiekörper</a></strong>.</li>	
