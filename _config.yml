@@ -1,8 +1,8 @@
 # Site settings
 title: Alice Windolf
 subtitle: "- Traumatherapie - Innere Kindheilung - Coaching"
-email: alicewindolf@web.de
-description: Im eigenen Leben ankommen. Das Leben selbstbestimmt gestalten. Raus aus Depression, Erschöpfung/Burnout, Alpträumen, psychosomatischen Beschwerden etc.? Dann bist Du hier richtig. 
+email: info@alicewindolf.de
+description: Im eigenen Leben ankommen. Das Leben selbstbestimmt gestalten. Raus aus Depression, Erschöpfung/Burnout, Alpträumen, mangelndem Vertrauen, psychosomatischen Beschwerden etc.? Dann bist Du hier richtig. 
 baseurl: "/" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site
 author: Alice Windolf
