@@ -1,5 +1,5 @@
 ---
-title: Innere Kindheilung - Coaching in Berlin 
+title: Innere Kindheilung - Coaching in Berlin und Brandenburg
 ---
 
 ![Innere Kindheilung in Berlin](/assets/2023-01-28-Innere Kindheilung.jpg)
@@ -49,10 +49,11 @@ Buchungen von mehreren Sitzungen:
 - Drei Sitzungen: 299,- Euro
 - Sechs Sitzungen: 540,- Euro
 - Zehn Sitzungen: 850,- Euro
+- Laufende Unterstützung - wöchentlich oder zwei-wöchentlich: 80,- €
 
 
 Die Sitzungen können mit **CleanSpace oder Energie-Arbeit** (vor allem Lichtkörperreinigung/Quantenheilung) kombiniert werden. Dann kann sich ein enormer Wandlungsprozess zu einem konkreten Ziel in Gang setzen. Energie-Arbeit, Coaching, Innere Kindheilung sind vor Ort aber auch problemlos Online buchbar. Für CleanSpace empfehle ich vor Ort Sitzungen bei mir in Briesen/Mark mitten in der Natur am Wald oder im Aquariana Praxis- und Seminarzentrum. 
 
 
 ### Disclaimer
-Ein Coaching-Prozess dient einem konkreten, absehbaren Ziel. Es dient nicht der Heilung. Haben Sie konkrete psychische oder psychosomatische Symptome oder soll das Leben in vielen Bereichen ins Positive gewandelt werden, so empfehle ich eine Traumatherapie.  
+Ein Coaching-Prozess dient einem konkreten, absehbaren Ziel. Haben Sie konkrete psychische oder psychosomatische Symptome oder soll das Leben in vielen Bereichen gleichzeitig ins Positive gewandelt werden, so empfehle ich eine Traumatherapie.  
