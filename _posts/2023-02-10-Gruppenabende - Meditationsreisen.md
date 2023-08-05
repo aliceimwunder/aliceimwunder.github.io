@@ -3,8 +3,8 @@ title: Offene Gruppenmeditation
 ---
 
 **Nächster Termine:** 
-- Samstag, den 09.09.2023, 16:15 Uhr [live im Aquariana](https://www.aquariana.de/aktuelles/tag-der-offenen-tuer), kostenfreier Eintritt. Offen ohne Anmeldung. 
-- Freitag, den 22.09.2023, 19:00 Uhr auf zoom. Anmeldung per Email an: info@alicewindolf.de
+- Samstag, den 09.09.2023, 16:15 Uhr [live im Aquariana](https://www.aquariana.de/aktuelles/tag-der-offenen-tuer), kostenfreier Eintritt. Thema Innerer Frieden. Offen ohne Anmeldung. 
+- Freitag, den 22.09.2023, 19:00 Uhr auf zoom. Thema: Geldfluss. Anmeldung per Email an: info@alicewindolf.de
 
 ![Licht am Horizont](/assets/2023-02-10-Licht am Horizont.jpg)
 
@@ -31,13 +31,13 @@ Weitere Informationen auf meinem Newsletter:
 **[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 </span>
 
-Nächste Termine per zoom:
+**Termine 2023 per zoom:**
 
-**Freitag, den 12.5., 19:00, Thema: Erdung - verbinde Dich tiefer mit Deinem Körper und erhöhe damit Stabilität und Fokus in Deinem Leben.**
+Freitag, den 22.9., 19:00 Uhr, Thema: Tiefere Verbindung zu einem harmonischen Geldfluss.
 
-Freitag, den 16.6., 19:00, Thema: Lebenslust - eine Prise Abenteuerlust braucht es, um sich positiv mit dem Leben verbinden zu können. 
+Freitag, den 20.10.2023, 19:00 Uhr, Thema: Selbstliebe, Selbstmitgefühl
 
-Freitag, den 22.9., 19:00, Thema: noch offen.
+Freitag, den 24.11.2023, 19:00 Uhr, Thema: Innerer Frieden - Vorbereitung auf die Weihnachtszeit. 
 
 
 
@@ -57,7 +57,7 @@ Zur Zeit erscheinen mir oft folgende vier Schichten besonders hilfreich zu reini
 3. der Mentalkörper und 
 4. der Kausalkörper 
 
-Dazu können einzelne Chakren kommen. Nicht nur körperinnere Chakren, auch die höheren melden sich manchnal, damit wir uns mehr auf die Impulse von dort einlassen können (z.B.: 9. Chakra: der eigene Lebensplan, 10. Chakra: die Essenz, die wir seelisch sind, 11. Chakra: die Weisheit aus allen Leben.) Körperlich meldet sich oft die Magenregion, weil dort Stress besonders deutlich zu spüren ist. Hinzu kommen meist Bilder, wie sie in der Inneren Kindheilung oft hilfreich sind, um heilsame Bilder in sich zu erzeugen. 
+Dazu können einzelne Chakren kommen. Nicht nur körperinnere Chakren, auch die höheren melden sich manchmal, damit wir uns mehr auf die Impulse von dort einlassen können (z.B.: 9. Chakra: der eigene Lebensplan, 10. Chakra: die Essenz, die wir seelisch sind, 11. Chakra: die Weisheit aus allen Leben.) Körperlich meldet sich oft die Magenregion, weil dort Stress besonders deutlich zu spüren ist. Hinzu kommen meist Bilder, wie sie in der Inneren Kindheilung oft hilfreich sind, um heilsame Bilder in sich zu erzeugen. 
 
 Ahnen- und andere Fremdeinflüsse, die nicht (mehr) hilfreich sind, dürfen sich sanft in Ihrem Tempo verabschieden, sodass die Reinigung nicht destabilisierend wirkt. Dadurch können Sie **Ihre eigenen Impulse/Ihr Bauchgefühl** deutlicher wahrnehmen, gelassener bleiben und sich besser im Alltag fokussieren.  
 
@@ -89,7 +89,11 @@ Wollen Sie mehr über die jeweiligen Themen der Abende wissen? Dann melde Sie si
 ## Energieaustausch
 Für einen Abend: 30,- €
 
+Für drei Abende: 75,- €.
+
 Dauer des Abends: ca. 1,5h-2h. 
+
+Anmeldung per Email: info@alicewindolf.de
 
 Sie erhalten **eine Aufnahme der Mediation** per Link zum Runterladen. 
 
