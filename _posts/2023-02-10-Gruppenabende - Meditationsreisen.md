@@ -33,8 +33,8 @@ Weitere Informationen auf meinem Newsletter:
 
 **Termine 2023 per zoom:**
 - Freitag, den 22.9.2023, 19:00 Uhr, Thema: Tiefere Verbindung zu einem harmonischen Geldfluss.
-- Freitag, den 20.10.2023, 19:00 Uhr, Thema: Selbstliebe, Selbstmitgefühl
-- Freitag, den 24.11.2023, 19:00 Uhr, Thema: Innerer Frieden - Vorbereitung auf die Weihnachtszeit. 
+- Freitag, den 20.10.2023, 19:00 Uhr, Thema: Selbstliebe, Selbstmitgefühl.
+- Freitag, den 24.11.2023, 19:00 Uhr, Thema: Innerer Frieden - Friedlich in die Weihnachtszeit. 
 
 
 
