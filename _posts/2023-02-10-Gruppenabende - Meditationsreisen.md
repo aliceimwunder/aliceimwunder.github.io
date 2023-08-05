@@ -2,9 +2,9 @@
 title: Offene Gruppenmeditation
 ---
 
-Nächster Termin: Freitag, den 12.05.2023, 19:00 Uhr auf zoom!
-
-Anmeldung per Email an: info@alicewindolf.de
+**Nächster Termine:** 
+- Samstag, den 09.09.2023, 16:15 Uhr [live im Aquariana](https://www.aquariana.de/aktuelles/tag-der-offenen-tuer), kostenfreier Eintritt. Offen ohne Anmeldung. 
+- Freitag, den 22.09.2023, 19:00 Uhr auf zoom. Anmeldung per Email an: info@alicewindolf.de
 
 ![Licht am Horizont](/assets/2023-02-10-Licht am Horizont.jpg)
 
@@ -15,7 +15,7 @@ Dann geht es Ihnen vielleicht wie vielen anderen. Die **Übersicht behalten**, g
 
 Dann lassen Sie sich auf mehr Gelassenheit ein. Diese Gruppe ist genau darauf ausgerichtet: **Eine intensive Meditationsreise**, die Sie schnell zu Ihrer Mitte zurückbringt. 
 
-Dabei reinige ich tiefgreifend die Aura und nutze Quantenheilung, um neue Impulse zu integrieren. Eine leichte Trance entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung angewandt werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Denn bei mir müssen alle Angebote auch immer traumasensibel sein. 
+Dabei reinige ich tiefgreifend die Aura und nutze Quantenheilung, um neue Impulse zu integrieren. Eine leichte Trance entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung angewandt werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Dadurch ist die Aurareinigung auch traumasensibel. 
 
 ## Ort der geleiteten Meditation 
 Meist finden diese reinigenden Meditationsreisen **auf zoom** statt. Daher können Sie es sich dabei **auf Ihrem Sofa gemütlich machen**, oder jedem anderen Ort, an dem Sie zur Ruhe kommen können. Einfach meiner Stimme in eine leichte Trance folgen. So können Sich sich vom Stress des Alltags auf leichte Weise reinigen und sich auf Ihre persönlichen Ziele in sanfter Art und Weise ausrichten. 
