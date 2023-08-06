@@ -2,7 +2,6 @@
 <h2>Angaben gem&auml;&szlig; &sect; 5 TMG</h2>
 <p>Alice Windolf<br />
 Praxis f&uuml;r Traumatherapie und Burnout-Coaching<br />
-Alice Windolf<br />
 Heilpraktikerin f&uuml;r Psychotherapie<br />
 Am Tempelhofer Berg 7D<br />
 Seminar- und Praxiszentrum Aquariana<br />
