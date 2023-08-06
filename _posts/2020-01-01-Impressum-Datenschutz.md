@@ -4,9 +4,9 @@
 Praxis f&uuml;r Traumatherapie und Burnout-Coaching<br />
 Alice Windolf<br />
 Heilpraktikerin f&uuml;r Psychotherapie<br />
-Petershagener Str. 15b<br />
+Am Tempelhofer Berg 7D<br />
 Seminar- und Praxiszentrum Aquariana<br />
-10965 Briesen/Mark</p>
+10965 Berlin</p>
 <h2>Kontakt</h2>
 <p>Telefon: +49 (0) 1607047080<br />
 Telefax: +49 (0) 123 44 55 99<br />
