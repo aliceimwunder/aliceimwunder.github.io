@@ -4,8 +4,8 @@ title: Praxisorte
 
 
 Ich biete drei Praxisorte an. 
-- **Aquariana** in Berlin Kreuzberg.
-- Direkt **am Wald im Land Brandenburg**, naturnah in einem Bauwagen in Briesen/Mark. Vor den Toren Berlins. Die Natur und der Wald übernehmen viel in der "Heilarbeit" bei Stressfolgeerkrankungen.
+- Mein Praxisraum befindet sich im **Aquariana** in Berlin Kreuzberg.
+- Daneben habe ich einen kleinen mobilen Bauwagen, direkt **am Wald im Land Brandenburg**, naturnah vor den Toren Berlins in Briesen/Mark. Die Natur und der Wald übernehmen viel in der "Heilarbeit" bei Stressfolgeerkrankungen.
 - **Online:** Wo immer Sie sich aufhalten und Sie einen Internetanschluss haben. Online: Alle Sitzungen (außer Traumatherapie) sind immer auch online möglich. 
   
 ### Seminar- und Praxiszentrum Aquariana
@@ -40,7 +40,7 @@ Wer mehr Ruhe und Erholung braucht als Berlin zu bieten hat oder im Osten von Be
 
 Sehr idyllisch direkt am Wald lassen sich Sitzungen in der Ruhe der Natur gestalten - geschützt in einem ausgebauten Bauwagen oder als Gespräch auf einem Waldspaziergang zu einem lauschigen See.
 
-![Bauwagen außen](2022-08-05-Bauwagen außen1.jpg)
+![Bauwagen außen](/assets/2022-08-05-Bauwagen außen1.jpg)
 
 Briesen/Mark erreichen Sie mit der RE1 von Berlin Ostkreuz in nur 42min, der mobile Praxiswagen steht auf einem Privatgrundstück direkt am Wald (ca. 10min zu Fuß vom Bahnhof entfernt). Die RE1 fährt stündlich von/nach Berlin.
 
