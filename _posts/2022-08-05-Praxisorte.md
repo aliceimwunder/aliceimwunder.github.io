@@ -4,9 +4,9 @@ title: Praxisorte
 
 
 Ich biete drei Praxisorte an. 
-- Mein Praxisraum befindet sich im **Aquariana** in Berlin Kreuzberg.
+- Mein Praxisraum befindet sich im Seminar- und Praxiszentrum **Aquariana** in Berlin Kreuzberg.
 - Daneben habe ich einen kleinen mobilen Bauwagen, direkt **am Wald im Land Brandenburg**, naturnah vor den Toren Berlins in Briesen/Mark. Die Natur und der Wald übernehmen viel in der "Heilarbeit" bei Stressfolgeerkrankungen.
-- **Online:** Wo immer Sie sich aufhalten und Sie einen Internetanschluss haben. Online: Alle Sitzungen (außer Traumatherapie) sind immer auch online möglich. 
+- **Online:** Wo immer Sie sich aufhalten und Sie einen Internetanschluss haben. Alle Sitzungen (außer Traumatherapie) sind immer auch online möglich. 
   
 ### Seminar- und Praxiszentrum Aquariana
 Am Tempelhofer Berg 7D, 10965 Berlin.
@@ -15,28 +15,30 @@ Am Tempelhofer Berg 7D, 10965 Berlin.
 
 Das Aquariana in Berlin liegt zentral in Kreuzberg und ist hervorragend angebunden an das U-Bahnnetz. Es ist wunderschön gelegen. Sehr ruhig und luftig im hinteren Innenhof eines alten Fabrikgebäudes im 4. Stock. Fahrstuhl vorhanden. 
 
-Die Seminar- und Praxisräume sind wunderschön und heilsam eingerichtet. 
-
-Parkplätze für 1€ (Parkmarke zum Verlassen des geschützten Parkplatzes im Aquariana zu erwerben.)
-
 Nächste Haltestellen sind U-Mehringdamm (U6 und U7) und U-Platz der Luftbrücke (U6). 
+
+![Aquariana Lage](/assets/2022-08-05 Maps.jpg)
+
+Die Seminar- und Praxisräume sind wunderschön und heilsam eingerichtet. 
 
 Der beliebte Bergmannkiez mit vielen Cafés und kleinen Läden befindet sich in nur drei Minuten Entfernung zu Fuß. 
 
+Parkplätze für 1€ (Parkmarke zum Verlassen des geschützten Parkplatzes auf dem Gelände im Aquariana zu erwerben.)
+
+Im Aquariana gibt es einen angenehmen Wartebereich, eine kleine auf Naturheilmittel und spirituell orientierte Bibliothek mit Meditationsraum, sodass man sowohl ein bisschen früher kommen kann, als auch Sitzungen nachklingen lassen kann. In luftiger Ruhe und das mitten in Berlin: **[Offizielle Aquariana-Website](https://www.aquariana.de/)**
+
+
 ![Aquariana innen](/assets/2022-08-05-Bild Eingangsbereich Aquariana.jpeg)
 
-Im Aquariana gibt es einen angenehmen Wartebereich, eine kleine auf Naturheilmittel und spirituell orientierte Bibliothek mit Meditationsraum, sodass man sowohl ein bisschen früher kommen kann, als auch Sitzungen nachklingen lassen kann. In luftiger Ruhe und das mitten in Berlin. 
+Ganz unverbindlich und vollkommen kostenfrei ist ein **Kennenlernen der Räumlichkeiten möglich**: Zwei Mal im Jahr führt das Aquariana einen kostenfreien Tag der Offenen Tür durch. Das ist zugleich ein Tag der offenen Praxis. Viele der dort tätigen TherapeutInnen einschießlich mir bieten offene Angebote zum Kennenlernen an. 
 
-Zwei Mal im Jahr führt das Aquariana einen kostenfreien Tag der Offenen Tür durch. Das ist zugleich ein Tag der offenen Praxis. Viele der dort tätigen TherapeutInnen bieten unverbindliche offene Angebote an. 
+**[Tag der Offenen Tür am 9. September 2023:](https://www.aquariana.de/aktuelles/tag-der-offenen-tuer)**
 
-[Tag der Offenen Tür am 9. September 2023:](https://www.aquariana.de/aktuelles/tag-der-offenen-tuer)
+Ich bin dieses Jahr mit einem Aura-Clearing für eine offene Gruppe um 16:15 Uhr zum Thema Inneren Frieden dabei und habe außerdem ein offenes Angebot für Innere Kindheilung oder Energiearbeit. 
 
-Ich bin dieses Jahr mit einem Aura-Clearing in der Gruppe zum Thema Inneren Frieden dabei und habe ein offenes Angebot für Innere Kindheilung oder Energiearbeit. 
-
-[Offizielle Aquariana-Website](https://www.aquariana.de/)
 
 ### Naturnah direkt am Wald in Briesen/Mark
-Wer mehr Ruhe und Erholung braucht als Berlin zu bieten hat oder im Osten von Berlin wohnt, dem empfehle ich, zu mir nach Briesen/Mark zu kommen. 
+Wer mehr Ruhe und Erholung braucht als Berlin zu bieten hat oder im Osten von Berlin wohnt, dem empfehle ich, zu mir nach Briesen/Mark in die Natur zu kommen. 
 
 Sehr idyllisch direkt am Wald lassen sich Sitzungen in der Ruhe der Natur gestalten - geschützt in einem ausgebauten Bauwagen oder als Gespräch auf einem Waldspaziergang zu einem lauschigen See.
 
