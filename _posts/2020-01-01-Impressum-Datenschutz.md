@@ -3,9 +3,10 @@
 <p>Alice Windolf<br />
 Praxis f&uuml;r Traumatherapie und Burnout-Coaching<br />
 Heilpraktikerin f&uuml;r Psychotherapie<br />
+Im Seminar- und Praxiszentrum Aquariana<br />
 Am Tempelhofer Berg 7D<br />
-Seminar- und Praxiszentrum Aquariana<br />
 10965 Berlin</p>
+
 <h2>Kontakt</h2>
 <p>Telefon: +49 (0) 1607047080<br />
 Telefax: +49 (0) 30 568 44 775<br />
