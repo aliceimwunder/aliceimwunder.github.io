@@ -8,7 +8,7 @@ Seminar- und Praxiszentrum Aquariana<br />
 10965 Berlin</p>
 <h2>Kontakt</h2>
 <p>Telefon: +49 (0) 1607047080<br />
-Telefax: +49 (0) 123 44 55 99<br />
+Telefax: +49 (0) 30 568 44 775<br />
 E-Mail: info@alicewindolf.de</p>
 <h2>Umsatzsteuer-ID</h2>
 <p>Umsatzsteuer-Identifikationsnummer gem&auml;&szlig; &sect; 27 a Umsatzsteuergesetz:<br />
