@@ -39,8 +39,8 @@ Diese können genutzt und mit Unterstützung selbst in schwierigen Zeiten im Leb
 - **Lösungsorientierung:** Wir konzentrieren uns auf die Suche nach Ihren konkreten Lösungen für Ihre Situation. Statt sich ausführlich mit der Ursachenforschung zu beschäftigen, legen wir den Schwerpunkt auf die Entwicklung von machbaren Handlungsstrategien. Schritt für Schritt. Auch mit Kleinstschritte kommt man dem Ziel näher. 
 - **Empowerment**: Lassen Sie uns ermutigen, Ihre seelische Autonomie aufzubauen und Ihre Selbstwirksamkeit zu stärken. Ich unterstütze Sie, eigenständige Entscheidungen zu treffen und Verantwortung für Ihr Leben zu übernehmen.
 - **Positive Psychologie**: Lassen Sie uns auf Ihr Wohlbefinden, Ihre Zufriedenheit und Ihr persönliches Wachstum konzentrieren.
-- 
-Eine ressourcen-orientierte Kurzzeittherapie ist besonders nützlich, wenn es darum geht, Ihre Motivation zu fördern, Selbstvertrauen aufzubauen und positive Veränderungen anzugehen.
+ 
+Eine ressourcen-orientierte Kurzzeittherapie ist besonders hilfreich, wenn es darum geht, Ihre Motivation zu fördern, Selbstvertrauen aufzubauen und positive Veränderungen anzugehen.
 
 ## Vorteile einer Kurzzeittherapie bei mir
 Eine Kurzzeittherapie bietet den Vorteil, dass sie kostengünstiger als langfristige Therapieformen ist und schneller zu Ergebnissen führen kann. Sie ist besonders dann geeignet, wenn das Hauptziel darin besteht, **bestimmte Probleme zu bewältigen oder konkrete Symptome zu lindern**, ohne eine langwierige und tiefgreifende Therapie zu benötigen. 
