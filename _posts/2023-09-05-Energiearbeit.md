@@ -1,4 +1,7 @@
+---
 title: Energetische Heilimpulse
+---
+
 ![](/assets/2023-09-05-)
 
 Wie wäre es, sich spirituelle - energetische **Heilimpulse** in der Stille und Gelassenheit **direkt am Wald** zu holen? Z,B. erfolgreich manifestieren mit dem Inneren Kind? Verstrickungen in alte Muster hinter sich lassen? Lemurianische Heilimpulse durch Dich fließen lassen?
