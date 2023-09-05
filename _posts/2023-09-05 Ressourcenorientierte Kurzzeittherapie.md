@@ -20,6 +20,7 @@ Die Notwendigkeit, bestimmte Verhaltensmuster oder Gewohnheiten zu ändern.
 
 ## Was ist eine Kurzzeittherapie?
 Eine Kurzzeittherapie ist eine Form von Psychotherapie. Sie zielt darauf ab, **psychische Gesundheitsprobleme in einem vergleichsweise kurzen Zeitraum** zu behandeln. Im Gegensatz zu langfristigen Therapieansätzen, die über mehrere Jahre hinweg dauern können, konzentriert sich eine Kurzzeittherapie darauf, konkrete Ziele in einem begrenzten Zeitrahmen zu erreichen, typischerweise in wenigen Monaten. 
+
 In der Regel liegt eine Kurzzeittherapie im Bereich von 12 bis 24 Sitzungen à 50 min. Die genaue Dauer **variiert je nach Ihren Bedürfnissen**. Kurzzeittherapien können auf verschiedenen psychotherapeutischen Ansätzen, wie der kognitiven Verhaltenstherapie, humanistischen Psychotherapie, der Lösungsfokussierten Therapie oder einer Interpersonellen Therapie basieren. 
 
 ## Meine Ansätze für eine ressourcenorientierten Kurzzeittherapie
