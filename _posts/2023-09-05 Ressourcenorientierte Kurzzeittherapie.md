@@ -1,5 +1,5 @@
 ---
-title: Ressourcen-orientiere Kurzzeittherapie
+title: Ressourcenorientierte Kurzzeittherapie
 ---
 
 ![You got this](/assets/2023-09-05-You got this.jpg)
