@@ -2,7 +2,10 @@
 title: Energetische Heilimpulse
 ---
 
-![](/assets/2023-09-05-)
+![Aufgehende Sonne](/assets/2023-09-05-aufgehende Sonne.jpg)
+
+Foto von <a href="https://unsplash.com/de/@zacdurant?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Zac Durant</a> auf <a href="https://unsplash.com/de/fotos/_6HzPU9Hyfg?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
 
 Wie wäre es, sich spirituelle - energetische **Heilimpulse** in der Stille und Gelassenheit **direkt am Wald** zu holen? Z,B. erfolgreich manifestieren mit dem Inneren Kind? Verstrickungen in alte Muster hinter sich lassen? Lemurianische Heilimpulse durch Dich fließen lassen?
 
