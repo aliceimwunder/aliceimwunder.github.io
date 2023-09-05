@@ -12,8 +12,7 @@ Kostenfrei für Newsletter-AbonnentInnen: **[Newsletter-Anmeldung](/2021/04/21/L
 
 Foto von <a href="https://unsplash.com/@jblesly?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Lesly Juarez</a> auf <a href="https://unsplash.com/de/s/fotos/achtsamkeit?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
   
-  
- ### Achtsamkeit und Resilienz - Selbstfürsorge pur
+### Achtsamkeit und Resilienz - Selbstfürsorge pur
 Das Wheel of awareness ist eine Meditationsform, die von Dr. Dan Siegel entwickelt wurde. Diese innere Reise vereint Meditation mit einem Achtsamkeits-Training. Sie dient dazu, die **Resilienz zu trainieren**, im Grunde ein Werkzeug das eigene Leben selbstbestimmt und positiv zu gestalten.   
  
 - Entwickelt von Dr. Dan Siegel, einem führenden Neurobiologen, Psychiater und Pädagogen in den USA.
