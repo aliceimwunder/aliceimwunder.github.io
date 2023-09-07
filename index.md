@@ -75,8 +75,10 @@ sehr Erkenntnisreich und vorallem wirklich befreiend.</p>
 voranzukommen. Das ich deine Hilfe bekam! ein riesiges Dankeschön von
 mir zu dir!"</p> 
 
-<section>
+<section id="banner">
+<div class="content">
 <span class="image object">
 	<img src="assets/2020-10-13-Frontbild.jpg" alt="" />
 </span>
+</div>
 </section>
