@@ -41,11 +41,10 @@ selbstbestimmten Leben ab. Lassen Sie Mitgefühl für sich und das Leben um sich
 
 <p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Auf meinem Newsletter </a></strong> bekommt man genau das direkt in sein Email-Fach: Mit dem Inneren Kind das Leben gestalten. Inneres Kind beschreibt im Grunde die Energien von Neugier, Lebensfreude, Leichtigkeit, Verbundenheit und Schaffenskraft. Alles, was mir aus Therapie, Coaching und Spiritualität über den Weg läuft - zusammen mit meinen aktuellen Angeboten - kommt frisch zu Dir geliefert. Was ein erfülltes Leben ausmacht? In Leichtigkeit magnetisch anziehen, was uns wirklich Sinn für unser Leben gibt. 				Hol Dir dazu den Newsletter und bleib auf dem Laufenden.</p>
 	
-<ul>
-	<li><strong>Mein Blog:</strong>  "Auch Buddha ging ins Homeoffice" - mit ganzheitlichem Wissen um emotionale Stabilität, Energie und Kraft für ein 		selbstbestimmtes Leben mit dem Inneren Kind: <strong><a href="/blog.html"> Selbsthilfetools für Zuhause </a></strong></li>
-	<li><strong> Mein Newsletter:</strong> <a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Manifestieren mit dem Inneren Kind! </a>
-	<li><strong>mit meiner persönlichen Begleitung</strong> auf Deinem Weg aus der Krise? <strong>Lerne <a href="/about/">mich kennen</a></strong>.</li>
-</ul>
+- **Mein Blog:** "Auch Buddha ging ins Homeoffice" - mit ganzheitlichem Wissen um emotionale Stabilität, Energie und Kraft
+  für ein selbstbestimmtes Leben mit dem Inneren Kind: **<a href="/blog.html"> Selbsthilfetools für Zuhause </a>**
+- **Mein Newsletter:** <a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Manifestieren mit dem Inneren Kind! </a>
+- **mit meiner persönlichen Begleitung** auf Deinem Weg aus der Krise? <strong>Lerne <a href="/about/">mich kennen</a></strong>.
 
 <h4>Ein Feedback zu meiner Inneren Kindheilung - Coaching, von Maria W. aus Liechtenstein: </h4>
 
@@ -76,8 +75,8 @@ sehr Erkenntnisreich und vorallem wirklich befreiend.</p>
 voranzukommen. Das ich deine Hilfe bekam! ein riesiges Dankeschön von
 mir zu dir!"</p> 
 
-
+<section>
 <span class="image object">
 	<img src="assets/2020-10-13-Frontbild.jpg" alt="" />
 </span>
-
+</section>
