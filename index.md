@@ -16,7 +16,7 @@ im Innersten sehnt.**
 
 #### Nächste Termine
 
-- **1.9.2023, 18:30 Uhr. Wheel of Awareness:** [Kostenfrei für NewsletterabonnentInnen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+- **6.10.2023, 18:30 Uhr. Wheel of Awareness:** [Kostenfrei für NewsletterabonnentInnen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 - **22.9.2023, 19:00 Uhr. Aura-Clearing:** Tiefgehende geführte Meditation in der Gruppe **[Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)**
   
 #### Das Angebot meiner Praxis:
