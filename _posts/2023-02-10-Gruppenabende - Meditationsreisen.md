@@ -2,9 +2,8 @@
 title: Offene Aura-Reinigung - Gruppenmeditation
 ---
 
-**Nächster Termine:** 
-- Samstag, den 09.09.2023, 16:15 Uhr [live im Aquariana](https://www.aquariana.de/aktuelles/tag-der-offenen-tuer), kostenfreier Eintritt. Thema Innerer Frieden. Offen ohne Anmeldung. 
-- Freitag, den 22.09.2023, 19:00 Uhr auf zoom. Thema: Geldfluss. Anmeldung per Email an: info@alicewindolf.de
+**Nächster Termin:**  
+- Freitag, den **22.09.2023, 19:00 Uhr auf zoom**. Thema: Geldfluss. Anmeldung per Email an: info@alicewindolf.de
 
 ![Licht am Horizont](/assets/2023-02-10-Licht am Horizont.jpg)
 
