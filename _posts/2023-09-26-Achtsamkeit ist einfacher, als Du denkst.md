@@ -28,13 +28,23 @@ Achtsamkeit ist einfacher, als Du denkst, und kann Dich ganz leicht unterstütze
 
 Unser Schulsystem, unser Arbeitsleben, oft auch unser Familienleben ist so gestaltet, dass wir uns geradezu abtrainieren, achtsam zu sein, weil der Umgang miteinander sehr grob gestrickt ist. Im Grunde ist es eine logische Reaktion, dass man nicht alles so an sich herankommen lassen will. Aber grundsätzlich kann Achtsamkeit nicht vollständig verloren gehen und jederzeit geschult werden. 
 
-Achtsamkeit bedeutet, dass Du weißt, was Du denkst, was Du hörst, was Du gerade tust, was Du mit Deinen Augen siehst. Mehr eigentlich nicht! Also wirklich gaaanz einfach! Kein Brimborium, keine Räucherstäbchen, keine Klangschalen oder Yoga-Kleidung notwendig. Deine Energie folgt Deiner Achtsamkeit. Hängst Du im Handy und versinkst in Youtube, Netflix oder TikTok, schnell noch Whatsapp checken, dann versackt genau dort Deine Energie. Damit ist Deine Achtsamkeit für das Hier und Jetzt aufgesaugt. Im Grunde verschenkst Du Deine Energie. Denn für all diese Dinge musst Du zum Teil sogar Geld bezahlen. Geld für Deine Energie bekommst Du jedenfalls nicht. Also zumindest ich nicht ;-)
-
-Das Wheel of Awareness ist eine Art Muskeltraining für Deine Achtsamkeit. Du kannst Deinen Fokus, Deine Wahrnehmung, Deine Sein im Hier und Jetzt innerhalb von wenigen Monaten auf Vordermann bringen. Dr. Dan Siegel hat diese Achtsamkeitspraxis an zehntausenden von Menschen getestet, Unmengen von ihnen ins MRT geschoben und ihre Gehirnstrukturen überprüft. Dein Gehirn entwickelt damit neue Synapsen. 
-
 ## Was bringt Dir Achtsamkeit?
 Als wichtigstes: Du hältst Deine seelische Energie bei Dir. 
 
-Mittlerweile hat sich außerdem bei fast jedem herumgesprochen, dass Meditation und Achtsamkeitspraxis zu Stressreduktion führt. Das bedeutet weniger Depression, weniger Panik oder weniger Angst, weniger genervt oder angefressen sein, weniger Aggressivität, weniger Verwirrtheit. 
+Achtsamkeit bedeutet, dass Du weißt, was Du denkst, was Du hörst, was Du gerade tust, was Du mit Deinen Augen siehst. Mehr eigentlich nicht! Also wirklich gaaanz einfach! Kein Brimborium, keine Räucherstäbchen, keine Klangschalen oder Yoga-Kleidung notwendig. Deine Energie folgt Deiner Achtsamkeit. 
 
-Stattdessen fühlen wir uns verbundener. Sogar das Immunsystem wird gestärkt. Wir sind damit glücklicher und gesünder. Wissenschaftlich nachgewiesen! 
+Hängst Du im Handy und versinkst in Youtube, Netflix oder TikTok, schnell noch Whatsapp checken, dann versackt genau dort Deine Energie. Damit ist Deine Achtsamkeit für das Hier und Jetzt aufgesaugt. Im Grunde verschenkst Du Deine Energie. Denn für all diese Dinge musst Du zum Teil sogar Geld bezahlen. Geld für Deine Energie bekommst Du jedenfalls nicht. Also zumindest ich nicht ;-)
+
+## Wheel of Awareness - ein Mittel gegen Achtsamkeits-Atrophy :-)
+Das Wheel of Awareness ist eine Art Muskeltraining für Deine Achtsamkeit. Du kannst Deinen Fokus, Deine Wahrnehmung, Deine Sein im Hier und Jetzt innerhalb von wenigen Monaten auf Vordermann bringen. Dr. Dan Siegel hat diese Achtsamkeitspraxis an zehntausenden von Menschen getestet, Unmengen von ihnen ins MRT geschoben und ihre Gehirnstrukturen überprüft. Dein Gehirn entwickelt damit nachweislich neue Synapsen. 
+
+
+Das "Wheel of Awareness" ist ein mega-leistungs-effizientes Werkzeug, das Menschen dabei helfen kann, ein höheres Maß an Achtsamkeit und Selbstwahrnehmung zu entwickeln. Im Kern handelt es sich um eine visuelle und erlebnisorientierte Übung, bei der die Aufmerksamkeit auf verschiedene Aspekte der inneren und äußeren Erfahrungen gelenkt wird. 
+
+Indem man sich systematisch auf verschiedene Bereiche der Aufmerksamkeit konzentriert, wie beispielsweise die Empfindungen im Körper, Gedanken und die Umgebung um uns herum, können Menschen ein besseres Verständnis dafür entwickeln, wie diese Erfahrungen miteinander in Beziehung stehen, und ein größeres Maß an Selbstwahrnehmung erlangen. Die Praxis des "Wheel of Awareness" kann besonders hilfreich für Anfänger sein, die neu in der Achtsamkeit sind, da sie klare Struktur und Anleitung für die Übung bietet. 
+
+Mit regelmäßiger Praxis erlebst Du die vielen Vorteile der Achtsamkeit: wie etwa verbesserte emotionale Regulation und gesteigerte kognitive Funktion. Mittlerweile hat sich im Grunde bei fast jedem herumgesprochen, dass eine Achtsamkeitspraxis zu Stressreduktion führt. Das bedeutet weniger Depression, weniger Panik oder weniger Angst, weniger genervt oder angefressen sein, weniger Aggressivität, weniger Verwirrtheit. 
+
+Stattdessen fühlen wir uns verbundener. Auf körperlicher Ebene wird sogar das Immunsystem gestärkt. Wir sind damit glücklicher und gesünder. Wissenschaftlich nachgewiesen! 
+
+Melde Dich gleich an zum (Newsletter)[/2021/04/21/Landingspage-Newsletteranmeldung.html] und sei kostenfrei beim nächsten Abend zum Auspobieren dabei. Wöchentliche Kurse folgen. (Nächste Termine)[/2023/04/14/wheel-of-awareness.html] findest Du hier. 
