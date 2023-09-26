@@ -3,7 +3,7 @@ layout: default
 ---
 <header>
 	<h1>Willkommen</h1>
-	<p>Heiler-Praxis am Wald</p>
+	<p>Heiler-Praxis am Wald - Ein Ort für Achtsamkeit</p>
 </header>
 
 
