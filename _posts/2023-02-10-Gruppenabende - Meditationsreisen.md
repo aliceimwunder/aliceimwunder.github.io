@@ -3,7 +3,7 @@ title: Offene Aura-Reinigung - Gruppenmeditation
 ---
 
 **Nächster Termin:**  
-- Freitag, den **22.09.2023, 19:00 Uhr auf zoom**. Thema: Geldfluss. Anmeldung per Email an: info@alicewindolf.de
+- Freitag, den **20.10.2023, 19:00 Uhr auf zoom**. Thema: Selbstliebe, Selbstmitgefühl. Anmeldung per Email an: info@alicewindolf.de
 
 ![Licht am Horizont](/assets/2023-02-10-Licht am Horizont.jpg)
 
@@ -31,9 +31,9 @@ Weitere Informationen auf meinem Newsletter:
 </span>
 
 **Termine 2023 per zoom:**
-- Freitag, den 22.9.2023, 19:00 Uhr, Thema: Tiefere Verbindung zu einem harmonischen Geldfluss.
-- Freitag, den 20.10.2023, 19:00 Uhr, Thema: Selbstliebe, Selbstmitgefühl.
+- Freitag, den 20.10.2023, 19:00 Uhr, Thema: Heile Dich mit Selbstliebe, verbinde Dich mit Deinem Selbstmitgefühl.
 - Freitag, den 24.11.2023, 19:00 Uhr, Thema: Innerer Frieden - Friedlich in die Weihnachtszeit. 
+- Freitag, den 26.1.2024, 19:00 Uhr, Thema: Innere Kraft - Du hast mehr seelische Power, als Du Dir vorstellen kannst.
 
 
 
