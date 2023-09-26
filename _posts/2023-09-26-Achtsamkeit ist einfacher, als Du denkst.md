@@ -7,7 +7,7 @@ Du willst raus aus chronischem Stress, gedanklichen Dauerschlaufen oder niederdr
 ## Achtsamkeit ist Dein Sein
 → Was braucht man dafür, wieder bei sich anzukommen? 
 
-Resilient werden, Selbstliebe empfinden, Mitgefühl mit allen Wesen um sie herum, egal wie sie gerade drauf sind (den Zustand anderer kann man sowieso kaum beeinflussen), die eigenen seelischen Impulse wahrnehmen und ihnen vertrauen. Genau danach das eigene Leben gestalten.  
+Resilient werden, Selbstliebe empfinden, Mitgefühl mit allen Wesen um sie herum, egal wie sie gerade drauf sind (den Zustand anderer kann man sowieso kaum beeinflussen), die eigenen seelischen Impulse wahrnehmen und ihnen vertrauen. In einer Form von Gemeinschaft leben (gleichgültig, ob die Gemeinschaft Familie, KollegInnen, Freunde, Natur oder Tiere oder alle zusammen sind). Genau danach das eigene Leben gestalten.  
 
 Das ist ungefähr das, wonach sich die meisten Menschen sehnen. Aus den USA kommt nun eine Achtsamkeitspraxis zu uns, die extrem konzentriert ist und bei regelmäßiger Praxis in wenigen Wochen beginnt, sogar die Struktur Deines Gehirns positiv zu verändern. Du vernetzt Dich mehr in Deinem Gehirn. 
 
