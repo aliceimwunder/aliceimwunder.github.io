@@ -41,8 +41,12 @@ Das "Wheel of Awareness" ist ein mega-leistungs-effizientes Werkzeug, das Mensch
 
 Indem man sich **systematisch auf verschiedene Bereiche** der Aufmerksamkeit konzentriert, wie beispielsweise die Empfindungen im Körper, Gedanken und die Umgebung um uns herum, kannst Du ein besseres Verständnis dafür entwickeln, wie diese Erfahrungen miteinander in Beziehung stehen, und ein größeres Maß an Selbstwahrnehmung erlangen. Die Praxis des "Wheel of Awareness" kann besonders hilfreich für Anfänger sein, die neu in der Achtsamkeit sind, da sie **klare Struktur und Anleitung für die Übung bietet**. 
 
+## Mit nur 7min täglicher Praxis - im Grunde wie Zähneputzen
 Mit regelmäßiger Praxis erlebst Du die vielen Vorteile der Achtsamkeit: wie etwa verbesserte emotionale Regulation und gesteigerte kognitive Funktion. Mittlerweile hat sich im Grunde bei fast jedem herumgesprochen, dass eine Achtsamkeitspraxis zu Stressreduktion führt. Das bedeutet **weniger Stress**, weniger Depression, weniger Panik oder weniger Angst, weniger genervt oder angefressen sein, weniger Aggressivität, weniger Verwirrtheit. 
 
 Stattdessen fühlen wir uns **verbundener, geerdeter**. Du kommst mehr in Dein Handeln, statt von einer besseren Zukunft oder der karibischen Insel zu träumen. Auf körperlicher Ebene wird sogar das Immunsystem gestärkt. Wir sind damit glücklicher und gesünder. Wissenschaftlich nachgewiesen! 
 
+Man beginnt einige Monate mit einer 20minütigen täglichen Praxis. Damit verändern sich bereits Deine physischen Strukturen, so als ob Du ins Fitness-Studio mit Deinem Gehirn gingst. Allerdings ohne Geräte. Nach ca. 6 Monaten kannst Du die Praxis auf 7min. täglich reduzieren. Also im Grunde nicht viel mehr Zeit, als man sie fürs tägliche zwei mal Zähneputzen aufwendet.  
+
+## Melde Dich für den nästen Probeabend kostenfrei an
 Melde Dich gleich an zum **(Newsletter)[/2021/04/21/Landingspage-Newsletteranmeldung.html]** und sei **kostenfrei** beim nächsten Abend zum Auspobieren dabei. Wöchentliche Kurse folgen. (Nächste Termine)[/2023/04/14/wheel-of-awareness.html] findest Du hier. 
