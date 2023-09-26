@@ -3,11 +3,11 @@ layout: default
 ---
 <header>
 	<h1>Willkommen</h1>
-	<p>Ein Ort für Achtsamkeit</p>
+	<p>Heiler-Praxis am Wald</p>
 </header>
 
 
-### Praxis für Traumaheilung und Coaching
+### Praxis für Traumaheilung und Coaching 
 
 Ich bin Traumatherapeutin (hp psych) und Coach. Ich begleite Menschen, die ihr Leben selbstbestimmt gestalten 
 wollen. Menschen, die bisher mit Stressfolgeerkrankungen kämpfen. Menschen, die seelisch belastet sind oder die sich 
