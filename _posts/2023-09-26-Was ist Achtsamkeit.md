@@ -11,7 +11,7 @@ Du willst raus aus chronischem Stress, gedanklichen Dauerschlaufen oder niederdr
 
 Das ist ungefähr das, wonach sich die meisten Menschen sehnen. Aus den USA kommt nun eine Achtsamkeitspraxis zu uns, die extrem konzentriert ist und bei regelmäßiger Praxis in wenigen Wochen beginnt, sogar die Struktur Deines Gehirns positiv zu verändern. Du vernetzt Dich mehr in Deinem Gehirn, auf mehr Resilienz, Selbstliebe und Mitgefühl für andere, **Deine Basis für ein glückliches Leben**. 
 
-Das Wheel of Awareness ist eine **traumasensible Achtsamkeitspraxis**, entwickelt von Dr. Daniel Siegel, einem amerikanischen Neurobiologen, Psychiater und Therapeuten. Sie bietet einen Ausstieg aus chronischen Stressreaktionen des Körpers. Man vertraut wieder den eigenen seelischen Impulse, sodass man beginnen kann, genau diese Impulse im Leben umzusetzen. 
+Das Wheel of Awareness ist eine **traumasensible Achtsamkeitspraxis**, entwickelt von Dr. Daniel Siegel, einem amerikanischen Neurobiologen, Psychiater und Therapeuten. Sie bietet einen Ausstieg aus chronischen Stressreaktionen des Körpers. Man vertraut wieder den eigenen seelischen Impulse, sodass man beginnen kann, genau diese Impulse im Leben umzusetzen. Deswegen kann ich so sicher sagen: bei sich ankommen ist einfacher, als sich die meisten vorstellen können.  
 
 ## Was tun die meisten Menschen, statt ihrem Glück zu folgen? 
 Die meisten Menschen sind stattdessen eher in ihren Gedanken und Gefühlen gefangen, Arbeit (so manche Familienkonstellation auch) löst chronischen Stress aus. Der **Körper ist erschöpft**. Was gesellschaftlich gefordert ist, ist das, was man täglich lebt; leider **ohne Rücksicht auf die eigenen seelischen Bedürfnisse**. 
