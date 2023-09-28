@@ -2,9 +2,12 @@
 title: "Wheel of Awareness: Wie Du zu Deinem Sein findest, ist einfacher, als Du denkst"
 ---
 
-Du willst raus aus chronischem Stress, gedanklichen Dauerschlaufen oder niederdrückenden Gefühlen? Erschöpfung, Burnout, Depression oder innere Leere?
+Du willst **raus aus chronischem Stress**, gedanklichen Dauerschlaufen oder niederdrückenden Gefühlen? Erschöpfung, Burnout, Depression oder innere Leere? In diesem Post erkläre ich Dir in ca. 5 min. Lesezeit, dass das einfacher ist, als Du denkst. Das Wichtigste ist Deine Achtsamkeit und wie Du die in wenigen Minuten am Tag stärkst, gibt es hier auch zu lesen. 
 
-In diesem Post erkläre ich Dir in ca. 5 min. Lesezeit, dass das einfacher ist, als Du denkst. Das Wichtigste ist Deine Achtsamkeit und wie Du die in wenigen Minuten am Tag stärkst, gibt es hier auch zu lesen. 
+![drei Räder](/assets/2023-09-26-drei Raeder.jpg)
+
+Foto von <a href="https://unsplash.com/de/@ilmatar?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Iza Gawrych</a> auf <a href="https://unsplash.com/de/fotos/qvBJW8Y1rpo?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
+  
 
 ## Achtsamkeit gehört zu Deinem Sein
 → Was braucht man dafür, wieder bei sich anzukommen? Jeder hat eine andere Seele, trägt eine andere Grundschwinungung in sich. Wer diese in sich wahrnehmen und leben kann, kommt bei sich an, wird resilient gegenüber den Verrücktheiten, die einem das Leben bietet. 
