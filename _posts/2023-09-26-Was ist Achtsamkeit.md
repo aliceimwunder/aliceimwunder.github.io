@@ -4,8 +4,8 @@ title: "Wheel of Awareness: Wie Du zu Deinem Sein findest, ist einfacher, als Du
 
 Du willst raus aus chronischem Stress, gedanklichen Dauerschlaufen oder niederdrückenden Gefühlen? Erschöpfung, Burnout, Depression oder innere Leere?
 
-## Achtsamkeit ist Dein Sein
-→ Was braucht man dafür, wieder bei sich anzukommen? 
+## Achtsamkeit gehört zu Deinem Sein
+→ Was braucht man dafür, wieder bei sich anzukommen? Jeder hat eine andere Seele, trägt eine andere Grundschwinungung in sich. Wer diese in sich wahrnehmen und leben kann, kommt bei sich an, wird resilient gegenüber den Verrücktheiten, die einem das Leben bietet. 
 
 **Resilient werden**, Selbstliebe empfinden, Mitgefühl mit allen Wesen um sie herum, egal wie sie gerade drauf sind (den Zustand anderer kann man sowieso kaum beeinflussen), die eigenen seelischen Impulse wahrnehmen und ihnen vertrauen. In einer Form von Gemeinschaft leben (gleichgültig, ob die Gemeinschaft Familie, KollegInnen, Freunde, Natur oder Tiere oder alle zusammen sind). Genau danach das eigene Leben selbstbestimmt gestalten.  
 
