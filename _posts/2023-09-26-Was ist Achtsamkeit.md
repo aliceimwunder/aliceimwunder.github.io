@@ -1,5 +1,5 @@
 ---
-title: Wheel of Awareness: Wie Du zu Deinem Sein findst, ist einfacher, als Du denkst
+title: "Wheel of Awareness: Wie Du zu Deinem Sein findst, ist einfacher, als Du denkst"
 ---
 
 Du willst raus aus chronischem Stress, gedanklichen Dauerschlaufen oder niederdrückenden Gefühlen? Erschöpfung, Burnout, Depression oder innere Leere?
