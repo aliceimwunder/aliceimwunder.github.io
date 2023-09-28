@@ -51,4 +51,4 @@ Stattdessen fühlen wir uns **verbundener, geerdeter**. Du kommst mehr in Dein H
 Man beginnt einige Monate mit einer 20minütigen täglichen Praxis. Damit verändern sich bereits Deine physischen Strukturen, so als ob Du ins Fitness-Studio mit Deinem Gehirn gingst. Allerdings ohne Geräte. Nach ca. 6 Monaten kannst Du die Praxis auf 7min. täglich reduzieren. Also im Grunde nicht viel mehr Zeit, als man sie fürs tägliche zwei mal Zähneputzen aufwendet.  
 
 ## Melde Dich für den nächsten Probeabend kostenfrei an
-Melde Dich gleich an zum **(Newsletter)[/2021/04/21/Landingspage-Newsletteranmeldung.html]** und sei **kostenfrei** beim nächsten Abend zum Auspobieren dabei. Wöchentliche Kurse folgen. (Nächste Termine)[/2023/04/14/wheel-of-awareness.html] findest Du hier. 
+Melde Dich gleich an zum **[Newsletter](/2021/04/21/Landingspage-Newsletteranmeldung.html)** und sei **kostenfrei** beim nächsten Abend zum Auspobieren dabei. Wöchentliche Kurse folgen. [Nächste Termine](/2023/04/14/wheel-of-awareness.html) findest Du hier. 
