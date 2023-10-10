@@ -15,9 +15,10 @@ in alten Mustern verstrickt haben. Menschen, die nun **endlich das Leben wollen,
 im Innersten sehnt.**
 
 #### Nächste Termine
-- **Freitag, den 6.10.2023, 18:30 Uhr. Wheel of Awareness:** [Kostenfrei für NewsletterabonnentInnen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
-- **Freitag, den 20.10.2023, 19:00 Uhr**, Thema: Selbstliebe, Selbstmitgefühl.
+- - **Freitag, den 20.10.2023, 19:00 Uhr**, Thema: Selbstliebe, Selbstmitgefühl.
  **[Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)**
+**Freitag, den 17.11.2023, 18:30 Uhr. Wheel of Awareness:** [Kostenfrei für NewsletterabonnentInnen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+
 
   
 #### Das Angebot meiner Praxis:
