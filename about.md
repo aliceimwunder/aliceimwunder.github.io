@@ -9,6 +9,7 @@ permalink: /about/
 ## Was biete ich an? 
 - Traumatherapie (nach dem HeilprakG) basierend auf psychodynamisch imaginativen Traumatherapie nach Luise Reddemann und enaktiver Traumatherapie nach Ellert Nijenhuis
 - Ressourcenorientierte Kurzzeittherapie
+- Achtsamkeitspraxis - Wheel of Awareness
 - EMDR, traumasensible Hypnotherapie 
 - Innere Kindheilung - Coaching - Erreiche ein konkretes Ziel
 - Clean Space/Einzelaufstellungen
