@@ -25,6 +25,7 @@ im Innersten sehnt.**
 
 - Psychodynamische imaginative sowie enaktive Traumatherapie nach Luise Reddemann und Ellert Nijenhuis, EMDR und Hypnotherapie
 - Innere Kindheilung - Coaching
+- Ressourcenorientierte Kurzzeitherapie
 - Einzelaufstellungen/InnerSpace
 - Wheel of Awareness - Achtsamkeitstraining nach Dr. Daniel Siegel
 - Energiearbeit 
