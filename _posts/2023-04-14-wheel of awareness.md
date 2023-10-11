@@ -1,9 +1,14 @@
 ---
 title: Wheel of Awareness
 ---
-### Nächste Termine 2023  
+### Nächste Termine  
 
-**freitags 6.10., 17.11., 8.12.,** immer 18:30 - 19:30 Uhr: im Aquariana-Berlin Kreuzberg, zeitgleich **online (zoom)**
+2023: **17.11. und 8.12.,** 
+
+2024: **9.2., 15.3., 19.4.**
+
+immer freitags, 18:30 - 19:30 Uhr: im Aquariana-Berlin Kreuzberg, zeitgleich **online (zoom)**
+
 
 Kostenfrei für Newsletter-AbonnentInnen: **[Newsletter-Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 
