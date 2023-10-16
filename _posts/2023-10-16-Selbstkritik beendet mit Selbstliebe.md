@@ -27,8 +27,8 @@ Wir setzten uns gemeinsam sanft in Richtung **innere Kindheilung** und Selbstmit
 
 Ihr wurde sehr schnell klar, was ich nach wenigen Sätzen erfasst hatte: dieses Erlebnis hatte sich tief in ihr psychisches System eingegraben. 
 
----
 
+## Selbstliebe führt zu Veränderung
 Als erstes Feedback erzählte sie mir später, dass ihr _bewusst_ wurde, was das eigentlich bedeutet hatte: sie hatte sich ab dann immer für eher Einzelkämpertum entschieden: es kommt ohnehin niemand zur Hilfe, nicht einmal wenn jemand direkt vor ihr stünde. Sie wählte immer den als sicher empfundenen Weg für sich, beruflich wie privat. Nie etwas gewagt, mittlerweile über 50 Jahre alt. Ein Traum hatte sich hartnäckig gehalten, für den man aber wagemutig sein müsste: sich selbständig  machen. Im Grunde stand ihr anschließend vor Erstaunen der Mund offen, was diese kurze Episode der Angst ohne Mitgefühl in ihrem Leben ausgelöst hatte. 
 
 --> Die Möglichkeit einer Selbständigkeit öffnete sich plötzlich in ihrem Kopf. Sie konnte sich das jetzt ernsthaft vorstellen, wo vorher überhaupt kein Raum dafür war.
@@ -40,7 +40,7 @@ Selbstliebe und Selbstmitgefühl bringen etwas. Und zwar schnell.
 Meine Werkzeuge dafür sind Innere Kindheilung und energetische Heilmethoden. Wenn Du zügig vorankommen willst, buch Dir ein paar Sitzungen.
 
 ## Innere Kindheilung und Aurareinigung
-Du hast die Möglichkeit, eine oder mehrere Sitzungen zum Thema **[Innere Kindheilung]**(/2020/09/17/Coaching-die-magische-drei.html) - Selbstmitgefühl zu buchen. Dadurch kann der Innenanteil, der noch immer in der Vergangenheit festsitzt in Liebe und Mitgefühl in die Gegenwart kommen und sich wieder integrieren. Meist hat dieser Anteil in den Jahren der inneren Verbannung eine Superpower entwickelt, die Du dann gezielt einsetzen kannst. Es sind in dem Sinne nie verlorene Jahre. 
+Du hast die Möglichkeit, eine oder mehrere Sitzungen zum Thema **[Innere Kindheilung](/2020/09/17/Coaching-die-magische-drei.html)** - Selbstmitgefühl zu buchen. Dadurch kann der Innenanteil, der noch immer in der Vergangenheit festsitzt in Liebe und Mitgefühl in die Gegenwart kommen und sich wieder integrieren. Meist hat dieser Anteil in den Jahren der inneren Verbannung eine Superpower entwickelt, die Du dann gezielt einsetzen kannst. Es sind in dem Sinne nie verlorene Jahre. 
 
 Und/Oder Du kannst ein **individuelles Aura-Clearing** zu diesem Thema buchen. Selbstkritik über viele Jahre hinweg hinterlässt energetische Muster in Deinem Energiekörper. Diese kannst Du tiefgreifend reinigen. Dazu hast Du die Möglichkeit, in einer Einzelsitzung eine ganz für Dich zugeschnittene innere Vision von Deinem Selbstmitgefühl mitzunehmen. Entscheidungen mit dem Grundgefühl der Selbstliebe zu treffen, haben eine völlig andere Qualität als die, die man mit seinem ungebremsten Inneren Kritiker fällt. Auch Schock, der noch in den Zellen gespeichert ist, können wir gemeinsam lösen. 
 
