@@ -2,6 +2,8 @@
 title: Selbtkritik mit Selbstliebe beenden
 ---
 
+![Schaukel](/assets/2023-10-16-Schaukel.jpg)
+
 Sie saß auf einer Schaukel. So eine, in der man sich gegenübersitzt und zu mehreren schaukeln konnte. Ihre Mutter hatte sie sich gegenüber gesetzt. Auf ihrer Seite saß sie allein und ihre Mutter gegenüber begann zu schaukeln. Die Mutter achtete nicht weiter auf die Kleine, sondern unterhielt sich mit jemandem.
 
 Sie war erst zwei Jahre alt und kam nicht bis zum Haltebrett für die Füße. Ihre Beine schaukelten haltlos. Sie hielt sich verkrampft fest, ihr Po rutschte nach vorne, weil ihre Kraft in den Fingern noch nicht reichte, um sicher auf dem Sitzbrett zu sitzen, während die Schaukel stärker schaukelte. Sie sah in ihrer Angst nach unten und plötzlich setzte **Panik** ein. Mit weit aufgerissenen Mund und Augen starrte sie zwischen Sitz und Brett für die Füße auf das schaukelnde Loch unter ihr. Aus ihrer Perspektive wirkte der Boden unendlich weit weg. wenn sie durch das schaukelnde Loch unter ihren Füßen sah. Wenn sie da dazwischen rutschte??? Es wirkte wie eine Todesfalle. 
