@@ -1,5 +1,6 @@
 ---
 title: Selbtkritik mit Selbstliebe beenden
+---
 
 Sie saß auf einer Schaukel. So eine, in der man sich gegenübersitzt und zu mehreren schaukeln konnte. Ihre Mutter hatte sie sich gegenüber gesetzt. Auf ihrer Seite saß sie allein und ihre Mutter gegenüber begann zu schaukeln. Die Mutter achtete nicht weiter auf die Kleine, sondern unterhielt sich mit jemandem.
 
