@@ -29,6 +29,7 @@ In meinen spirituell medialen Sitzungen hole ich meine Klient:innen genau dort a
 - Gelassenheit finden.
 - Frieden leben. 
 - Verbundenheit wahrnehmen.
+  
 Grundlage meiner Sitzungen können kosmische Chirurgie, Energiearbeit, Reinkarnationsreisen, Akasha-Chronik lesen, Ahnenergien ausgleichen, Aurareinigung sein. 
 
 
