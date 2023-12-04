@@ -58,10 +58,10 @@ Voraussetzung: Du meldest Dich **[für den Newsletter](/2021/04/21/Landingspage-
 
 Selbstverständlich kannst Du Dich jederzeit vom Newsletter abmelden. 
 
-### Voraussichtlich ab Oktober 2023 als fortlaufender Kurs (Beginn alle 8 Wochen von Neuem) 
+### Voraussichtlich ab April 2024 als fortlaufender Kurs (Beginn alle 8 Wochen von Neuem) 
 Dich haben die Schnupperabende freitags überzeugt? 
 
-Dann komm in den **fortlaufenden Kurs zur persönlichen Motivation, täglich, regelmäßig zu meditieren.** Nur dann kannst Du die Vorteile, die dieses Achtsamkeitstraining Dir bietet, tatsächlich nutzen. 
+Dann komm in den **fortlaufenden Kurs zur persönlichen Motivation, täglich, regelmäßig zu meditieren.** Dann kannst Du die Vorteile, die dieses Achtsamkeitstraining Dir bietet, tatsächlich nutzen. 
 
 Um den vollen Nutzen für sich zu genießen: Man beginnt mit einer Praxis von 30 min täglich. Nach einigen Monaten kann man die Dauer auf 7min täglich reduzieren. 
 
