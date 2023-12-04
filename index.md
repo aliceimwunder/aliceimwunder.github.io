@@ -36,6 +36,7 @@ Grundlage meiner Sitzungen können kosmische Chirurgie, Energiearbeit, Reinkarna
 #### Praxis für Traumaheilung (hp psych)
 Bei psychologischen Symptomen, wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer.  
 
+- Innere Kindheilung
 - Ressourcenorientierte Kurzzeitherapie
 - Klientenzentrierte Gesprächstherapie nach Rogers
 - Psychodynamische imaginative sowie enaktive Traumatherapie nach Luise Reddemann und Ellert Nijenhuis,
@@ -43,6 +44,7 @@ Bei psychologischen Symptomen, wie z.B. PTBS, kPTBS, psychosomatischen Beschwerd
 - Hypnotherapie nach Gunther Schmidt
 - Traumasensible Einzelaufstellungen/InnerSpace
 - Wheel of Awareness - Achtsamkeitstraining nach Dr. Daniel Siegel, einem amerikanischen Traumatherapeuten und Neurobiologen.
+
 (nur Selbstzahler)
 
 Egal, welcher Weg für Sie der richtige ist: 
