@@ -9,8 +9,7 @@ layout: default
 
 ### Praxis für Traumaheilung und Coaching 
 
-Ich bin Traumatherapeutin (hp psych) und Coach. Ich begleite Menschen, die ihr Leben selbstbestimmt gestalten 
-wollen. Menschen, die bisher mit Stressfolgeerkrankungen kämpfen. Menschen, die seelisch belastet sind oder die sich 
+Ich bin Heilpraktikerin für Psychotherapie mit fundierter Therapieausbildung und spirituell medialer Coach. Ich begleite Menschen, die ihr Leben selbstbestimmt gestalten wollen. Menschen, die bisher mit Stressfolgeerkrankungen kämpfen. Menschen, die seelisch belastet sind oder die sich 
 in alten Mustern verstrickt haben. Menschen, die nun **endlich das Leben wollen, nach dem sich ihre Seele 
 im Innersten sehnt.**
 
@@ -21,15 +20,31 @@ im Innersten sehnt.**
  **[Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)**
 
   
-#### Das Angebot meiner Praxis:
+#### Spirituell mediales Coaching:
+In meinen spirituell medialen Sitzungen hole ich meine Klient:innen genau dort ab, wo sie gerade stehen. 
+- Vergangenheit bewältigen.
+- Blockaden lösen.
+- Heilung wahrnehmen.
+- Raum in sich eröffnen. 
+- Gelassenheit finden.
+- Frieden leben. 
+- Verbundenheit wahrnehmen.
+Grundlage meiner Sitzungen können kosmische Chirurgie, Energiearbeit, Reinkarnationsreisen, Akasha-Chronik lesen, Ahnenergien ausgleichen, Aurareinigung sein. 
 
-- Psychodynamische imaginative sowie enaktive Traumatherapie nach Luise Reddemann und Ellert Nijenhuis, EMDR und Hypnotherapie
-- Innere Kindheilung - Coaching
+
+#### Praxis für Traumaheilung (hp psych)
+Bei psychologischen Symptomen, wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer.  
+
 - Ressourcenorientierte Kurzzeitherapie
-- Einzelaufstellungen/InnerSpace
-- Wheel of Awareness - Achtsamkeitstraining nach Dr. Daniel Siegel
-- Energiearbeit 
+- Klientenzentrierte Gesprächstherapie nach Rogers
+- Psychodynamische imaginative sowie enaktive Traumatherapie nach Luise Reddemann und Ellert Nijenhuis,
+- EMDR
+- Hypnotherapie nach Gunther Schmidt
+- Traumasensible Einzelaufstellungen/InnerSpace
+- Wheel of Awareness - Achtsamkeitstraining nach Dr. Daniel Siegel, einem amerikanischen Traumatherapeuten und Neurobiologen.
+(nur Selbstzahler)
 
+Egal, welcher Weg für Sie der richtige ist: 
 Lassen Sie seelische Zustände wie mangelnde Energie, Gefühle von Fremdbestimmung, häufige ungewollte 
 Stressreaktionen des Körpers hinter sich. Werden Sie emotional stabil. Halte Sie sich nicht mehr mit 
 emotionalen Triggern, alten Zellerinnerungen, (transgenerationalen) Traumatisierungen usw. von Ihrem 
