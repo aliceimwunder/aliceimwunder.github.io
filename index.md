@@ -15,13 +15,12 @@ im Innersten sehnt.**
 
 #### Nächste Termine
 - **Freitag, den 15.12.2023, 18:30 Uhr. Wheel of Awareness:** [Kostenfrei für NewsletterabonnentInnen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
-
 - **Freitag, den 26.01.2024, 19:00 Uhr**, Thema: Lebensmut.
  **[Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)**
 
   
 #### Spirituell mediales Coaching:
-In meinen spirituell medialen Sitzungen hole ich meine Klient:innen genau dort ab, wo sie gerade stehen. 
+In meinen spirituell medialen Sitzungen hole ich meine Klient:innen genau dort ab, wo sie gerade stehen. Ich arbeite so präzise und bedarfsgerecht, weil ich mit meiner Hellfühligkeit bis zum Schwinungszustand Deiner Zellen genau wahrnehme, wo in Deinem Energiefeld die Schwingung erhöht werden darf. 
 - Vergangenheit bewältigen.
 - Blockaden lösen.
 - Heilung wahrnehmen.
