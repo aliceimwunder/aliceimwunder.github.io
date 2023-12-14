@@ -45,14 +45,12 @@ Grundlage meiner Sitzungen können bspw. kosmische Chirurgie, Energiearbeit, Rei
 ### Praxis für Traumatherapie (hp psych)
 Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer kann ich Sie mit meinem fundierten therapeutischen Wissen unterstützen.  
 
-- Innere Kindheilung
 - Ressourcenorientierte Kurzzeitherapie
 - Klientenzentrierte Gesprächstherapie nach Rogers
 - Psychodynamische imaginative sowie enaktive Traumatherapie nach Luise Reddemann und Ellert Nijenhuis,
-- EMDR
-- Hypnotherapie nach Gunther Schmidt
+- EMDR/Hypnotherapie
 - Traumasensible Einzelaufstellungen/InnerSpace
-- Wheel of Awareness - Achtsamkeitstraining nach Dr. Daniel Siegel, einem amerikanischen Traumatherapeuten und Neurobiologen.
+- Wheel of Awareness - Achtsamkeitstraining nach Dr. Daniel Siegel. 
 
 (Nur Selbstzahler, bitte ärztlich klären, dass keine organischen Ursachen für Ihre Symptome übersehen werden.)
 
