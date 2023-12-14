@@ -60,7 +60,7 @@ In meinem "ersten" Leben war ich Verwaltungsjuristin. Ich wohnte mit meinem Mann
  
 Wenn nicht diese innere Stimme gewesen wäre, dass ich das Leben eines anderen lebte. Wenn ich mich nicht mittlerweile in meinen dritten Burnout manövriert hätte. Meine **Selbstfürsorge vergraben unter dem Kümmern um andere** in allen Bereichen meines Lebens. 
 
-Meine Hellfühligkeit nutzte ich manchmal unbewusst/halb bewusst, ansonsten fand ich sie lästig. Denn ich machte mich manchmal unbeliebt. Ich sprach Punkte an, die für mich wie ein knallpinker Elefant im Raum standen, aber keiner sonst außer mir zu bemerken schien. 
+Meine Hellfühligkeit nutzte ich manchmal unbewusst/halb bewusst, ansonsten fand ich sie lästig. Denn ich machte mich manchmal unbeliebt. Ich sprach Punkte an, die für mich wie ein **knallpinker Elefant im Raum** standen, aber keiner sonst außer mir zu bemerken schien. 
 
 Eines Nachts rief mein Mann den Notarzt. Das letzte, was ich hörte, war die Stimme des Notarztes: "Wir nehmen Ihre Frau mit, sie hat einen Herzinfarkt." Das letzte, was ich dazu dachte, war, welche Frau meint der denn? und schaute mich verwirrt im Zimmer um. 
 
