@@ -1,5 +1,5 @@
 ---
-title: Dein Info-Letter
+title: Mein Info-Letter
 ---
 
 Mein Info-Letter kommt ca. alle ein bis zwei Monate und informiert Sie über **meine aktuellen Termine** sowie Infos zu den veröffentlichten Blog-Posts.
