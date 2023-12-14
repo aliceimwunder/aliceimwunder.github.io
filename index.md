@@ -10,11 +10,10 @@ layout: default
 </header>
 
 
-### Praxis für Traumaheilung und Coaching 
+### Praxis für Traumatherapie und spirituelles Coaching 
 
-Ich bin Heilpraktikerin für Psychotherapie mit fundierter Therapieausbildung und spirituell medialer Coach. Ich begleite Menschen, die ihr Leben selbstbestimmt gestalten wollen. Menschen, die bisher mit Stressfolgeerkrankungen kämpfen. Menschen, die seelisch belastet sind oder die sich 
-in alten Mustern verstrickt haben. Menschen, die nun **endlich das Leben wollen, nach dem sich ihre Seele 
-im Innersten sehnt.**
+Ich begleite Menschen, die ihr Leben selbstbestimmt gestalten wollen. Menschen, die an Stress leiden, seelisch belastet sind oder die sich 
+in alten Mustern verstrickt haben. Menschen, die nun **endlich das Leben wollen, nach dem sich ihre Seele im Innersten sehnt.**
 
 #### Nächste Termine
 - **Freitag, den 15.12.2023, 18:30 Uhr. Wheel of Awareness:** [Kostenfrei für NewsletterabonnentInnen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
@@ -22,21 +21,19 @@ im Innersten sehnt.**
  **[Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)**
 
   
-#### Spirituell mediales Coaching:
-In meinen spirituell medialen Sitzungen hole ich meine Klient:innen genau dort ab, wo sie gerade stehen. Ich arbeite so präzise und bedarfsgerecht, weil ich mit meiner Hellfühligkeit bis zum Schwinungszustand Deiner Zellen genau wahrnehme, wo in Deinem Energiefeld die Schwingung erhöht werden darf. 
-- Vergangenheit bewältigen.
+#### Spirituell mediale Heilsitzungen:
+Mit ich mit meiner Hellfühligkeit nehme ich den Schwingungszustand Deiner Energiekörper wahr, und arbeite dort, wo in Deinem Energiefeld die Schwingung erhöht werden will. 
+- Energetische Ursachen aufspüren.
 - Blockaden lösen.
-- Heilung wahrnehmen.
-- Raum in sich eröffnen. 
-- Gelassenheit finden.
+- Inneren Raum öffnen. Kraft spüren
 - Frieden leben. 
 - Verbundenheit wahrnehmen.
   
-Grundlage meiner Sitzungen können kosmische Chirurgie, Energiearbeit, Reinkarnationsreisen, Akasha-Chronik lesen, Ahnenergien ausgleichen, Aurareinigung sein. 
+Grundlage meiner Sitzungen können bspw. kosmische Chirurgie, Energiearbeit, Reinkarnationsreisen, Akasha-Chronik lesen, Ahnenergien ausgleichen, Aurareinigung sein. 
 
 
-#### Praxis für Traumaheilung (hp psych)
-Bei psychologischen Symptomen, wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer.  
+#### Praxis für Traumatherapie (hp psych)
+Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer kann ich Sie mit meinen fundierten therapeutischen Wissen unterstützen.  
 
 - Innere Kindheilung
 - Ressourcenorientierte Kurzzeitherapie
@@ -49,11 +46,6 @@ Bei psychologischen Symptomen, wie z.B. PTBS, kPTBS, psychosomatischen Beschwerd
 
 (nur Selbstzahler)
 
-Egal, welcher Weg für Sie der richtige ist: 
-Lassen Sie seelische Zustände wie mangelnde Energie, Gefühle von Fremdbestimmung, häufige ungewollte 
-Stressreaktionen des Körpers hinter sich. Werden Sie emotional stabil. Halte Sie sich nicht mehr mit 
-emotionalen Triggern, alten Zellerinnerungen, (transgenerationalen) Traumatisierungen usw. von Ihrem 
-selbstbestimmten Leben ab. Lassen Sie Mitgefühl für sich und das Leben um sich einfließen.
 	
 <h4 id="Mein Blog: Auch Buddha ging ins Homeoffice">Mein Blog: Auch Buddha ging ins Homeoffice.</h4>
 
