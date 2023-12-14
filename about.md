@@ -33,7 +33,7 @@ Wenn Sie den Impuls haben, Ihre seelischen Essenz und Kraft zu nähren, dann sin
    Innere Kindheilung dient dazu, dass wir uns insgesamt mit uns verbundener und emotional stabiler wahrnehmen.
    Damit kann man leichter Ziele erreichen - und das mit Lebensfreude.
    Mit Achtsamkeit findet man passgenau, was man seelisch leben will und wo Grenzen überschritten werden. 
-   Ein Leben mit unserem Inneren Kind macht mehr Spaß.    
+   Ein Leben mit unserem Inneren Kind macht mehr Spaß. Meist kombinieren meine Klient:innen Innere Kindheilung und Energiearbeit. 
 
 3. **Psychotherapeutische** Begleitung als Heilpraktikerin für Psychotherapie à 50 min.  
 
@@ -71,9 +71,9 @@ Formulierung des Arztes: **"Da müsste man Respekt vor dem Leben haben."**
  
 Ich entschied in diesem Bett, dass ich meine damals fünfjährige Tochter nicht allein auf diesem Planeten zurücklassen und dass ich endlich herausfinden würde, was **ich auf diesem Planeten wirklich will**. Was geht in einem Intensivbett mit gefühlt 100 Schläuchen und weiträumigen Organversagen? Etwas aktiv Tun ist nicht möglich. Meiner Fähigkeit, Energieströme in einem Körper wahrnehmen zu können, schenkte ich das erste Mal in meinem ganzen Leben ernsthaft Aufmerksamkeit. Ich hatte keinen Ausweg mehr als diesen. 
 
-Ab diesem Punkt spielten die Geräte auf der Intensivstation verrückt. Medikamente ließen sich nicht richtig einstellen. Es ließ sich kein medizinischer Grund für die Herzinfarkte finden. Über zwei Wochen lang versuchten die Ärzte, irgendwie schlau aus meinem Körper zu werden. Nichts, nada, rien de rien. 
+Ab diesem Punkt spielten die Geräte auf der Intensivstation verrückt. Medikamente ließen sich nicht richtig einstellen. Die Folgen meiner Herzinfarkte waren auf dem nächsten MRT nicht mehr zu erkennen. Es ließ sich kein medizinischer Grund für meinen Zustand finden. Über zwei Wochen lang versuchten die Ärzte, irgendwie schlau aus meinem Körper zu werden. Nichts, nada, rien de rien. Die Ärzte unterstellten sich gegenseitig Inkompetenz.  
 
-Ich rief meinen spirituellen Lehrer an und arbeitete mit ihm. Danach behaupteten ein MRT, dass ich überhaupt keinen Herzinfarkt hatte. Die Ärzte unterstellten sich gegenseitig Inkompetenz. Ich war vom Opfer zum Zaungast einer sehr, sehr seltsamen Veranstaltung geworden. Nach Verlegung auf die Normalstation irritierte ich die Stationsärztin damit, einfach nach Hause gehen zu wollen. 
+Ich war vom Opfer **zum Zaungast** einer sehr, sehr seltsamen Veranstaltung geworden. Nach Verlegung auf die Normalstation irritierte ich die Stationsärztin damit, einfach nach Hause gehen zu wollen. 
 
 
 ### Mein Weg in mein zweites Leben
@@ -81,14 +81,7 @@ Nach 16 Tagen war Punkt 1 meiner Entschlussliste erreicht: Ich marschierte - wen
 
 Für Punkt 2 habe ich eine Weile gebraucht. Mit nur noch drei, statt vier funktionierenden Herzkammern wurde immer klarer, dass ich bzw. mein Körper die Belastungen eines typischen juristischen Alltags in einer Verwaltung nicht mehr aushielt. Es begann ein jahrelanger Heilungsprozess, der noch immer andauert. 
 
-Die Verwaltungsbeamtin mutierte über die Zeit zur Traumatherapeutin (Heilpraktikerin für Psychotherapie), Coach und energetischen Heilerin. Nun richte ich mit meinen KlientInnen einen Fokus darauf, was sie leben wollen, unterstütze sie, Blockaden zu lösen und hauszufinden, wofür sie keine Energie mehr verwenden wollen. 
-
-### Energiearbeit und Innere Kindheilung
-Alles ist darauf ausgelegt, endlich der eigenen seelischen Kaft zu vertrauen und dabei im Zweifel traumasensibel zu arbeiten.
-
-Die intensvisten Fortschritte, um mit mehr Wohlbefinden das Leben selbstbestimmt zu gestalten, habe ich bisher erlebt, wenn Klient:innen Energiearbeit und Innere Kindheilung zusammen gebucht haben. 
-
-Unsere Glaubenssätze, emotionalen Trigger, Selbstkritik etc. hinterlassen auch einen Abdruck im Energiekörper (Meridiane, Chacras, Auraschichten). Seelische Entwicklungsprozesse können gut mit energetische Unterstützung ablaufen. Wenn ich darüber nachdenke, was ich genau tue, dann würde ich sagen, ich krempel meine inneren Ärmel hoch und helfe meinen KlientInnen auf allen Ebenen zu entrümpeln; Platz zu machen, für die Liebe, die sie sind. Ich klettere mit ihnen in spirituelle Tiefen, in die sich sonst kaum einer wagt.
+Die Verwaltungsbeamtin in mir wandelte sich über die Zeit zur Traumatherapeutin (Heilpraktikerin für Psychotherapie), Coach und energetischen Heilerin. Nun richte ich mit meinen KlientInnen einen Fokus darauf, was sie leben wollen und unterstütze sie, Blockaden auf ihrem Weg zu lösen. 
  
 ### Das Leben einer anderen Frau!
 Nun wohne ich mit meiner Familie im Berliner Speckgürtel **im selbst entworfenen Traumhaus** mit Blick auf Wald und riesigem Garten. Ich arbeite reduziert meist von zu Hause oder im Aquariana und helfe - immer noch - Menschen, so wie in meinem ersten "Leben" als Juristin. Mit dem Unterschied: in meinem zweiten habe ich den Eindruck, Menschen so zu unterstützen, dass sie Quantensprünge in ihrem Leben machen, und ich ihnen nicht nur beruhigende Briefe schreiben kann. Jetzt darf ich die "unsichtbaren" pinken Elefanten im Raum auch ansprechren.  
