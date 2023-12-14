@@ -6,17 +6,18 @@ layout: default
 
 <header>
 	<h1>Willkommen</h1>
-	<p>Heiler-Praxis am Wald - Ein Ort für Achtsamkeit</p>
+	<p>Energie-Heilerin-Praxis am Wald - Ein Ort für Achtsamkeit</p>
 </header>
 
 
 ### Praxis für Traumatherapie und spirituelles Coaching 
 
-Ich begleite Menschen, die ihr Leben selbstbestimmt gestalten wollen. Menschen, die an Stress leiden, seelisch belastet sind oder die sich 
-in alten Mustern verstrickt haben. Menschen, die nun **endlich das Leben wollen, nach dem sich ihre Seele im Innersten sehnt.**
+Haben Sie den Impuls, sich energetisch auf spiritueller Ebene bei Ihren Themen unterstützen zu lassen? 
+Dann sind Sie hier richtig. 
+
 
 #### Nächste Termine
-- **Freitag, den 15.12.2023, 18:30 Uhr. Wheel of Awareness:** [Kostenfrei für NewsletterabonnentInnen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+- **Freitag, den 15.12.2023, 18:30 Uhr. Wheel of Awareness:** [Ein Null-Euro-Angebot für Info-letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 - **Freitag, den 26.01.2024, 19:00 Uhr**, Thema: Lebensmut.
  **[Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)**
 
@@ -45,7 +46,7 @@ Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerde
 - Traumasensible Einzelaufstellungen/InnerSpace
 - Wheel of Awareness - Achtsamkeitstraining nach Dr. Daniel Siegel, einem amerikanischen Traumatherapeuten und Neurobiologen.
 
-(nur Selbstzahler, bitte ärztlich klären, sodass keine organischen Ursachen übersehen werden.)
+(nur Selbstzahler, bitte ärztlich klären, dass keine organischen Ursachen für Ihre Symptome übersehen werden.)
 
 	
 <h4 id="Mein Blog: Auch Buddha ging ins Homeoffice">Mein Blog: Auch Buddha ging ins Homeoffice.</h4>
