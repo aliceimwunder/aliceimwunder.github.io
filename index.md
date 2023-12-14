@@ -18,7 +18,7 @@ Dann sind Sie hier richtig.
 
 
 #### Nächste Termine
-- **Freitag, den 15.12.2023, 18:30 Uhr. Wheel of Awareness:** [Ein Null-Euro-Angebot für Info-letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+- **Freitag, den 15.12.2023, 18:30 Uhr. Wheel of Awareness:** [Ein Null-Euro-Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 - **Freitag, den 26.01.2024, 19:00 Uhr**, **Aurareinigung** mit heilsamen Klängen" - Thema: Lebensmut.
  **[Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)**
 
@@ -26,7 +26,7 @@ Dann sind Sie hier richtig.
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
 
-#### Spirituell mediale Heilsitzungen - Innere Kindheilung:
+### Spirituell mediale Heilsitzungen - Innere Kindheilung:
 Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörper wahr. 
 
 Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will. 
@@ -40,7 +40,7 @@ Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will.
 Grundlage meiner Sitzungen können bspw. kosmische Chirurgie, Energiearbeit, Reinkarnationsreisen, Akasha-Chronik lesen, Ahnenergien ausgleichen, Aurareinigung sein. 
 
 
-#### Praxis für Traumatherapie (hp psych)
+### Praxis für Traumatherapie (hp psych)
 Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer kann ich Sie mit meinem fundierten therapeutischen Wissen unterstützen.  
 
 - Innere Kindheilung
