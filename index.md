@@ -21,11 +21,12 @@ in alten Mustern verstrickt haben. Menschen, die nun **endlich das Leben wollen,
  **[Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)**
 
   
-#### Spirituell mediale Heilsitzungen:
-Mit ich mit meiner Hellfühligkeit nehme ich den Schwingungszustand Deiner Energiekörper wahr, und arbeite dort, wo in Deinem Energiefeld die Schwingung erhöht werden will. 
+#### Spirituell mediale Heilsitzungen - Innere Kindheilung:
+Mit ich mit meiner Hellfühligkeit nehme ich den Schwingungszustand Deiner Energiekörper wahr. Ich arbeite dort, wo in Deinem Energiefeld die Schwingung erhöht werden will. 
+
 - Energetische Ursachen aufspüren.
 - Blockaden lösen.
-- Inneren Raum öffnen. Kraft spüren
+- Inneren Raum öffnen. Kraft und Erdung aufbauen.
 - Frieden leben. 
 - Verbundenheit wahrnehmen.
   
@@ -44,21 +45,20 @@ Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerde
 - Traumasensible Einzelaufstellungen/InnerSpace
 - Wheel of Awareness - Achtsamkeitstraining nach Dr. Daniel Siegel, einem amerikanischen Traumatherapeuten und Neurobiologen.
 
-(nur Selbstzahler)
+(nur Selbstzahler, bitte ärztlich klären, sodass keine organischen Ursachen übersehen werden.)
 
 	
 <h4 id="Mein Blog: Auch Buddha ging ins Homeoffice">Mein Blog: Auch Buddha ging ins Homeoffice.</h4>
 
- <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Antworten, die im Alltag funktionieren: Aus dem Bereich 		Traumatherapie, Innere Kindheilung, Coaching und Spiritualität trage ich alles zusammen, was ich erfahren und/oder ausprobiert habe, um das Leben 			selbstbestimmt in Leichtigkeit und Freude - also mit dem Inneren Kind, mit unserer Seele - gestalten zu können. Von wissenschaftlich 			fundiert über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtet Heiltools in meine Arbeit als Traumatherapeutin, 			Heilpraktikerin für Psychotherapie, Coach und energetische Begleiterin ein und erzähle davon.
+ <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Antworten, die im Alltag funktionieren: Aus dem Bereich Psychotherapie, Innere Kindheilung, Coaching und Spiritualität trage ich alles zusammen, was ich erfahren und/oder ausprobiert habe, um das Leben selbstbestimmt in Leichtigkeit und Freude - also mit dem Inneren Kind, mit unserer Seele - gestalten zu können. Von wissenschaftlich Interessantes über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtet Heiltools in meine Arbeit als Traumatherapeutin, 			Heilpraktikerin für Psychotherapie, Coach und energetische Begleiterin ein und erzähle davon.
 	</p>
 	
-<h4> Mein Newsletter - Manifestieren mit dem Inneren Kind</h4>
+<h4> Mein Info-Letter</h4>
 
-<p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Auf meinem Newsletter </a></strong> bekommt man genau das direkt in sein Email-Fach: Mit dem Inneren Kind das Leben gestalten. Inneres Kind beschreibt im Grunde die Energien von Neugier, Lebensfreude, Leichtigkeit, Verbundenheit und Schaffenskraft. Alles, was mir aus Therapie, Coaching und Spiritualität über den Weg läuft - zusammen mit meinen aktuellen Angeboten - kommt frisch zu Dir geliefert. Was ein erfülltes Leben ausmacht? In Leichtigkeit magnetisch anziehen, was uns wirklich Sinn für unser Leben gibt. 				Hol Dir dazu den Newsletter und bleib auf dem Laufenden.</p>
+<p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Mein Info-Letter </a></strong> ist genau das: er informiert. Ich schicke ihn ca. ein bis alle zwei Monate, um Dich über meine aktuellen Termine und Blog-Veröffentlichungen zu informieren.</p>
 	
-- **Mein Blog:** "Auch Buddha ging ins Homeoffice" - mit ganzheitlichem Wissen um emotionale Stabilität, Energie und Kraft
-  für ein selbstbestimmtes Leben mit dem Inneren Kind: **<a href="/blog.html"> Selbsthilfetools für Zuhause </a>**
-- **Mein Newsletter:** <a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Manifestieren mit dem Inneren Kind! </a>
+- **Mein Blog:** "Auch Buddha ging ins Homeoffice" - mit ganzheitlichem Wissen um emotionale Stabilität, Energie und Kraft mit dem Inneren Kind: **<a href="/blog.html"> Selbsthilfetools für Zuhause </a>**
+- **Mein Newsletter:** <a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Info-Letter für meine aktuellen Termine </a>
 - **mit meiner persönlichen Begleitung** auf Deinem Weg aus der Krise? <strong>Lerne <a href="/about/">mich kennen</a></strong>.
 
 <h4>Ein Feedback zu meiner Inneren Kindheilung - Coaching, von Maria W. aus Liechtenstein: </h4>
