@@ -19,7 +19,7 @@ Mit dem Info-Letter erhalten Sie Zugang zu einer kostenfreien geführten Achtsam
   
 Wollen Sie vor Ort im Aquariana teilnehmen? Dann unbedingt **per Email anmelden**. info@alicewindolf.de 
 
-Der Termin findet vor Ort im Aquariana in Berlin-Kreuzberg bei Anmeldung statt. 
+Der Termin findet vor Ort im Aquariana in Berlin-Kreuzberg nur bei Anmeldung statt. 
 
 Sie können auch teilnehmen, wenn Sie sich nicht zu meinem Info-Letter anmelden wollen. Dann bitte ich um eine kleine Spende für die Raummiete. 
 
