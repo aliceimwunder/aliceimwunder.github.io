@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-<img src="assets/2020-10-13-Frontbild.jpg" alt="" style="max-width:100%"/>
+<img src="assets/images/blog-banner-herbst-wald.png" alt="" style="max-width:100%"/>
 
 
 <header>
