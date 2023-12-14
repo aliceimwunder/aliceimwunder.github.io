@@ -11,8 +11,6 @@ Belastende Erlebnisse oder ein nicht optimales Umfeld können einen Menschen im 
 
 Sie haben den Impuls, sich Ihrer seelischen Essenz, Ihrer seelischen Kraft auf spirituellem Weg zu nähern? 
 
-![Jaymaleh](/assets/about-Portrait2.jpg)
-
 ## Was biete ich an? 
 1. Energetische Heilsitzungen à 60 min. 
    Sie dienen dazu, dass sich energetische Blockaden lösen und Sie Ihre seelische Essenz intensiver leben können.
@@ -50,7 +48,9 @@ Sie haben den Impuls, sich Ihrer seelischen Essenz, Ihrer seelischen Kraft auf s
 - Traumatherapie (nach dem HeilprakG) basierend auf psychodynamisch imaginativen Traumatherapie nach Luise Reddemann und enaktiver Traumatherapie nach Ellert Nijenhuis
 
 Ein guter Startpunkt für eine gemeinsame therapeutische Arbeit ist, wenn Sie ärztlich abklären lassen, dass keine organischen Ursachen für Ihre Beschwerden vorliegen, v.a. bei psychosomatischen Symptomen.
-   
+
+   ![Jaymaleh](/assets/about-Portrait2.jpg)
+
 
 ## Wie bin ich dazu gekommen, Menschen ihre innere Stabilität und Kraft zu zeigen?
 In meinem "ersten" Leben war ich Verwaltungsjuristin. Ich wohnte mit meinem Mann und meiner Tochter in einer schicken Stadtwohnung in Berlin mit kleinem Garten. Ich war stellvertretende Leiterin eines 10-köpfigen Teams, bei dem es sogar weitere Karriereaussichten trotz Teilzeitmuttidasein gab. Privat: Nette Cafés, nette Urlaube. Harmonische Ehe, niedliche Tochter. **Was will der Mensch mehr?**
