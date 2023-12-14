@@ -6,13 +6,14 @@ layout: default
 
 <header>
 	<h1>Willkommen</h1>
-	<p>Energie-Heilerin-Praxis am Wald - Ein Ort für Achtsamkeit</p>
+	<p>Energie-Heilerin-Praxis - Ein Ort für Achtsamkeit</p>
 </header>
 
 
 ### Praxis für Traumatherapie und spirituelles Coaching 
 
-Haben Sie den Impuls, sich energetisch auf spiritueller Ebene bei Ihren Themen unterstützen zu lassen? 
+Haben Sie den Impuls, sich auf spiritueller Ebene bei Ihren Themen unterstützen zu lassen? 
+
 Dann sind Sie hier richtig. 
 
 
@@ -21,6 +22,7 @@ Dann sind Sie hier richtig.
 - **Freitag, den 26.01.2024, 19:00 Uhr**, **Aurareinigung** mit heilsamen Klängen" - Thema: Lebensmut.
  **[Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)**
 
+![Jaymaleh](/assets/about-Portrait2.jpg)
 
 #### Spirituell mediale Heilsitzungen - Innere Kindheilung:
 Mit ich mit meiner Hellfühligkeit nehme ich den Schwingungszustand Deiner Energiekörper wahr. Ich arbeite dort, wo in Deinem Energiefeld die Schwingung erhöht werden will. 
