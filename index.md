@@ -58,7 +58,7 @@ Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerde
 
 
  
-<h4 id="Mein Blog: Auch Buddha ging ins Homeoffice">Mein Blog: Auch Buddha ging ins Homeoffice.</h4>
+<h4 id="Außerdem:">Außerdem:.</h4>
 
  <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Antworten, die im Alltag funktionieren: Aus dem Bereich Psychotherapie, Innere Kindheilung, Coaching und Spiritualität trage ich alles zusammen, was ich erfahren und/oder ausprobiert habe, um das Leben selbstbestimmt in Leichtigkeit und Freude - also mit dem Inneren Kind, mit unserer Seele - gestalten zu können. Von wissenschaftlich Interessantes über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtet Heiltools in meine Arbeit als Traumatherapeutin, 			Heilpraktikerin für Psychotherapie, Coach und energetische Begleiterin ein und erzähle davon.
 	</p>
