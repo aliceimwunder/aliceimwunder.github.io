@@ -25,6 +25,8 @@ Dann sind Sie hier richtig.
 
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
+Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
+
 
 ### Spirituell mediale Heilsitzungen - Innere Kindheilung:
 Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörper wahr. 
@@ -54,7 +56,6 @@ Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerde
 
 (nur Selbstzahler, bitte ärztlich klären, dass keine organischen Ursachen für Ihre Symptome übersehen werden.)
 
-Mehr über mich: <strong>Lerne <a href="/about/">mich kennen</a></strong>.
 
  
 <h4 id="Mein Blog: Auch Buddha ging ins Homeoffice">Mein Blog: Auch Buddha ging ins Homeoffice.</h4>
