@@ -27,7 +27,7 @@ Dann sind Sie hier richtig.
 
 
 #### Spirituell mediale Heilsitzungen - Innere Kindheilung:
-Mmit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörper wahr. 
+Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörper wahr. 
 
 Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will. 
 
