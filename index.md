@@ -1,6 +1,9 @@
 ---
 layout: default
 ---
+<img src="assets/2020-10-13-Frontbild.jpg" alt="" style="max-width:100%"/>
+
+
 <header>
 	<h1>Willkommen</h1>
 	<p>Heiler-Praxis am Wald - Ein Ort für Achtsamkeit</p>
@@ -95,4 +98,3 @@ sehr Erkenntnisreich und vorallem wirklich befreiend.</p>
 voranzukommen. Das ich deine Hilfe bekam! ein riesiges Dankeschön von
 mir zu dir!"</p> 
 
-<img src="assets/2020-10-13-Frontbild.jpg" alt="" style="max-width:100%"/>
