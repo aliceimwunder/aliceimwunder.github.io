@@ -62,7 +62,7 @@ Meine Hellfühligkeit nutzte ich manchmal unbewusst/halb bewusst, ansonsten fand
 Eines Nachts rief mein Mann den Notarzt. Das letzte, was ich hörte, war die Stimme des Notarztes: "Wir nehmen Ihre Frau mit, sie hat einen Herzinfarkt." Das letzte, was ich dazu dachte, war, welche Frau meint der denn? und schaute mich verwirrt im Zimmer um. 
 
 ### Das Ende meines ersten Lebens
-Als sich die Nebenlschwaden drei Tage später lichteten, stand ein kardiologischer Chefarzt vor mir. Er präsentierte mir folgende Aussicht von meinem Krankenhausbett: Dialyse wegen Nierenversagen. Entfernen der Milz wegen schwerer innerer Blutungen, die die Milz erdrückt hätten. Auf die Liste für Herztransplantation setzen, weil nach zwei Herzinfarkten in Folge es sein könnte, dass die Originalausgabe in meiner Brust nicht mehr lange mitmacht. Schwere OP's wegen Tumor in der Herzaorta. Gar keine Aussicht mehr wegen anhaltendem Leberversagen. 
+Als sich die Nebenlschwaden drei Tage später lichteten, stand ein kardiologischer Chefarzt vor mir. Er präsentierte mir folgende Aussicht: Dialyse wegen Nierenversagen. Entfernen der Milz wegen schwerer innerer Blutungen. Auf die Liste für Herztransplantation setzen, weil nach zwei Herzinfarkten in Folge die Originalausgabe schwächelte. Schwere OP's wegen Tumor in der Herzaorta. Gar keine Aussicht wegen anhaltendem Leberversagen. 
 
 Formulierung des Arztes: **"Da müsste man Respekt vor dem Leben haben."**
  
