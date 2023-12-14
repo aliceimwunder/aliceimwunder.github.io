@@ -93,21 +93,11 @@ Die intensvisten Fortschritte, um mit mehr Wohlbefinden das Leben selbstbestimmt
 Unsere Glaubenssätze, emotionalen Trigger, Selbstkritik etc. hinterlassen auch einen Abdruck im Energiekörper (Meridiane, Chacras, Auraschichten). Seelische Entwicklungsprozesse können gut mit energetische Unterstützung ablaufen. Wenn ich darüber nachdenke, was ich genau tue, dann würde ich sagen, ich krempel meine inneren Ärmel hoch und helfe meinen KlientInnen auf allen Ebenen zu entrümpeln; Platz zu machen, für die Liebe, die sie sind. Ich klettere mit ihnen in spirituelle Tiefen, in die sich sonst kaum einer wagt.
  
 ### Das Leben einer anderen Frau!
-Nun wohne ich mit meiner Familie im Berliner Speckgürtel **im selbst entworfenen Traumhaus** mit Blick auf Wald und riesigem Garten. Ich arbeite reduziert meist von zu Hause oder im Aquariana und helfe - immer noch - Menschen, so wie in meinem ersten "Leben". Mit dem Unterschied: in meinem zweiten habe ich den Eindruck, Menschen so zu unterstützen, dass sie Quantensprünge in ihrem Leben machen, und ich ihnen nicht nur beruhigende Briefe schreiben kann.
-
-## Mein Angebot
-
-**Traumatherapie**: Bei psychischen und psychosomatischen Symptomen, die die Lebensqualität einschränken. Oder allgemein einem Bedarf, das Leben grundsätzlich in neue Bahnen zu richten. Ein tiefgehendes Okay damit erreichen, dass das Leben nicht immer Okay war. Wöchentlich oder alle zwei Wochen Sitzungen von ca. 50min. über einen längeren Zeitraum. Nur Vor-Ort Sitzungen möglich. Als Heilpraktikerin für Psychotherapie nach dem HeilprakG habe ich keine Kassenzulassung. 
-
-**Innere Kindheilung**: Ein aus der Traumatherapie stammende Coaching-Methode. Sie dient dazu, ein konkretes Reaktionsmuster zu überwinden und dafür das Leben mit mehr Freude zu gestalten. Z.B. die Kolleg:innen laden regelmäßig Probleme ab oder die Mutter ruft zu beliebigen Zeiten an, und man bringt es einfach nicht übers Herz, klare Grenzen zu setzen. Online und Vor-Ort-Sitzungen möglich. Ich empfehle 6 Sitzungen zu einem Thema, um eine fundierte langhaltende Wirkung zu erzeugen. 
-
-**Einzelaufstellungen-Clean Space**: Clean Space ist eine projektorientierte Aufstellungsform. Sie ist eine von den Maori (Neuseeland) inspirierte Aufstellungstechnik, die traumasensibles Arbeiten ermöglicht. Clean Space bringt Klarheit und die Motivation, die nächsten Schritte zu gehen. Meist zeigt sich am Ende ein Folgethema/-prozess/-entwicklung, sodass ich drei Sitzungen im Abstand von einigen Wochen empfehle. Nur Vor-Ort-Sitzungen möglich. 
-
-**Energiearbeit** in einer Gruppe und in Einzelsitzungen. Die eigene Essenz leben, karmische Ursachen aufspüren, energetische Blockaden lösen, innere Freiheit gewinnen, seelische Erdung und Kraft aufbauen. 
+Nun wohne ich mit meiner Familie im Berliner Speckgürtel **im selbst entworfenen Traumhaus** mit Blick auf Wald und riesigem Garten. Ich arbeite reduziert meist von zu Hause oder im Aquariana und helfe - immer noch - Menschen, so wie in meinem ersten "Leben" als Juristin. Mit dem Unterschied: in meinem zweiten habe ich den Eindruck, Menschen so zu unterstützen, dass sie Quantensprünge in ihrem Leben machen, und ich ihnen nicht nur beruhigende Briefe schreiben kann. Jetzt darf ich die "unsichtbaren" pinken Elefanten im Raum auch ansprechren.  
 
 Mein Ausrichtung ist immer: **endlich das eigene Leben selbstbestimmt wirksam gestalten**, mit der Vergangenheit abschließen, soweit sie einem Ziel im Wege steht. Vergangenheitsbewältigung ist kein Selbstzweck. Am Ende stehen die Fragen: **Was macht mich aus? Wie will ich mein Leben gestalten?** 
 
-Dazu braucht man Klarheit und Stabilität, innere Freiheit und Selbstbewusstsein, ein Okay mit sich selbst, so wie man tatsächlich ist und nicht, was andere aus einem machen. Den eigenen Rhythmus finden, sodass emotionale Achterbahnen und Fremdbestimmung keine Chance mehr haben. Achtsamkeit für die eigene Intuition, Visionen und Wünsche. Liebevolle, bzw. positive freundschaftliche Bindungen zu anderen Menschen eingehen können. 
+Dazu braucht man **Klarheit** und Stabilität, innere Freiheit und Selbstbewusstsein, ein Okay mit sich selbst, so wie man tatsächlich ist und nicht, was andere aus einem machen. Den eigenen Rhythmus finden, sodass emotionale Achterbahnen und Fremdbestimmung keine Chance mehr haben. Achtsamkeit für die eigene Intuition, Visionen und Wünsche. Liebevolle, bzw. positive freundschaftliche Bindungen zu anderen Menschen eingehen können. 
 
 --> Im Ergebnis: Vertrauen in sich, in andere, ins Leben. 
 
