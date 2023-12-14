@@ -9,9 +9,8 @@ Jeder Mensch bringt seine Weisheit, seine Kraft und seine Liebe ins Leben mit.
 
 Belastende Erlebnisse oder zu wenig individuelle Entfaltungsmöglichkeiten können einen Menschen im Laufe seines Lebens aus seiner Mitte fallen lassen. 
 
-Wenn Sie den Impuls haben, sich Ihrer seelischen Essenz und Kraft auf spirituellem Weg zu nähern, dann sind Sie bei mir richtig. 
+Wenn Sie den Impuls haben, Ihre seelischen Essenz und Kraft zu nähren, dann sind Sie bei mir richtig. 
 
-Eine psychotherapeutische Begleitung biete ich ebenfalls an.  
 
 ## Was biete ich an? 
 1. **Energetische Heilsitzungen** à 60 min. 
