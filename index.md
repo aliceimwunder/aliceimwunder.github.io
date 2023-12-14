@@ -54,19 +54,18 @@ Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerde
 - Traumasensible Einzelaufstellungen/InnerSpace
 - Wheel of Awareness - Achtsamkeitstraining nach Dr. Daniel Siegel, einem amerikanischen Traumatherapeuten und Neurobiologen.
 
-(nur Selbstzahler, bitte ärztlich klären, dass keine organischen Ursachen für Ihre Symptome übersehen werden.)
+(Nur Selbstzahler, bitte ärztlich klären, dass keine organischen Ursachen für Ihre Symptome übersehen werden.)
 
 
  
-<h4 id="Außerdem:">Außerdem:.</h4>
-
+### Außerdem 
  <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Antworten, die im Alltag funktionieren: Aus dem Bereich Psychotherapie, Innere Kindheilung, Coaching und Spiritualität trage ich alles zusammen, was ich erfahren und/oder ausprobiert habe, um das Leben selbstbestimmt in Leichtigkeit und Freude - also mit dem Inneren Kind, mit unserer Seele - gestalten zu können. Von wissenschaftlich Interessantes über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtet Heiltools in meine Arbeit als Traumatherapeutin, 			Heilpraktikerin für Psychotherapie, Coach und energetische Begleiterin ein und erzähle davon.
 	</p>
 	
-<h4> Mein Info-Letter</h4>
 
 <p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Mein Info-Letter </a></strong> ist genau das: er informiert. Ich schicke ihn ca. ein bis alle zwei Monate, um Dich über meine aktuellen Termine und Blog-Veröffentlichungen zu informieren.</p>
 	
+<p>
 <h4>Ein Feedback zu meiner Inneren Kindheilung - Coaching, von Maria W. aus Liechtenstein: </h4>
 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
