@@ -1,3 +1,5 @@
+<img src="assets/images/blog-banner-herbst-wald.png" alt="" style="max-width:100%"/>
+
 ---
 layout: page
 title: About
