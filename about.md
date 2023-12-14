@@ -86,9 +86,11 @@ Für Punkt 2 habe ich eine Weile gebraucht. Mit nur noch drei, statt vier funkti
 Die Verwaltungsbeamtin mutierte über die Zeit zur Traumatherapeutin (Heilpraktikerin für Psychotherapie), Coach und energetischen Heilerin. Nun richte ich mit meinen KlientInnen einen Fokus darauf, was sie leben wollen, unterstütze sie, Blockaden zu lösen und hauszufinden, wofür sie keine Energie mehr verwenden wollen. 
 
 ### Energiearbeit und Innere Kindheilung
-Alles ist darauf ausgelegt, endlich der eigenen seelischen Kaft zu vertrauen und dabei im Zweifel traumasensibel zu arbeiten. . 
+Alles ist darauf ausgelegt, endlich der eigenen seelischen Kaft zu vertrauen und dabei im Zweifel traumasensibel zu arbeiten.
 
-All die alten Glaubenssätze, emotionalen Trigger, Selbstkritik, Gefühle von Fremdbestimmung und Niedergeschlagenheit haben einen Abdruck im Energiekörper (Meridiane, Chacras, Auraschichten) hinterlassen. Heilungsprozesse können schneller mit Unterstützung energetische Unterstützung gehen. Wenn ich darüber nachdenke, was ich genau tue, dann würde ich sagen, ich nehme eine energetische Mistgabel, krempel meine inneren Ärmel hoch und helfe meinen KlientInnen auf allen Ebenen zu entrümpeln; Platz zu machen, für die Liebe, die sie sind. Ich klettere mit ihnen in Tiefen, in die sich sonst kaum einer wagt.
+Die intensvisten Fortschritte, um mit mehr Wohlbefinden das Leben selbstbestimmt zu gestalten, habe ich bisher erlebt, wenn Klient:innen Energiearbeit und Innere Kindheilung zusammen gebucht haben. 
+
+Unsere Glaubenssätze, emotionalen Trigger, Selbstkritik etc. hinterlassen auch einen Abdruck im Energiekörper (Meridiane, Chacras, Auraschichten). Seelische Entwicklungsprozesse können gut mit energetische Unterstützung ablaufen. Wenn ich darüber nachdenke, was ich genau tue, dann würde ich sagen, ich krempel meine inneren Ärmel hoch und helfe meinen KlientInnen auf allen Ebenen zu entrümpeln; Platz zu machen, für die Liebe, die sie sind. Ich klettere mit ihnen in spirituelle Tiefen, in die sich sonst kaum einer wagt.
  
 ### Das Leben einer anderen Frau!
 Nun wohne ich mit meiner Familie im Berliner Speckgürtel **im selbst entworfenen Traumhaus** mit Blick auf Wald und riesigem Garten. Ich arbeite reduziert meist von zu Hause oder im Aquariana und helfe - immer noch - Menschen, so wie in meinem ersten "Leben". Mit dem Unterschied: in meinem zweiten habe ich den Eindruck, Menschen so zu unterstützen, dass sie Quantensprünge in ihrem Leben machen, und ich ihnen nicht nur beruhigende Briefe schreiben kann.
@@ -142,8 +144,6 @@ braucht.*
 
 ## Äußerlich sah mein Lebensweg so aus 
 ![Jaymaleh](/assets/about-Portrait1.jpg)
-
-In meiner Arbeit verbinde ich wissenschaftliche, wie spirituelle Ansätze, um das bestmögliche Ergebnis zu erziehlen. Hier mein Weg:  
 
 Besuch vieler Seminare zur Persönlichkeitsbildung und ganzheitlicher Heilung, wie z.B.: Energy Medicine nach Donna Leon. Aufstellungsarbeit. Walking-in-your-shoes. Inka-Schamanismus. Rhethorik. Körpersprache. Mediation. Meditation. Pranayama und Yoga. Lichkörperprozess bei Chamuel Schauffert. Spirituelle Heiltechniken von Pavlina Klemm. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie). Psychologische Astrologie/astrologische Energieaufstellung. 
 
