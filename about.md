@@ -11,6 +11,7 @@ Belastende Erlebnisse oder zu wenig individuelle Entfaltungsmöglichkeiten könn
 
 Wenn Sie den Impuls haben, Ihre seelischen Essenz und Kraft zu nähren, dann sind Sie bei mir richtig. 
 
+![Jaymaleh](/assets/about-Portrait2.jpg)
 
 ## Was biete ich an? 
 1. **Energetische Heilsitzungen** à 60 min. 
