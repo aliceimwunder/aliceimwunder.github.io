@@ -7,7 +7,7 @@ permalink: /about/
 
 Jeder Mensch bringt seine Weisheit, seine Kraft und seine Liebe ins Leben mit. 
 
-Belastende Erlebnisse oder ein nicht optimales Umfeld können einen Menschen im Laufe seines Lebens aus seiner Mitte fallen lassen. 
+Belastende Erlebnisse oder zu wenig individuelle Entfaltungsmöglichkeiten können einen Menschen im Laufe seines Lebens aus seiner Mitte fallen lassen. 
 
 Sie haben den Impuls, sich Ihrer seelischen Essenz, Ihrer seelischen Kraft auf spirituellem Weg zu nähern? 
 
