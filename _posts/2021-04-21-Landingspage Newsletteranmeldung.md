@@ -4,7 +4,7 @@ title: Dein Info-Letter
 
 Mein Info-Letter kommt ca. alle ein bis zwei Monate und informiert Sie über **meine aktuellen Termine** sowie Infos zu den veröffentlichten Blog-Posts.
 
-Auch wenn ein Gruppen-Termin kurzfristig ausfallen sollte, würde ich Dich über den Info-Letter informieren. 
+Auch wenn ein Gruppen-Termin kurzfristig ausfallen sollte, würde ich Sie über den Info-Letter informieren. 
 
 Ich freue mich auf Sie! 
 
