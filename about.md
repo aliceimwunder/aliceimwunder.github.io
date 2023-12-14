@@ -1,46 +1,87 @@
-<img src="assets/images/blog-banner-herbst-wald.png" alt="" style="max-width:100%"/>
-
 ---
 layout: page
 title: About
 permalink: /about/
 ---
+<img src="assets/images/blog-banner-herbst-wald.png" alt="" style="max-width:100%"/>
+
+Jeder Mensch bringt seine Weisheit, seine Kraft und seine Liebe ins Leben mit. 
+
+Belastende Erlebnisse oder ein nicht optimales Umfeld können einen Menschen im Laufe seines Lebens aus seiner Mitte fallen lassen. 
+
+Sie haben den Impuls, sich Ihrer seelischen Essenz, Ihrer seelischen Kraft auf spirituellem Weg zu nähern? 
 
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
 ## Was biete ich an? 
-- Traumatherapie (nach dem HeilprakG) basierend auf psychodynamisch imaginativen Traumatherapie nach Luise Reddemann und enaktiver Traumatherapie nach Ellert Nijenhuis
+1. Energetische Heilsitzungen à 60 min. 
+   Sie dienen dazu, dass sich energetische Blockaden lösen und Sie Ihre seelische Essenz intensiver leben können.
+   Ich bin hellfühlig und kann Ihr Energiesystem wahrnehmen.
+   In einer spirituellen Heilsitzung arbeite ich auf Ihre individuelle Bedürfnisse ausgerichtet, bspw. mit
+- Kosmische Chirurgie.
+- Akasha-Chronik lesen.
+- Inkarnationsreisen.
+- Aurareinigung, Entfernen von Symbolen aus der Aura.
+- Energieausgleich für die Energiesysteme des Körpers (Meridiane, Nadis etc.).
+- Ausgleich des Geburtshoroskop.
+
+  Dazu verbinde ich oft meine energetische Arbeit mit Innerer Kindheilung.
+
+2. **Innere Kindheilung - Achtsamkeitstraining - Coaching** à 50 min.
+   Innere Kindheilung dient dazu, dass wir uns insgesamt mit uns verbundener und emotional stabiler wahrnehmen.
+   Damit kann man leichter Ziele erreichen - und das mit Lebensfreude.
+   Mit Achtsamkeit findet man passgenau, was man seelisch leben will und wo Grenzen überschritten werden. 
+   Ein Leben mit unserem Inneren Kind macht mehr Spaß.    
+
+2. **Psychotherapeutische** Begleitung als Heilpraktikerin für Psychotherapie à 50 min.  
+   Haben sich psychologische Symptome bereits manifestiert? 
+   Das können bspw. PTBS, Zwänge, Ängste, psychosomatische Beschwerden, Erschöpfung, Burnout, Depression oder verlängerte Trauer sein.  
+   Schränken diese Symptome Ihre Lebensqualität ein?
+   Dann ist es vielleicht an der Zeit, für sich zu sorgen und sich Ihrer seelischen Kraft gewahr zu werden.  
+
+   Holen Sie sich bei mir psychologische Unterstützung. 
+   Wir klären zusammen, welches Vorgehen die beste Aussicht auf eine Besserung hat.  
+   
 - Ressourcenorientierte Kurzzeittherapie
-- Achtsamkeitspraxis - Wheel of Awareness
+- Achtsamkeitspraxis - Wheel of Awareness nach Dr. Dan Siegel.
 - EMDR, traumasensible Hypnotherapie 
 - Innere Kindheilung - Coaching - Erreiche ein konkretes Ziel
-- Clean Space/Einzelaufstellungen
-- Traumasensible Energiearbeit zum Lösen energetischer Blockaden 
+- Clean Space/traumasensible Einzelaufstellungen
+- Traumatherapie (nach dem HeilprakG) basierend auf psychodynamisch imaginativen Traumatherapie nach Luise Reddemann und enaktiver Traumatherapie nach Ellert Nijenhuis
 
-Ich begleite Menschen, die wissen, dass in ihnen mehr ruht, als sie in ihrem Leben bisher umsetzen konnten, die sich nicht mehr von ihren seelischen Verletzungen und alten Mustern beschränken lassen wollen. Endlich das Leben wollen, wonach sie sich seelisch sehnen. Jeder Mensch bringt seine Weisheit, seine Kraft und seine Liebe ins Leben mit. Dann können belastende Erlebnisse einen Menschen im Laufe seines Lebens aus seiner Mitte fallen bringen. Die innere Ruhe, Stabilität, Kraft und Neugier ins Leben lässt sich wiederfinden.   
+Ein guter Startpunkt für eine gemeinsame therapeutische Arbeit ist, wenn Sie ärztlich abklären lassen, dass keine organischen Ursachen für Ihre Beschwerden vorliegen, v.a. bei psychosomatischen Symptomen.
+   
 
 ## Wie bin ich dazu gekommen, Menschen ihre innere Stabilität und Kraft zu zeigen?
-In meinem "ersten" Leben war ich Verwaltungsjuristin. Ich wohnte mit meinem Mann und meiner Tochter in einer schicken Stadtwohnung in Berlin mit kleinem Garten. Ich war stellvertretende Leiterin eines 10-köpfigen Teams, bei dem es sogar weitere Karriereaussichten trotz Teilzeitmuttidasein gab. Ich ging dabei Bürgerbeschwerden gegen die Berliner Landesverwaltung nach. Privat: Nette Cafés, nette Urlaube. Harmonische Ehe, niedliche Tochter. **Was will der Mensch mehr?**
+In meinem "ersten" Leben war ich Verwaltungsjuristin. Ich wohnte mit meinem Mann und meiner Tochter in einer schicken Stadtwohnung in Berlin mit kleinem Garten. Ich war stellvertretende Leiterin eines 10-köpfigen Teams, bei dem es sogar weitere Karriereaussichten trotz Teilzeitmuttidasein gab. Privat: Nette Cafés, nette Urlaube. Harmonische Ehe, niedliche Tochter. **Was will der Mensch mehr?**
  
-Wenn da nicht diese innere Stimme gewesen wäre, dass ich das Leben eines anderen lebte. Wenn ich mich nicht mittlerweile in meinen dritten Burnout manövriert hätte. Meine **Selbstfürsorge vergraben unter dem Kümmern um andere** in allen Bereichen meines Lebens. Meine Hellfühligkeit nutzte ich manchmal unbewusst/halb bewusst, ansonsten fand ich sie lästig. Spiritualität war ein nettes Hobby für mich, bei dem schon die Vorstellung, beruflich damit zu arbeiten, rundum abwegig war. 
+Wenn nicht diese innere Stimme gewesen wäre, dass ich das Leben eines anderen lebte. Wenn ich mich nicht mittlerweile in meinen dritten Burnout manövriert hätte. Meine **Selbstfürsorge vergraben unter dem Kümmern um andere** in allen Bereichen meines Lebens. 
 
-Eines Nachts rief mein Mann den Notarzt. Das letzte, was ich hörte, war die Stimme des Notarztes: "Wir nehmen Ihre Frau mit, sie hat einen Herzinfarkt." Das letzte, was ich dachte, war, welche Frau meint der denn? und schaute mich verwirrt im Zimmer um. 
+Meine Hellfühligkeit nutzte ich manchmal unbewusst/halb bewusst, ansonsten fand ich sie lästig. Denn ich machte mich manchmal unbeliebt. Ich sprach Punkte an, die für mich wie ein knallpinker Elefant im Raum standen, aber keiner sonst außer mir zu bemerken schien. 
+
+Eines Nachts rief mein Mann den Notarzt. Das letzte, was ich hörte, war die Stimme des Notarztes: "Wir nehmen Ihre Frau mit, sie hat einen Herzinfarkt." Das letzte, was ich dazu dachte, war, welche Frau meint der denn? und schaute mich verwirrt im Zimmer um. 
 
 ### Das Ende meines ersten Lebens
-Als sich die Nebenlschwaden drei Tage später lichteten, stand ein kardiologischer Chefarzt vor mir. Er präsentierte mir folgende Aussicht von meinem Krankenhausbett: Dialyse wegen Nierenversagen. Entfernen der Milz wegen schwerer innerer Blutungen, die die Milz erdrückt hätten. Herztransplantation, weil nach zwei Herzinfarkten in Folge es sein könnte, dass die Originalausgabe in meiner Brust nicht mehr lange mitmacht. Schwere OP's wegen Tumor in der Herzaorta drohten. Gar keine Aussicht mehr wegen anhaltendem Leberversagen. Formulierung des Arztes: **"Da müsste man Respekt vor dem Leben haben."**
+Als sich die Nebenlschwaden drei Tage später lichteten, stand ein kardiologischer Chefarzt vor mir. Er präsentierte mir folgende Aussicht von meinem Krankenhausbett: Dialyse wegen Nierenversagen. Entfernen der Milz wegen schwerer innerer Blutungen, die die Milz erdrückt hätten. Auf die Liste für Herztransplantation setzen, weil nach zwei Herzinfarkten in Folge es sein könnte, dass die Originalausgabe in meiner Brust nicht mehr lange mitmacht. Schwere OP's wegen Tumor in der Herzaorta. Gar keine Aussicht mehr wegen anhaltendem Leberversagen. 
+
+Formulierung des Arztes: **"Da müsste man Respekt vor dem Leben haben."**
  
-Ich entschied in diesem Bett, dass ich meine damals fünfjährige Tochter nicht allein auf diesem Planeten zurücklassen und dass ich endlich herausfinden würde, was in aller Welt **ich auf diesem Planeten wirklich will**. Was geht in einem Intensivbett mit gefühlt 100 Schläuchen und weiträumigen Organversagen? Etwas aktiv tun ist nicht mehr möglich. Aber mit dem eigenen Körper reden, das geht. Meiner Fähigkeit, Energieströme in einem Körper wahrnehmen zu können, schenkte ich das erste Mal in meinem ganzen Leben ernsthaft Aufmerksamkeit. Ich hatte keinen Ausweg mehr als diesen. 
+Ich entschied in diesem Bett, dass ich meine damals fünfjährige Tochter nicht allein auf diesem Planeten zurücklassen und dass ich endlich herausfinden würde, was **ich auf diesem Planeten wirklich will**. Was geht in einem Intensivbett mit gefühlt 100 Schläuchen und weiträumigen Organversagen? Etwas aktiv Tun ist nicht möglich. Meiner Fähigkeit, Energieströme in einem Körper wahrnehmen zu können, schenkte ich das erste Mal in meinem ganzen Leben ernsthaft Aufmerksamkeit. Ich hatte keinen Ausweg mehr als diesen. 
 
-Ab diesem Punkt spielten die Geräte auf der Intensivstation verrückt. Medikamente ließen sich nicht richtig einstellen. Es ließ sich kein medizinischer Grund für den Herzinfarkt finden - trotz zum Teil gruseligsten Untersuchungen. Über zwei Wochen lang versuchten die Ärzte, irgendwie schlau aus meinem Körper zu werden. Nichts, nada, rien de rien. Ich rief meinen spirituellen Lehrer an und arbeitete mit ihm. Danach behaupteten ein MRT, dass ich überhaupt keinen Herzinfarkt hatte. Die Ärzte unterstellten sich gegenseitig Inkompetenz. Ich war vom Opfer zum Zaungast einer sehr seltsamen Veranstaltung geworden. Nach Verlegung auf die Normalstation irritierte ich die Stationsärztin damit, einfach nach Hause gehen zu wollen. 
+Ab diesem Punkt spielten die Geräte auf der Intensivstation verrückt. Medikamente ließen sich nicht richtig einstellen. Es ließ sich kein medizinischer Grund für die Herzinfarkte finden. Über zwei Wochen lang versuchten die Ärzte, irgendwie schlau aus meinem Körper zu werden. Nichts, nada, rien de rien. 
+
+Ich rief meinen spirituellen Lehrer an und arbeitete mit ihm. Danach behaupteten ein MRT, dass ich überhaupt keinen Herzinfarkt hatte. Die Ärzte unterstellten sich gegenseitig Inkompetenz. Ich war vom Opfer zum Zaungast einer sehr, sehr seltsamen Veranstaltung geworden. Nach Verlegung auf die Normalstation irritierte ich die Stationsärztin damit, einfach nach Hause gehen zu wollen. 
 
 
-### Meine Weg in mein zweites Leben
+### Mein Weg in mein zweites Leben
 Nach 16 Tagen war Punkt 1 meiner Entschlussliste erreicht: Ich marschierte - wenn auch reichlich wackelig - auf meinen eigenen zwei Beinen mit allen Organen ohne Tumor aus diesem Krankenhaus hinaus und meine Tochter hatte ihre Mutter noch.
 
-Für Punkt 2 habe ich eine Weile gebraucht. Mir wurde immer klarer, dass ich bzw. mein Körper die Belastungen eines typischen juristischen Alltags in einer Verwaltung nicht mehr aushielt. Es begann ein jahrelanger Heilungsprozess, der noch immer andauert. Die Verwaltungsbeamtin mutierte über die Zeit zur Traumatherapeutin (Heilpraktikerin für Psychotherapie), Coach und energetischen Heilerin. Nun richte ich mit meinen KlientInnen einen absoluten Fokus darauf, was in ihrem Leben geht und wofür sie keine Energie mehr verwenden wollen. Ich unterstütze sie bei der Integration alter emotionaler Trigger, suche mit ihnen nach ihren verschütteten **Superpowers** mit Hilfe von Traumatherapie, innere Kindheilung, Clean Space bzw. Einzelaufstellungen. 
+Für Punkt 2 habe ich eine Weile gebraucht. Mit nur noch drei, statt vier funktionierenden Herzkammern wurde immer klarer, dass ich bzw. mein Körper die Belastungen eines typischen juristischen Alltags in einer Verwaltung nicht mehr aushielt. Es begann ein jahrelanger Heilungsprozess, der noch immer andauert. 
 
-### Energiearbeit
-Wer auch alternative Wege gehen will, lässt sich auf **Energiearbeit** ein. Z.B. Aurareinigungen, Inkarnationsreisen, oder Lösen alter Symbole aus der Aura wie z.B. die der Kirchen. Meine ganze Arbeit ist darauf ausgerichtet, Traumata zu lösen und Neues zu ermöglichen. Alles ist darauf ausgelegt, endlich der eigenen seelischen Kaft zu vertrauen. 
+Die Verwaltungsbeamtin mutierte über die Zeit zur Traumatherapeutin (Heilpraktikerin für Psychotherapie), Coach und energetischen Heilerin. Nun richte ich mit meinen KlientInnen einen Fokus darauf, was sie leben wollen, unterstütze sie, Blockaden zu lösen und hauszufinden, wofür sie keine Energie mehr verwenden wollen. 
+
+### Energiearbeit und Innere Kindheilung
+Alles ist darauf ausgelegt, endlich der eigenen seelischen Kaft zu vertrauen und dabei im Zweifel traumasensibel zu arbeiten. . 
 
 All die alten Glaubenssätze, emotionalen Trigger, Selbstkritik, Gefühle von Fremdbestimmung und Niedergeschlagenheit haben einen Abdruck im Energiekörper (Meridiane, Chacras, Auraschichten) hinterlassen. Heilungsprozesse können schneller mit Unterstützung energetische Unterstützung gehen. Wenn ich darüber nachdenke, was ich genau tue, dann würde ich sagen, ich nehme eine energetische Mistgabel, krempel meine inneren Ärmel hoch und helfe meinen KlientInnen auf allen Ebenen zu entrümpeln; Platz zu machen, für die Liebe, die sie sind. Ich klettere mit ihnen in Tiefen, in die sich sonst kaum einer wagt.
  
@@ -49,18 +90,21 @@ Nun wohne ich mit meiner Familie im Berliner Speckgürtel **im selbst entworfene
 
 ## Mein Angebot
 
-**Traumatherapie**: Bei psychischen und psychosomatischen Symptomen, die die Lebensqualität einschränken. Oder allgemein einem Bedarf, das Leben grundsätzlich in neue Bahnen zu richten. Ein tiefgehendes Okay damit erreichen, dass das Leben nicht immer Okay war. Egal, ob die Vergangenheit ein konkretes überlastendes Ergeinis bot (z.B. Arbeitsunfall, Opfer einer Gewalttat,...) oder ob in der Vergangenheit längerfristiges Ungemach passierte (z.B. Scheidung der Eltern, Missbrauch, Mobbing...). Es ist nicht notwendig, sich an die konkreten Misstände in der Vergangenheit erinnern zu können. Mit Traumatherapie kann man tiefgreifend herausfinden, was einen selbst seelisch ausmacht und das Leben selbstbestimmt gestalten.  
-Wöchentlich oder alle zwei Wochen Sitzungen von ca. 50min. über einen längeren Zeitraum. Nur Vor Ort Sitzungen möglich. Als Psychotherapeutin nach dem HeilprakG habe ich keine Kassenzulassung. 
+**Traumatherapie**: Bei psychischen und psychosomatischen Symptomen, die die Lebensqualität einschränken. Oder allgemein einem Bedarf, das Leben grundsätzlich in neue Bahnen zu richten. Ein tiefgehendes Okay damit erreichen, dass das Leben nicht immer Okay war. Wöchentlich oder alle zwei Wochen Sitzungen von ca. 50min. über einen längeren Zeitraum. Nur Vor-Ort Sitzungen möglich. Als Heilpraktikerin für Psychotherapie nach dem HeilprakG habe ich keine Kassenzulassung. 
 
-**Innere Kindheilung**: Ein aus der Traumatherapie stammende Coaching-Methode. Sie dient dazu, ein konkretes Reaktionsmuster: Z.B. die KollegInnen laden regelmäßig Probleme bei einem ab oder die Mutter ruft zu beliebigen Zeiten an, und man bringt es einfach nicht übers Herz, klare Grenzen zu setzen. D.h. man will ein bestimmtes einschränkendes Reaktionsmuster auf wiederkehrende Situationen wandeln. Online und Vor-Ort-Sitzungen möglich. Ich empfehle 6 Sitzungen zu einem Thema, um eine fundierte langhaltende Wirkung zu erzeugen. 
+**Innere Kindheilung**: Ein aus der Traumatherapie stammende Coaching-Methode. Sie dient dazu, ein konkretes Reaktionsmuster zu überwinden und dafür das Leben mit mehr Freude zu gestalten. Z.B. die Kolleg:innen laden regelmäßig Probleme ab oder die Mutter ruft zu beliebigen Zeiten an, und man bringt es einfach nicht übers Herz, klare Grenzen zu setzen. Online und Vor-Ort-Sitzungen möglich. Ich empfehle 6 Sitzungen zu einem Thema, um eine fundierte langhaltende Wirkung zu erzeugen. 
 
-**Einzelaufstellungen-Clean Space**: Clean Space ist eine traumasensible, projektorientierte Aufstellung. Bei Clean Space handelt es sich um ein aus Neuseeland stammende Form der Aufstellung. Dabei wird nicht wie bei Familienaufstellungen ein Familiensystem aufgestellt sondern ein konkretes Problem, das sich wandeln, oder ein Projekt, das sich klären soll. Clean Space bringt Klarheit in verworrene Situationen und die Motivation, die nächsten Schritte zu gehen. Eine Einzelsitzung bringt einen tiefgreifenden Klärungsprozess. Meist zeigt sich am Ende ein Folgethema/-prozess/-entwicklung, sodass ich drei Sitzungen im Abstand von einigen Wochen empfehle. Bevorzugt offline, online möglich. 
+**Einzelaufstellungen-Clean Space**: Clean Space ist eine projektorientierte Aufstellungsform. Sie ist eine von den Maori (Neuseeland) inspirierte Aufstellungstechnik, die traumasensibles Arbeiten ermöglicht. Clean Space bringt Klarheit und die Motivation, die nächsten Schritte zu gehen. Meist zeigt sich am Ende ein Folgethema/-prozess/-entwicklung, sodass ich drei Sitzungen im Abstand von einigen Wochen empfehle. Nur Vor-Ort-Sitzungen möglich. 
 
-**Energiearbeit**: Ich biete ganzheitliche, tragfähige Lösungen in der Traumaheilung an. Wissenschaftlich fundiert. Und wer will, spirituell erweiterternd. Jedoch immer geerdet und traumasensibel. Ich biete in einer Gruppe regelmäßig innere Visionsreisen mit Lichtkörperreinigung und Quantenheilung zu seelischen Themen an, um die meine Art zu arbeiten kennenzulernen. Außerdem möglich: Aura-/Chakrenreinigung in Einzelsitzungen zum Lösen alter Schocks aus dem Energiekörper, Reinkarnationsreisen zum Auffinden und Lösen alter Traumatisierungen, Löschen von einschränkenden Symbolen aus der Aura (z.B. religiöse Symbole), Begleitung von schwierigen, körperlichen (tramatisierenden) Heilprozessen mit Engelenergie. Vieles ist Online möglich, einige Techniken nur vor Ort. Lässt sich wunderbar mit Innerer Kindheilung verbinden. Je nach Bedarf drei bis sechs Sitzungen. Bei längerfristigen Heilprozessen, wie z.B. OP-Nachsorge entsprechend dem körperlichen Heilprozess. 
+**Energiearbeit** in einer Gruppe und in Einzelsitzungen. Die eigene Essenz leben, karmische Ursachen aufspüren, energetische Blockaden lösen, innere Freiheit gewinnen, seelische Erdung und Kraft aufbauen. 
 
---> Meine Arbeit ist darauf ausgerichtet, **endlich das eigene Leben selbstbestimmt zu gestalten**, und soweit es notwendig ist, mit der Vergangenheit aufzuräumen! Vergangenheitsbewältigung ist kein Selbstzweck - zumindest würde ich es nicht als Hobby betreiben. Am Ende stehen die Fragen: **Was macht mich aus? Wie will ich mein Leben gestalten?** Dazu braucht man Klarheit und Stabilität, innere Freiheit und Selbstbewusstsein: ein Okay mit sich selbst, so wie man tatsächlich ist und nicht, was andere aus einem machen. Den eigenen Rhythmus finden, sodass emotionale Achterbahnen und Fremdbestimmung keine Chance mehr haben. Achtsamkeit für die eigene Intuition, Visionen und Wünsche. Liebevolle, bzw. positive freundschaftliche Bindungen zu anderen Menschen eingehen können. Im Ergebnis: Vertrauen in sich, in andere, ins Leben. 
+Mein Ausrichtung ist immer: **endlich das eigene Leben selbstbestimmt wirksam gestalten**, mit der Vergangenheit abschließen, soweit sie einem Ziel im Wege steht. Vergangenheitsbewältigung ist kein Selbstzweck. Am Ende stehen die Fragen: **Was macht mich aus? Wie will ich mein Leben gestalten?** 
 
-Dann entsteht **Kreativität und Entscheidungsfreiheit**, die selbst in herausfordernden Situationen zum Tragen kommen. Z.B.: Kein automatisches im Boden Versinken mehr, keine (blinde) Wutanfälle oder Angst vor dem eigenen Schatten, keine lähmende Trauer, kein Hass oder übermäßige Anpassung an andere, keine unerklärliche Niedergeschlagenheit, keine Schockstarre mehr. Bei jedem von uns sind einschränkende innere Zustände anders, eine Einschränkung der Lebensqualität bedeuten sie alle. All das hinter sich lassen! Dann kommt die entscheidende Frage: Wie sieht dann das Leben aus? 
+Dazu braucht man Klarheit und Stabilität, innere Freiheit und Selbstbewusstsein, ein Okay mit sich selbst, so wie man tatsächlich ist und nicht, was andere aus einem machen. Den eigenen Rhythmus finden, sodass emotionale Achterbahnen und Fremdbestimmung keine Chance mehr haben. Achtsamkeit für die eigene Intuition, Visionen und Wünsche. Liebevolle, bzw. positive freundschaftliche Bindungen zu anderen Menschen eingehen können. 
+
+--> Im Ergebnis: Vertrauen in sich, in andere, ins Leben. 
+
+Dann entsteht **Kreativität und Entscheidungsfreiheit**, die selbst in herausfordernden Situationen zum Tragen kommen. 
 
 
 ## Testimonials
@@ -98,9 +142,9 @@ In meiner Arbeit verbinde ich wissenschaftliche, wie spirituelle Ansätze, um da
 
 Besuch vieler Seminare zur Persönlichkeitsbildung und ganzheitlicher Heilung, wie z.B.: Energy Medicine nach Donna Leon. Aufstellungsarbeit. Walking-in-your-shoes. Inka-Schamanismus. Rhethorik. Körpersprache. Mediation. Meditation. Pranayama und Yoga. Lichkörperprozess bei Chamuel Schauffert. Spirituelle Heiltechniken von Pavlina Klemm. Mehrjährige Eigentherapien (tiefenfundierte Gesprächstherapie und Traumatherapie). Psychologische Astrologie/astrologische Energieaufstellung. 
 
+- Spirituell mediale Beraterin (Chamuel Schauffert, Schweizer Engelmedium)
 - Traumatherapieausbildung, arche medica
 - Klientenzentrierte Gesprächstherapie nach Rogers, paracelsus Heilpraktiker Schule
-- Spirituell mediale Beraterin I (Chamuel Schauffert)
 - Heilpraktikerin für Psychotherapie, Berlin
 - Coachingausbildung, arche medica
 - Stellvertretenden Leiterin des Sekretariats des Petitionsausschusses des Abgeordnetenhauses von Berlin
