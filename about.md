@@ -14,8 +14,9 @@ Wenn Sie den Impuls haben, sich Ihrer seelischen Essenz und Kraft auf spirituell
 Eine psychotherapeutische Begleitung biete ich ebenfalls an.  
 
 ## Was biete ich an? 
-1. Energetische Heilsitzungen à 60 min. 
-   Sie dienen dazu, dass sich energetische Blockaden lösen und Sie Ihre seelische Essenz intensiver leben können.
+1. **Energetische Heilsitzungen** à 60 min. 
+
+    Sie dienen dazu, dass sich energetische Blockaden lösen und Sie Ihre seelische Essenz intensiver leben können.
    Ich bin hellfühlig und kann Ihr Energiesystem wahrnehmen.
    In einer spirituellen Heilsitzung arbeite ich auf Ihre individuelle Bedürfnisse ausgerichtet, bspw. mit
 - Kosmischer Chirurgie.
@@ -28,12 +29,14 @@ Eine psychotherapeutische Begleitung biete ich ebenfalls an.
   Dazu verbinde ich oft meine energetische Arbeit mit Innerer Kindheilung.
 
 2. **Innere Kindheilung - Achtsamkeitstraining - Coaching** à 50 min.
+
    Innere Kindheilung dient dazu, dass wir uns insgesamt mit uns verbundener und emotional stabiler wahrnehmen.
    Damit kann man leichter Ziele erreichen - und das mit Lebensfreude.
    Mit Achtsamkeit findet man passgenau, was man seelisch leben will und wo Grenzen überschritten werden. 
    Ein Leben mit unserem Inneren Kind macht mehr Spaß.    
 
-2. **Psychotherapeutische** Begleitung als Heilpraktikerin für Psychotherapie à 50 min.  
+3. **Psychotherapeutische** Begleitung als Heilpraktikerin für Psychotherapie à 50 min.  
+
    Haben sich psychologische Symptome bereits manifestiert? 
    Das können bspw. PTBS, Zwänge, Ängste, psychosomatische Beschwerden, Erschöpfung, Burnout, Depression oder verlängerte Trauer sein.  
    Schränken diese Symptome Ihre Lebensqualität ein?
