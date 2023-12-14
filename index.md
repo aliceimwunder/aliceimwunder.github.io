@@ -35,7 +35,7 @@ Grundlage meiner Sitzungen können bspw. kosmische Chirurgie, Energiearbeit, Rei
 
 
 #### Praxis für Traumatherapie (hp psych)
-Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer kann ich Sie mit meinen fundierten therapeutischen Wissen unterstützen.  
+Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer kann ich Sie mit meinem fundierten therapeutischen Wissen unterstützen.  
 
 - Innere Kindheilung
 - Ressourcenorientierte Kurzzeitherapie
