@@ -3,7 +3,9 @@ layout: page
 title: About
 permalink: /about/
 ---
+
 <img src="assets/images/blog-banner-herbst-wald.png" alt="" style="max-width:100%"/>
+
 
 Jeder Mensch bringt seine Weisheit, seine Kraft und seine Liebe mit ins Leben. 
 
