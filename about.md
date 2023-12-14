@@ -5,7 +5,7 @@ permalink: /about/
 ---
 <img src="assets/images/blog-banner-herbst-wald.png" alt="" style="max-width:100%"/>
 
-Jeder Mensch bringt seine Weisheit, seine Kraft und seine Liebe ins Leben mit. 
+Jeder Mensch bringt seine Weisheit, seine Kraft und seine Liebe mit ins Leben. 
 
 Belastende Erlebnisse oder zu wenig individuelle Entfaltungsmöglichkeiten können einen Menschen im Laufe seines Lebens aus seiner Mitte fallen lassen. 
 
