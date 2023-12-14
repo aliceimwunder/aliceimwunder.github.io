@@ -26,7 +26,7 @@ Eine psychotherapeutische Begleitung biete ich ebenfalls an.
 - Energieausgleich für die Energiesysteme des Körpers.
 - Harmonisieren des Geburtshoroskop.
 
-  Dazu verbinde ich oft meine energetische Arbeit mit Innerer Kindheilung.
+  Dazu *verbinde ich* oft meine energetische Arbeit mit Innerer Kindheilung.
 
 2. **Innere Kindheilung - Achtsamkeitstraining - Coaching** à 50 min.
 
