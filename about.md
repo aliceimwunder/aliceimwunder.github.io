@@ -54,9 +54,7 @@ Wenn Sie den Impuls haben, Ihre seelischen Essenz und Kraft zu nähren, dann sin
 
 Ein guter Startpunkt für eine gemeinsame therapeutische Arbeit ist, wenn Sie ärztlich abklären lassen, dass keine organischen Ursachen für Ihre Beschwerden vorliegen, v.a. bei psychosomatischen Symptomen.
 
-   ![Jaymaleh](/assets/about-Portrait2.jpg)
-
-
+   
 ## Wie bin ich dazu gekommen, Menschen ihre innere Stabilität und Kraft zu zeigen?
 In meinem "ersten" Leben war ich Verwaltungsjuristin. Ich wohnte mit meinem Mann und meiner Tochter in einer schicken Stadtwohnung in Berlin mit kleinem Garten. Ich war stellvertretende Leiterin eines 10-köpfigen Teams, bei dem es sogar weitere Karriereaussichten trotz Teilzeitmuttidasein gab. Privat: Nette Cafés, nette Urlaube. Harmonische Ehe, niedliche Tochter. **Was will der Mensch mehr?**
  
