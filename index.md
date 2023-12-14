@@ -21,7 +21,7 @@ Dann sind Sie hier richtig.
 - **Freitag, den 26.01.2024, 19:00 Uhr**, **Aurareinigung** mit heilsamen Klängen" - Thema: Lebensmut.
  **[Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)**
 
-  
+
 #### Spirituell mediale Heilsitzungen - Innere Kindheilung:
 Mit ich mit meiner Hellfühligkeit nehme ich den Schwingungszustand Deiner Energiekörper wahr. Ich arbeite dort, wo in Deinem Energiefeld die Schwingung erhöht werden will. 
 
@@ -48,7 +48,9 @@ Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerde
 
 (nur Selbstzahler, bitte ärztlich klären, dass keine organischen Ursachen für Ihre Symptome übersehen werden.)
 
-	
+Mehr über mich: <strong>Lerne <a href="/about/">mich kennen</a></strong>.
+
+ 
 <h4 id="Mein Blog: Auch Buddha ging ins Homeoffice">Mein Blog: Auch Buddha ging ins Homeoffice.</h4>
 
  <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Antworten, die im Alltag funktionieren: Aus dem Bereich Psychotherapie, Innere Kindheilung, Coaching und Spiritualität trage ich alles zusammen, was ich erfahren und/oder ausprobiert habe, um das Leben selbstbestimmt in Leichtigkeit und Freude - also mit dem Inneren Kind, mit unserer Seele - gestalten zu können. Von wissenschaftlich Interessantes über Naturheilkunde bis spirituell erweiternd binde ich zielgerichtet Heiltools in meine Arbeit als Traumatherapeutin, 			Heilpraktikerin für Psychotherapie, Coach und energetische Begleiterin ein und erzähle davon.
@@ -58,10 +60,6 @@ Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerde
 
 <p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Mein Info-Letter </a></strong> ist genau das: er informiert. Ich schicke ihn ca. ein bis alle zwei Monate, um Dich über meine aktuellen Termine und Blog-Veröffentlichungen zu informieren.</p>
 	
-- **Mein Blog:** "Auch Buddha ging ins Homeoffice" - mit ganzheitlichem Wissen um emotionale Stabilität, Energie und Kraft mit dem Inneren Kind: **<a href="/blog.html"> Selbsthilfetools für Zuhause </a>**
-- **Mein Newsletter:** <a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Info-Letter für meine aktuellen Termine </a>
-- **mit meiner persönlichen Begleitung** auf Deinem Weg aus der Krise? <strong>Lerne <a href="/about/">mich kennen</a></strong>.
-
 <h4>Ein Feedback zu meiner Inneren Kindheilung - Coaching, von Maria W. aus Liechtenstein: </h4>
 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
