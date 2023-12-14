@@ -18,12 +18,12 @@ Sie haben den Impuls, sich Ihrer seelischen Essenz, Ihrer seelischen Kraft auf s
    Sie dienen dazu, dass sich energetische Blockaden lösen und Sie Ihre seelische Essenz intensiver leben können.
    Ich bin hellfühlig und kann Ihr Energiesystem wahrnehmen.
    In einer spirituellen Heilsitzung arbeite ich auf Ihre individuelle Bedürfnisse ausgerichtet, bspw. mit
-- Kosmische Chirurgie.
+- Kosmischer Chirurgie.
 - Akasha-Chronik lesen.
 - Inkarnationsreisen.
 - Aurareinigung, Entfernen von Symbolen aus der Aura.
-- Energieausgleich für die Energiesysteme des Körpers (Meridiane, Nadis etc.).
-- Ausgleich des Geburtshoroskop.
+- Energieausgleich für die Energiesysteme des Körpers.
+- Harmonisieren des Geburtshoroskop.
 
   Dazu verbinde ich oft meine energetische Arbeit mit Innerer Kindheilung.
 
