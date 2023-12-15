@@ -16,6 +16,7 @@ Dabei reinige ich tiefgreifend die Aura und nutze Quantenheilung, um neue Impuls
 
 ## Ort der geleiteten Meditation 
 Per **zoom**, gemütlich auf Ihrem Sofa, oder jedem anderen Ort, an dem Sie zur Ruhe kommen können. 
+
 Bei ausreichendem Interesse auch vor Ort **im Aquariana**, Praxis- und Seminarzentrum, Tempelhofer Berg 7d, 10965 Berlin. 
 
 
