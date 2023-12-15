@@ -8,9 +8,9 @@ title: Offene Aura-Reinigung - Gruppenmeditation
 ![Licht am Horizont](/assets/2023-02-10-Licht am Horizont.jpg)
 
 ## Meditationsreisen - Aurareinigung - Innere Kindheilung
-Können Sie einen **Frischekick für Ihren Alltag** gebrauchen? Sie würden gerne mehr in Ihrer Mitte sein? Fühlen Sie sich manchmal erschöpft, überfordert oder blockiert?  
+Können Sie einen **Frischekick für Ihren Alltag** gebrauchen? Sie würden gerne mehr in Ihrer Mitte sein? Fühlen Sie sich manchmal erschöpft, überfordert oder blockiert? **Gelassenheit** bei den kleineren und größen Stürmen Ihres Lebens soll nicht nur ein ferner Traum sein?
 
-Die **Übersicht behalten**, geerdet aus dem eigenen Sein handeln, kann leichter gesagt als getan sein. **Gelassenheit** bei den kleineren und größen Stürmen Ihres Lebens soll nicht nur ein ferner Traum sein. Die geführte Meditation mit Aurareinigung und heilsamen Klängen kann Sie Ihre Essenz wieder wahrnehmen lassen. Und ein wichtiger Effekt ist auch, schneller im Wochenende anzukommen, wenn die Woche von Montag bis Freitag gut vollgepackt war. 
+Die geführte Meditation mit Aurareinigung und heilsamen Klängen kann Sie Ihre Essenz wieder wahrnehmen lassen. Dazu kommt, dass Sie schneller im Wochenende ankommen und einen tieferen Erholungseffekt aus Ihrem Wochenende mitnehmen, wenn die Woche von Montag bis Freitag vollgepackt war. 
 
 Dabei reinige ich tiefgreifend die Aura und nutze Quantenheilung, um neue Impulse zu integrieren. Eine leichte Trance entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung angewandt werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Dadurch ist die Aurareinigung auch traumasensibel. 
 
@@ -35,18 +35,14 @@ Wenn Sie gerne tiefergehende Infos zu den einzelnen Themen haben wollen, können
 - Freitag, den 31.05.2024, 19:00 Uhr, Thema: Lebensfreude und 5. Dimension. 
 
 
-
 Sie wollen noch etwas über mich dazu wissen? [Infos finden Sie hier](/about/). 
-
-## Angesprochen?
-Jeder, der Interesse hat, sich einmal tief zu reinigen und klarer auf ein positives Thema einzulassen, kann mitmachen. Interesse an Energiearbeit einmal vorausgesetzt. 
 
 Die **Abende dauern gut 1,5h bis max. 2h** mit Ankommen im Gruppenraum, die eigentliche Energiearbeit und gemeinsames Ausklingen. Wunderschön ist es, wenn Sie die Möglichkeit haben, im Anschluss noch ein bisschen die Sitzung nachklingen und reflektieren zu lassen. Ganz wie Sie es einrichten können.  
 
 ## Ablauf
-Jeder kann sich von mir in eine leichte Trance führen lassen. Ich gehe mit der Gruppe **einzelne Auraschichten** durch, die gereinigt, aufgeladen und ausgerichtet werden. Auch festsitzende Energien auf körperlicher Ebene werden gereinigt. Ich richte mich immer vollständig danach, was in die Gruppe eingebracht wird. Die Themen, mit denen Sie sich gerade im Leben beschäftigen, erzeugen Schwingungszustände, die in die Gruppe mit einfließen. Dadurch kann jeder eine individuelle Reinigung bekommen, ohne persönliche Details über sich preiszugeben.  
+Jeder kann sich von mir in eine leichte Trance führen lassen. Ich gehe mit der Gruppe **einzelne Auraschichten** durch, die gereinigt, aufgeladen und ausgerichtet werden. Auch festsitzende Energien auf körperlicher Ebene werden gereinigt. 
 
-Zur Zeit erscheinen mir oft folgende vier Schichten besonders hilfreich zu reinigen - angelehnt an die Vorgehensweise von Pavlina Klemm: 
+Zur Zeit nutze ich oft folgende vier Schichten der Aura, um gute Eregnisse zu erzielen - angelehnt an die Vorgehensweise von Pavlina Klemm: 
 1. Die physische Zellschicht, 
 2. der Emotionalkörper, 
 3. der Mentalkörper und 
@@ -70,11 +66,9 @@ Wenn man sich auf ein positives Ergebnis ausrichtet, melden sich die spezifische
 
 Sie können darauf vertrauen, dass Ihr Energiekörper Ihre Hindernisse für Ihre ganz persönlichen Ziele in dem jeweils angesprochenen Themenbereich in das Gruppenfeld mit einfließen lässt. Alles ist mit allem verbunden. 
 
-Drückt Sie ein persönliches Thema? Dann empfehle ich Ihnen, für eine ganz individuell ausgerichtete Aurareinigung [einen Einzeltermin](/2021/03/19/Einzelsitzungen.html) zu buchen.
-
 Wollen Sie mehr über die jeweiligen Themen der Abende wissen? Dann melde Sie sich hier für meinen Newsletter an: Dort schreibe ich ausführlicher über die einzelnen Themen.  
 
-**Weitere Informationen auf meinem Newsletter**: 
+**Weitere Informationen auf meinem Info-Letter**: 
 <span style='display:inline-block;padding:18px;background:#ececec'>
 [Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 </span>
@@ -89,4 +83,17 @@ Anmeldung per Email: info@alicewindolf.de
 Sie erhalten **eine Aufnahme der Mediation** per Link zum Runterladen. 
 
 Buchen Sie sich drei Abende und vertiefen damit die Wirkung jedes Mal, können Sie einen Rabatt mitnehmen. Bei Buchung von drei Abenden: 25,-€/Abend. 
+---
+
+
+### Drückt Sie ein persönliches Thema? 
+Dann empfehle ich Ihnen, für eine ganz individuell ausgerichtete Aurareinigung [einen Einzeltermin](/2021/03/19/Einzelsitzungen.html) zu buchen. 
+
+Kosten 
+Einzelsitzung: 99,- €
+Ab drei Sitzungen: 80,-/Sitzung.
+
+Dann richtet sich der Heilraum ganz auf Sie aus. 
+
+Die intensivsten Ergebnisse haben Klient:innen bisher zusammen mit Innerer Kindheilung in ihrem persönliches Wachstum erreichen können. 
 
