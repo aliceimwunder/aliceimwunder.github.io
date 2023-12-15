@@ -44,7 +44,7 @@ Die **Abende dauern gut 1,5h bis max. 2h** mit Ankommen im Gruppenraum, die eige
 Jeder kann sich von mir in eine leichte Trance führen lassen. Ich gehe mit der Gruppe **einzelne Auraschichten** durch, die gereinigt, aufgeladen und ausgerichtet werden. Auch festsitzende Energien auf körperlicher Ebene werden gereinigt. 
 
 Zur Zeit nutze ich oft folgende vier Schichten der Aura, um gute Eregnisse zu erzielen - angelehnt an die Vorgehensweise von Pavlina Klemm: 
-1. Die physische Zellschicht, 
+1. Die Frequenz im Körperwesen, 
 2. der Emotionalkörper, 
 3. der Mentalkörper und 
 4. der Kausalkörper 
