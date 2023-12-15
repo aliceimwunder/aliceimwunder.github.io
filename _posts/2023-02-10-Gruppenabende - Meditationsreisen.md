@@ -3,37 +3,36 @@ title: Offene Aura-Reinigung - Gruppenmeditation
 ---
 
 **Nächster Termin:**  
-- Freitag, den **20.10.2023, 19:00 Uhr auf zoom**. Thema: Selbstliebe, Selbstmitgefühl. Anmeldung per Email an: info@alicewindolf.de
+- Freitag, den **26.01.2023, 19:00 Uhr auf zoom**. Thema: **Mut zum Leben**. Anmeldung per Email an: info@alicewindolf.de
 
 ![Licht am Horizont](/assets/2023-02-10-Licht am Horizont.jpg)
 
 ## Meditationsreisen - Aurareinigung - Innere Kindheilung
-Können Sie einen **Frischekick für Ihren Alltag** gebrauchen? Sie würden gerne mehr in Ihrer Mitte sein? Ist zu viel von anderen/Gesellschaft/Beruf in Ihrem Leben vorgegeben, zu wenig Sie selbst in Ihrem eigenen Leben? Fühlen Sie sich manchmal erschöpft, überfordert oder blockiert?  
+Können Sie einen **Frischekick für Ihren Alltag** gebrauchen? Sie würden gerne mehr in Ihrer Mitte sein? Fühlen Sie sich manchmal erschöpft, überfordert oder blockiert?  
 
-Dann geht es Ihnen vielleicht wie vielen anderen. Die **Übersicht behalten**, geerdet aus dem eigenen Sein handeln, kann leichter gesagt als getan sein. **Gelassenheit** bei den kleineren und größen Stürmen Ihres Lebens: **Wäre das ein wunderbarer Zustand**? Und vor allem schneller im Wochenende ankommen, wenn die Woche von Montag bis Freitag gut vollgepackt war? 
-
-Dann lassen Sie sich auf mehr Gelassenheit ein. Diese Gruppe ist genau darauf ausgerichtet: **Eine intensive Meditationsreise**, die Sie schnell zu Ihrer Mitte zurückbringt. 
+Die **Übersicht behalten**, geerdet aus dem eigenen Sein handeln, kann leichter gesagt als getan sein. **Gelassenheit** bei den kleineren und größen Stürmen Ihres Lebens soll nicht nur ein ferner Traum sein. Die geführte Meditation mit Aurareinigung und heilsamen Klängen kann Sie Ihre Essenz wieder wahrnehmen lassen. Und ein wichtiger Effekt ist auch, schneller im Wochenende anzukommen, wenn die Woche von Montag bis Freitag gut vollgepackt war. 
 
 Dabei reinige ich tiefgreifend die Aura und nutze Quantenheilung, um neue Impulse zu integrieren. Eine leichte Trance entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung angewandt werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Dadurch ist die Aurareinigung auch traumasensibel. 
 
 ## Ort der geleiteten Meditation 
-Meist finden diese reinigenden Meditationsreisen **auf zoom** statt. Daher können Sie es sich dabei **auf Ihrem Sofa gemütlich machen**, oder jedem anderen Ort, an dem Sie zur Ruhe kommen können. Einfach meiner Stimme in eine leichte Trance folgen. So können Sich sich vom Stress des Alltags auf leichte Weise reinigen und sich auf Ihre persönlichen Ziele in sanfter Art und Weise ausrichten. 
+Per **zoom**, gemütlich auf Ihrem Sofa, oder jedem anderen Ort, an dem Sie zur Ruhe kommen können. 
+Bei ausreichendem Interesse auch vor Ort **im Aquariana**, Praxis- und Seminarzentrum, Tempelhofer Berg 7d, 10965 Berlin. 
 
-Sie benötigen einen *Internetanschluss und ein dazu passendes Gerät*, mit dem Sie auf Zoom mitmachen können. Natürlich funktioniert die Meditation auch ohne Bild. Zoom bietet die Möglichkeit, sich per Telefon einzuwählen, wenn ein privater Internetanschluss nicht vorhanden ist. (Zoom benötigt ca. 1GB Datenrate/Stunde, ansonsten handelt es sich bei der von zoom bereitgestellten Telefonnummer um eine Festnetznummer.) 
 
 ## Starten Sie geerdet in Ihr Wochenende mit dieser Gruppenmeditation. 
 
-Anmeldung: Schreiben Sie mir **einfach eine Email: info@alicewindolf.de**, dass Sie dabei sein wollen. Weitergehende Infos zu den einzelnen Themen der Abende teile ich auf meinem Newsletter mit Dir.  
+Anmeldung: Schreiben Sie mir **einfach eine Email: info@alicewindolf.de**, dass Sie dabei sein wollen. 
 
-Weitere Informationen auf meinem Newsletter: 
+Wenn Sie gerne tiefergehende Infos zu den einzelnen Themen haben wollen, können Sie sich zu meinem Info-Letter anmelden:  
 <span style='display:inline-block;padding:18px;background:#ececec'>
 **[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 </span>
 
-**Termine 2023 per zoom:**
-- Freitag, den 20.10.2023, 19:00 Uhr, Thema: Heile Dich mit Selbstliebe, verbinde Dich mit Deinem Selbstmitgefühl.
-- Freitag, den 24.11.2023, 19:00 Uhr, Thema: Innerer Frieden - Friedlich in die Weihnachtszeit. 
-- Freitag, den 26.1.2024, 19:00 Uhr, Thema: Innere Kraft - Du hast mehr seelische Power, als Du Dir vorstellen kannst.
+**Termine 2024 per zoom:**
+- Freitag, den 26.01.2024, 19:00 Uhr, Thema: Lebensmut - Was braucht es, um Deine Träume wahr werden zu lassen? Einfach nur Mut.
+- Freitag, den 23.02.2024, 19:00 Uhr, Thema: Dein Fokus - Worauf Du Deinen Fokus richtest, kann sich manifestieren. 
+- Freitag, den 26.04.2024, 19:00 Uhr, Thema: Das Sanfte darf Raum haben.
+- Freitag, den 31.05.2024, 19:00 Uhr, Thema: Lebensfreude und 5. Dimension. 
 
 
 
@@ -45,7 +44,7 @@ Jeder, der Interesse hat, sich einmal tief zu reinigen und klarer auf ein positi
 Die **Abende dauern gut 1,5h bis max. 2h** mit Ankommen im Gruppenraum, die eigentliche Energiearbeit und gemeinsames Ausklingen. Wunderschön ist es, wenn Sie die Möglichkeit haben, im Anschluss noch ein bisschen die Sitzung nachklingen und reflektieren zu lassen. Ganz wie Sie es einrichten können.  
 
 ## Ablauf
-Jeder kann sich von mir in eine leichte Trance führen lassen. Ich gehe mit der Gruppe **einzelne Auraschichten** durch, die gereinigt, aufgeladen und ausgerichtet werden. Auch Chakren oder festsitzende Energien in Körperteilen können gereinigt werden. Ich richte mich immer vollständig danach, was in die Gruppe eingebracht wird. Die Themen, mit denen man sich gerade im Leben beschäftigt, hinterlassen Spuren im Energiekörper. Verbinden sich die Energien zu einer Gruppe, so zeigt sich das, was für alle Teilnehmer in dem Moment relevant ist, zu harmonisieren.   
+Jeder kann sich von mir in eine leichte Trance führen lassen. Ich gehe mit der Gruppe **einzelne Auraschichten** durch, die gereinigt, aufgeladen und ausgerichtet werden. Auch festsitzende Energien auf körperlicher Ebene werden gereinigt. Ich richte mich immer vollständig danach, was in die Gruppe eingebracht wird. Die Themen, mit denen Sie sich gerade im Leben beschäftigen, erzeugen Schwingungszustände, die in die Gruppe mit einfließen. Dadurch kann jeder eine individuelle Reinigung bekommen, ohne persönliche Details über sich preiszugeben.  
 
 Zur Zeit erscheinen mir oft folgende vier Schichten besonders hilfreich zu reinigen - angelehnt an die Vorgehensweise von Pavlina Klemm: 
 1. Die physische Zellschicht, 
@@ -53,12 +52,10 @@ Zur Zeit erscheinen mir oft folgende vier Schichten besonders hilfreich zu reini
 3. der Mentalkörper und 
 4. der Kausalkörper 
 
-Dazu können einzelne Chakren kommen. Nicht nur körperinnere Chakren, auch die höheren melden sich manchmal, damit wir uns mehr auf die Impulse von dort einlassen können (z.B.: 9. Chakra: der eigene Lebensplan, 10. Chakra: die Essenz, die wir seelisch sind, 11. Chakra: die Weisheit aus allen Leben.) Körperlich meldet sich oft die Magenregion, weil dort Stress besonders deutlich zu spüren ist. Hinzu kommen meist Bilder, wie sie in der Inneren Kindheilung oft hilfreich sind, um heilsame Bilder in sich zu erzeugen. 
-
 Ahnen- und andere Fremdeinflüsse, die nicht (mehr) hilfreich sind, dürfen sich sanft in Ihrem Tempo verabschieden, sodass die Reinigung nicht destabilisierend wirkt. Dadurch können Sie **Ihre eigenen Impulse/Ihr Bauchgefühl** deutlicher wahrnehmen, gelassener bleiben und sich besser im Alltag fokussieren.  
 
 ## Ein positives Thema für jeden Gruppenabend
-Wenn ich arbeite, dann immer auf etwas positives ausgerichtet. Ich mache nicht einfach etwas "weg". Das funktioniert im Zweifel nicht. Für die Gruppe nehme ich ein **übergeordnetes Thema**, mit dem sich viele identifizieren können. Themen, die im Grunde für ein gelungenes Leben allgemein als wichtig empfunden werden. Z.B. 
+Wenn ich arbeite, dann mache ich nicht einfach etwas weg. Themen können bspw. sein: 
 - Selbstliebe 
 - Geldfluss 
 - Lebensmut
@@ -69,11 +66,11 @@ Wenn ich arbeite, dann immer auf etwas positives ausgerichtet. Ich mache nicht e
 
 etc.  
 
-Wenn man sich auf ein positives Ergebnis ausrichtet, melden sich die spezifischen **Blockaden**  ohnehin. Sie sind aber **nicht zugleich im Mittelpunkt**. Das ist wichtig (sonst manifestiert man nachher nur noch mehr von dem, was man nicht will bzw. man rührt in Problemen herum, die zwar da sind, aber Sie eigentlich an Ihrem konkreten Ziel nicht hindern würden, sondern Ihnen nur Ihren Fokus wegnehmen. Beides nicht sinnvoll!) 
+Wenn man sich auf ein positives Ergebnis ausrichtet, melden sich die spezifischen **Blockaden**  ohnehin. Sie sind aber **nicht zugleich im Mittelpunkt**. Das ist wichtig. Sonst manifestiert man vielleicht mehr von dem, was man nicht will. Oder man rührt in Problemen herum, die zwar irgendwo sind, aber Sie eigentlich an Ihrem jetzigen konkreten Ziel nicht hindern würden. Beides nicht sinnvoll!) 
 
-Energetische Blockaden sind häufig unpassende Schwingungen, entstanden **aus eigenen Traumatisierungen, Verletzungen in der Ahnenreihe** in Form von transgenerationelle Traumatierungen, oder kollektive Felder **aus geselllschaftlichen Normen**, wie man zu sein hat oder gefälligst nicht sein soll.
+Sie können darauf vertrauen, dass Ihr Energiekörper Ihre Hindernisse für Ihre ganz persönlichen Ziele in dem jeweils angesprochenen Themenbereich in das Gruppenfeld mit einfließen lässt. Alles ist mit allem verbunden. 
 
-Sie können darauf vertrauen, dass Ihr Energiekörper Ihre Hindernisse für Ihre ganz persönlichen Ziele in dem jeweils angesprochenen Themenbereich in das Gruppenfeld mit einfließen lässt. Alles ist mit allem verbunden. (Dennoch: ganz individuell kann ich Ihr Thema innerhalb der einer Gruppe nicht bearbeiten. Für Ihr konkretes Thema buchen Sie bitte [einen Einzeltermin](/2021/03/19/Einzelsitzungen.html).)
+Drückt Sie ein persönliches Thema? Dann empfehle ich Ihnen, für eine ganz individuell ausgerichtete Aurareinigung [einen Einzeltermin](/2021/03/19/Einzelsitzungen.html) zu buchen.
 
 Wollen Sie mehr über die jeweiligen Themen der Abende wissen? Dann melde Sie sich hier für meinen Newsletter an: Dort schreibe ich ausführlicher über die einzelnen Themen.  
 
@@ -84,8 +81,6 @@ Wollen Sie mehr über die jeweiligen Themen der Abende wissen? Dann melde Sie si
 
 ## Energieaustausch
 Für einen Abend: 30,- €
-
-Für drei Abende: 75,- €.
 
 Dauer des Abends: ca. 1,5h-2h. 
 
