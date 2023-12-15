@@ -3,14 +3,14 @@ title: Wheel of Awareness
 ---
 ### Nächste Termine  
 
-Letzter Termin in 2023: Freitag, den **15.12.,** 
-
 Termine in 2024: **9.2., 15.3., 19.4., 17.5., 14.6.**
 
 immer freitags, 18:30 - 19:30 Uhr: im Aquariana-Berlin Kreuzberg, zeitgleich **online (zoom)**
 
 
-Kostenfrei für Newsletter-AbonnentInnen: **[Newsletter-Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
+Meinen Info-Letter-Abonnent:innen: **[Newsletter-Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html)** entstehen keine weiteren Kosten. 
+
+Auch ohne Anmeldung sind Sie willkommen. Ich würde nur um eine kleine Spende für die Raummiete bitten. 
 
 
 ![Mindfulness](/assets/2023-04-14-mindfulness.jpg)
