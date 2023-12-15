@@ -25,7 +25,7 @@ Das Wheel of awareness ist eine Meditationsform, die von Dr. Dan Siegel entwicke
 - Das Gehirn vernetzt sich nachweislich intensiver.
 - Traumasensibel! Das Wheel of Awareness ist eine Form der Selbstfürsorge, die extra entwickelt wurde, damit auch trauma-belasteten Menschen die Vorteile einer Meditation erfahren können, ohne retraumatisiert zu werden.  
 - Stressresistenz, Grundzufriedenheit mit dem Leben, innere Ruhe.
-- Die Heilung von Stressfolgeerkrankungenen (nach WHO mittlerweile Ursache für 90% aller Arztbesuche) beschleunigt sich. 
+- Die Heilung von Stressfolgeerkrankungenen (nach WHO mittlerweile Ursache für 90% aller Arztbesuche) kann unterstützt werden. 
 - Selbst Anfänger meditieren wie ein tibetischer Mönch! (ohne irgendwie religiös sein zu müssen.) 
   
 ### Neurobiologisch fundiert
