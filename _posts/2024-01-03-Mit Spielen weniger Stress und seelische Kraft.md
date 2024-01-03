@@ -1,7 +1,6 @@
-
--
+---
 title: Mit Spielen kannst Du Dir Deine seelische Kraft und Lebensfreude zurückholen, Teil 1
--
+---
 
 Fühlst Du Dich die meiste Zeit gestresst und wirst leicht müde? Dann will ich Dir in einer kleinen Mini-Serie ein paar Tipps für mehr seelische Kraft geben. 
 
