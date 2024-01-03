@@ -1,13 +1,17 @@
 ---
 title: Mit Spielen kannst Du Dir Deine seelische Kraft und Lebensfreude zurückholen, Teil 1
 ---
+![Mit Spielen zu mehr seelischer Kraft](/assets/2024-01-03-Weniger Stress mit Spielen.jpg)
+
+Foto von <a href="https://unsplash.com/de/@element5digital?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Element5 Digital</a> auf <a href="https://unsplash.com/de/fotos/rote-apfelfrucht-auf-vier-pyle-buchern-OyCl7Y4y0Bk?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
 
 Fühlst Du Dich die meiste Zeit gestresst und wirst leicht müde? Dann will ich Dir in einer kleinen Mini-Serie ein paar Tipps für mehr seelische Kraft geben. 
 
 Für Erschöpfung, Müdigkeit und Stressgefühle gibt es verschiedene Ursachen. (Im Zweifel sollte man sich auch ärztlich durchchecken lassen, damit keine körperliche Ursache übersehen wird). 
 
+
 ## Häufige Ursache für chronischen Stress: Die innere Einstellung
-Eine sehr häufige für Stressgefühle und Erschöpfung ist unsere innere Einstellung: zuerst Arbeit Arbeit Arbeit, und dann, wenn wir noch Energie haben, gönnen wir uns etwas Freizeit - wobei Freizeit oft “im Smartphone versinken” oder “auf Netflix binge watchen" bedeutet. 
+Eine sehr häufige Ursache für Stressgefühle und Erschöpfung ist unsere innere Einstellung: zuerst Arbeit Arbeit Arbeit, und dann, wenn wir noch Energie haben, gönnen wir uns etwas Freizeit - wobei Freizeit oft “im Smartphone versinken” oder “auf Netflix binge watchen" bedeutet. 
 
 So schön, wie es auch mal ist, ein Wochenende mit der Lieblingsserie zu verbringen. Es ist keine dauerhafte Lösung für Stress und Erschöpfung. Mittlerweile verbringt der durchschnittliche Erwachsene 2,5h/Tag mit seinem Handy. In dieser Menge ist das Smartphone kaum erholsam, es ist eher ein seelisch sich wegmachen, weil einem die reale Welt zu stressig ist.
 
@@ -64,6 +68,8 @@ Der erste Schritt besteht darin, unsere gewohnheitsmäßigen Überzeugungen dar�
 Der zweite Schritt besteht darin, Verspieltheit in jede soziale Situation zu bringen, vor allem bei der Arbeit und mit Familienmitgliedern.  
 
 Den ersten Schritt gehst Du mit Deiner Achtsamkeit, den zweiten mit Umsetzen, was Dir Spaß macht. 
+
+![Im Laub spielen](/assets/2024-01-03-im Laub spielen.jpg)
 
 ### Wie das funktioniert? 
 
