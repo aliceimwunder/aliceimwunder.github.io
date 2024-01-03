@@ -111,3 +111,9 @@ Dazu melde Dich einfach bei mir und wir schauen zusammen nach Terminen.
 info@alicewindolf.de
 
 Ganz wichtig: Hab Spaß mit den Übungen, lass Freude in Dein Leben einfließen. 
+
+![bemaltes Kind](/assets/2024-01-03-bemaltes Kind.jpg)
+
+Foto von <a href="https://unsplash.com/de/@senjuti?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Senjuti Kundu</a> auf <a href="https://unsplash.com/de/fotos/madchen-mit-korperfarbe-JfolIjRnveY?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
+
+  
