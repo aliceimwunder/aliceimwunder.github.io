@@ -35,17 +35,17 @@ Doch die Art und Weise, wie unser Bildungssystem und danach unsere sozialen und 
 ## Sich aus von den verinnerlichten Zwängen der Schulzeit befreien
 Das Schulsystem verlangt, dass sich Kinder auf das konzentrieren, was im Lehrplan angelegt ist, nicht auf das, wohin die natürliche Neugier Kinder tragen würde. Lehrer müssen Tagträumen und kreatives gedankliches Wandern unterbinden, damit sie den vorgegebenen Lehrstoff im Unterricht unterbringen können. 
 
-Neugier, Tagträume und kreative Gedankenläufe sind aber der Weg des Gehirns, um uns zu attraktiven Zielen zu führen. Simples Beispiel: Würde ein Kind Segeln lernen wollen und bräuchte dafür Knotenkunde und gewisse mathematische Kenntnisse für die Navigation, würde es das alles im Flug und mit Feuereifer lernen. 
+**Neugier**, Tagträume und kreative Gedankenläufe sind aber der Weg des Gehirns, um uns zu attraktiven Zielen zu führen. Simples Beispiel: Würde ein Kind Segeln lernen wollen und bräuchte dafür Knotenkunde und gewisse mathematische Kenntnisse für die Navigation, würde es das alles im Flug und mit Feuereifer lernen. 
 Solange würden jedoch Themen wie Pronomen oder Ableitungen hinten überfallen. Vielleicht käme das später in den Fokus, vielleicht auch nie. 
 
-Lernen und Arbeiten anhand unserer inneren Impulse kommt weder in der Arbeitswelt noch im Schulsystem vor. Hier soll man methodisch nach vorgegebenen Schritten lernen und arbeiten. Schön kontrolliert und angepasst. Lebensfreude? Neugier? Ja bitte, aber nur im Rahmen des Lehrplanes.
+Lernen und Arbeiten anhand unserer inneren Impulse kommt weder in der Arbeitswelt noch im Schulsystem vor. Hier soll man **methodisch** nach vorgegebenen Schritten lernen und arbeiten. Schön kontrolliert und angepasst. Lebensfreude? Neugier? Ja bitte, aber nur im Rahmen des Lehrplanes. Das funktioniert für viele nicht. 
 
 Deswegen bleibt bei vielen von uns im Erwachsenenalter genau der Teil im Gehirn unterentwickelt, der Zugang zu Energie und Lebensfreude gestaltet. Damit kann das Salience-Network (Motviations-Netzwerk) nicht ausreichend aktiviert werden und uns ausreichend emotional ausgleichen. Sich gestresst und erschöpft fühlen ist dann leider die Folge. Soweit aus neurophysiologischer Sicht betrachtet. 
 
 Auf spiritueller Ebene führt das dazu, dass Du Deine seelische Energie weniger intensiv wahrnimmst, weil Dein Gehirn zu wenig trainiert wurde, genau die inneren Impulse wahrzunehmen und als bemerkenswert einzustufen, denen man mit Neugier und Freude folgen würde. 
 
 ## Das Schöne: Das Gehirn lässt sich jederzeit nachtrainieren
-Wenn wir wieder neugierig auf die Dinge werden, die unsere Aufmerksamkeit erwecken, schüttet unser Salience-Netzwerk Dopamin aus. Wir fühlen uns sofort wohler und belebter. 
+Wenn wir wieder neugierig auf die Dinge werden, die unsere Aufmerksamkeit erwecken, schüttet unser Salience-Netzwerk **Dopamin** aus. Wir fühlen uns sofort wohler und belebter. 
 
 Das ausgeschüttete Dopamin aktiviert das Imagination-Netzwerk (auch default-network) im Gehirn, das dafür zuständig ist, um verschiedene Möglichkeiten in träumerischer Weise zu erfassen, sodass wir unser Leben mit Vergnügen und Zufriedenheit anfüllen. 
 
@@ -70,6 +70,9 @@ Der zweite Schritt besteht darin, Verspieltheit in jede soziale Situation zu bri
 Den ersten Schritt gehst Du mit Deiner Achtsamkeit, den zweiten mit Umsetzen, was Dir Spaß macht. 
 
 ![Im Laub spielen](/assets/2024-01-03-im Laub spielen.jpg)
+
+Foto von <a href="https://unsplash.com/de/@scottwebb?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Scott Webb</a> auf <a href="https://unsplash.com/de/fotos/kind-spielt-mit-getrockneten-blattern-obKbq4Z3cuA?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
+  
 
 ### Wie das funktioniert? 
 
@@ -99,14 +102,14 @@ Noch ein Tipp: Wenn Du die Übung auch im Arbeitskontext fortsetzen willst (sowe
 Überlege, wie Du in Deinem Alltag mehr spielerische Aktivitäten einbauen kannst. 
 Spiele bewusst täglich an 7 Tagen mind. 15 Minuten (besser mehr) und überlege, wie Du davon regelmäßig etwas in Deinen Alltag einbauen kannst. Es ist hilfreich, Dein Handy nicht für diese Challenge zu nutzen (keine Handyspiele!).
 
-Bei dieser Challenge geht es weniger um ein konkretes Ziel, wie Speck weg in 10 Tagen oder eine Lego-Stadt in 3 Tagen bauen, als um das Tun. 
+Bei dieser Challenge geht es weniger um ein konkretes Ziel, wie Speck weg in 10 Tagen oder eine Lego-Stadt in 3 Tagen bauen, als um **das Tun**. 
 Kartenspielen mit Kindern, alte Dick und Doof Folgen schauen, in ein Trampolin-Zentrum fahren, sich zum LineDance-Kurs anmelden, was auch immer Du lustig findest. 
 
 Ganz wichtig ist, dabei nicht in einen Wettbewerb-Modus zu fallen. Dadurch würde die Stimmung von spielerisch in kämpferisch und hart umschlagen. 
 
 Dabei kann Dir niemand sagen, was der Inhalt des Spiels/der Challenge ist, das legst Du für jeden Tag selbst fest. Stellst Du fest, dass eine vorgestellte Aktivität keinen Spaß macht, streichst Du sie von Deiner Liste und gratulierst Dir, etwas Neues ausprobiert zu haben. 
 
-Kommt Dein innerer Kritiker vor, so hab ihn einfach auch lieb. Er will Dich nur vor etwas schützen und ist nicht gegen Dich. 
+Kommt Dein innerer Kritiker vor, so hab ihn einfach auch lieb. Er will Dich nur vor etwas **schützen und ist nicht gegen Dich**. 
 
 Am Ende eine kleine Auswertung: Was hat Dir Spaß gemacht? Worauf hast Du keine Lust mehr? Was lässt sich im Alltag integrieren. 
 
