@@ -4,7 +4,7 @@ title: Mit Spielen kannst Du Dir Deine seelische Kraft und Lebensfreude zurückh
 
 Fühlst Du Dich die meiste Zeit gestresst und wirst leicht müde? Dann will ich Dir in einer kleinen Mini-Serie ein paar Tipps für mehr seelische Kraft geben. 
 
-Für Erschöpfung, Müdigkeit und Stressgefühle gibt es verschiedene Ursachen. (Im Zweifel sollte man sich auch ärztlich medizinisch durchchecken lassen, damit keine körperliche Ursache übersehen wird). 
+Für Erschöpfung, Müdigkeit und Stressgefühle gibt es verschiedene Ursachen. (Im Zweifel sollte man sich auch ärztlich durchchecken lassen, damit keine körperliche Ursache übersehen wird). 
 
 ## Häufige Ursache für chronischen Stress: Die innere Einstellung
 Eine sehr häufige für Stressgefühle und Erschöpfung ist unsere innere Einstellung: zuerst Arbeit Arbeit Arbeit, und dann, wenn wir noch Energie haben, gönnen wir uns etwas Freizeit - wobei Freizeit oft “im Smartphone versinken” oder “auf Netflix binge watchen" bedeutet. 
