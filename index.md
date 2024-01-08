@@ -47,7 +47,7 @@ Meine spirituellen Heilsitzungen enthalten keine medizinsche Heilkunde und diene
 ### Innere Kindheilung - Coaching - Einzelaufstellungen
 **Innere Kindheilung** kann Sie unterstützen, sich Ziele zu setzen, die Ihnen seelisch entsprechen. Ziele, die ihnen ein tiefes Gefühl von Sinnhaftigkeit vermitteln und Sie mit Lebensfreude erfüllen können.  
 
-Unser moderner Alltag ist manchmal unübersichtlich, macht uns ratlos und kann uns sogar überfordern. Mit einer **Einzelaufstellung** bringen Sie schnell Klarheit in Ihre Gedanken. Das ist schon der erste Schritt zu einer guten Stressbewältigung und den Alltag mit mehr Kraft zu bewältigen.       
+In unserem moderner Alltag verlieren wir manchmal die Übersicht und kan uns dann überfordern. Mit einer **Einzelaufstellung** bringen Sie schnell Klarheit in Ihre Gedanken. Das ist schon der erste Schritt, den Alltag wieder mit mehr Kraft zu bewältigen.       
 
 ### Praxis für Traumatherapie (hp psych)
 Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer unterstütze ich Sie gerne mit meinem therapeutischen Wissen längerfristig.  
