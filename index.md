@@ -21,13 +21,10 @@ Dann sind Sie hier richtig.
 
 
 ### Nächste Termine
-- **Freitag, den 26.01.2024, 19:00 Uhr**, **Aurareinigung** mit heilsamen Klängen" - Thema: Lebensmut.
+- **Freitag, den 26.01.2024, 19:00 Uhr**, **[Aurareinigung] [Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)** mit heilsamen Klängen" - Thema: Lebensmut. 
 - **Freitag, den 09.02.2024, 18:30 Uhr. Wheel of Awareness:** [Ein Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 
-  [Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)
-
-
-![Jaymaleh](/assets/about-Portrait2.jpg)
+ Jaymaleh](/assets/about-Portrait2.jpg)
 
 Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
 
