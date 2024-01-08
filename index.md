@@ -11,7 +11,7 @@ layout: default
 
 
 ### Praxis für Traumatherapie und spirituelles Coaching 
-Sie wollen mehr Ihre eigene seelische Kraft spüren und leben? 
+Sie wollen mehr Ihre eigene **seelische Kraft** spüren und leben? 
 
 Haben Sie den Impuls, sich auf spiritueller Ebene bei Ihren Themen unterstützen zu lassen? 
 
