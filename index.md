@@ -45,7 +45,7 @@ Grundlage meiner medialen Sitzungen für Sie kann bspw. kosmische Chirurgie, Ene
 Meine spirituellen Heilsitzungen enthalten keine medizinsche Heilkunde und dienen nicht der Linderung konkreter Krankheiten.  
 
 ### Innere Kindheilung - Coaching - Einzelaufstellungen
-**Innere Kindheilung** kann Sie unterstützen, sich Ziele zu setzen und zu erreichen, die Ihnen seelisch entsprechen. Ziele, die Ihnen seelisch sinnvoll erscheinen und Sie mit Lebensfreude erfüllen können.  
+**Innere Kindheilung** kann Sie unterstützen, sich Ziele zu setzen, die Ihnen seelisch entsprechen. Ziele, die ihnen ein tiefes Gefühl von Sinnhaftigkeit vermitteln und Sie mit Lebensfreude erfüllen können.  
 
 Unser moderner Alltag ist manchmal unübersichtlich, macht uns ratlos und kann uns sogar überfordern. Mit einer **Einzelaufstellung** bringen Sie schnell Klarheit in Ihre Gedanken. Das ist schon der erste Schritt zu einer guten Stressbewältigung und den Alltag mit mehr Kraft zu bewältigen.       
 
