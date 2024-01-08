@@ -33,7 +33,7 @@ Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
 
 
 ### Spirituell mediale Heilsitzungen:
-Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörper wahr. 
+Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörpers wahr. 
 
 Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will. 
 
