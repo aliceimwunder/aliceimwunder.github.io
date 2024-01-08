@@ -11,15 +11,18 @@ layout: default
 
 
 ### Praxis für Traumatherapie und spirituelles Coaching 
+Sie wollen mehr Ihre eigene seelische Kraft spüren und leben? 
 
 Haben Sie den Impuls, sich auf spiritueller Ebene bei Ihren Themen unterstützen zu lassen? 
+
+Oder benötigen Sie eine längerfristige seelische Begleitung von mir als Heilpraktierin für Psychotherapie? 
 
 Dann sind Sie hier richtig. 
 
 
 #### Nächste Termine
 - **Freitag, den 26.01.2024, 19:00 Uhr**, **Aurareinigung** mit heilsamen Klängen" - Thema: Lebensmut.
-- **Freitag, den 9.2.2024, 18:30 Uhr. Wheel of Awareness:** [Ein Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+- **Freitag, den 09.02.2024, 18:30 Uhr. Wheel of Awareness:** [Ein Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 
   [Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)
 
@@ -29,7 +32,7 @@ Dann sind Sie hier richtig.
 Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
 
 
-### Spirituell mediale Heilsitzungen - Innere Kindheilung:
+### Spirituell mediale Heilsitzungen:
 Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörper wahr. 
 
 Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will. 
@@ -40,23 +43,28 @@ Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will.
 - Frieden leben. 
 - Verbundenheit wahrnehmen.
   
-Grundlage meiner Sitzungen können bspw. kosmische Chirurgie, Energiearbeit, Reinkarnationsreisen, Akasha-Chronik lesen, Ahnenergien ausgleichen, Aurareinigung sein. 
+Grundlage meiner Energiearbeit für Sie können bspw. kosmische Chirurgie, Energiearbeit, Reinkarnationsreisen, Akasha-Chronik lesen, Ahnenergien ausgleichen, Aurareinigung sein. 
 
+Meine spirituellen Heilsitzungen enthalten keine medizinsche Heilkunde und dienen nicht der Linderung konkreter Krankheiten.  
+
+### Innere Kindheilung - Coaching - Einzelaufstellungen
+Innere Kindheilung kann Dich unterstützen, Dir Ziele zu setzen und zu erreichen, die Dir seelisch entsprechen, Dir seelisch sinnvoll erscheinen und Dich mit Lebensfreude erfüllen können. 
+
+Mit einer Einzelaufstellung bringst Du Klarheit in Dein Leben.    
 
 ### Praxis für Traumatherapie (hp psych)
-Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer kann ich Sie mit meinem fundierten therapeutischen Wissen unterstützen.  
+Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden ohne körperliche Ursache, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer kann ich Sie mit meinem therapeutischen Wissen längerfristig unterstützen.  
+
+(Nur Selbstzahler. Ich empfehle, ärztlich klären zu lassen, dass keine organischen Ursachen für Ihre Symptome bestehen.)
 
 
-(Nur Selbstzahler, bitte ärztlich klären, dass keine organischen Ursachen für Ihre Symptome übersehen werden.)
 
-
- 
 ### Außerdem
- <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Spannendes aus dem Bereich Persönlichkeitswachstum, Innere Kindheilung, Coaching und Spiritualität, für ein Leben selbstbestimmt in Leichtigkeit und Freude - mit dem Inneren Kind, mit unserer Seele. Von wissenschaftlich Interessantem über Naturheilkunde bis spirituell erweiternd.
+ <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Informatives aus dem Bereich Persönlichkeitswachstum, Innere Kindheilung, Coaching und Spiritualität, für ein Leben selbstbestimmt in Leichtigkeit und Freude - mit dem Inneren Kind, mit unserer Seele. Von wissenschaftlich Interessantem über Naturheilkunde bis spirituell erweiternd.
 	</p>
 	
 
-<p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Mein Info-Letter </a></strong> ist genau das: er informiert. Ich schicke ihn ca. ein bis alle zwei Monate, um Dich über meine aktuellen Termine und Blog-Veröffentlichungen zu informieren.</p>
+<p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Mein Info-Letter </a></strong> ist genau das: er hält Dich auf dem Laufenden. Ich schicke ihn ca. ein bis alle zwei Monate, um Dich über meine aktuellen Termine und Blog-Veröffentlichungen zu informieren.</p>
 	
 <p>
 <h4>Ein Feedback zu meiner Inneren Kindheilung - Coaching, von Maria W. aus Liechtenstein: </h4>
