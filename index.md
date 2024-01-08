@@ -15,7 +15,7 @@ Sie wollen mehr Ihre eigene seelische Kraft spüren und leben?
 
 Haben Sie den Impuls, sich auf spiritueller Ebene bei Ihren Themen unterstützen zu lassen? 
 
-Oder benötigen Sie eine längerfristige seelische Begleitung von mir als Heilpraktierin für Psychotherapie? 
+Oder benötigen Sie eine längerfristige psychotherapeutische Begleitung? 
 
 Dann sind Sie hier richtig. 
 
