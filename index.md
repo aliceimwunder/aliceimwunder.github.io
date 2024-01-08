@@ -40,31 +40,31 @@ Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will.
 - Energetische Ursachen aufspüren.
 - Blockaden lösen.
 - Inneren Raum öffnen. Kraft und Erdung aufbauen.
-- Frieden leben. 
+- Bewusstsein entfalten. Frieden leben. 
 - Verbundenheit wahrnehmen.
   
-Grundlage meiner Energiearbeit für Sie können bspw. kosmische Chirurgie, Energiearbeit, Reinkarnationsreisen, Akasha-Chronik lesen, Ahnenergien ausgleichen, Aurareinigung sein. 
+Grundlage meiner medialen Sitzungen für Sie kann bspw. kosmische Chirurgie, Energiearbeit, Reinkarnationsreisen, Akasha-Chronik lesen, Ahnenergien ausgleichen oder Aurareinigung sein. 
 
 Meine spirituellen Heilsitzungen enthalten keine medizinsche Heilkunde und dienen nicht der Linderung konkreter Krankheiten.  
 
 ### Innere Kindheilung - Coaching - Einzelaufstellungen
-Innere Kindheilung kann Dich unterstützen, Dir Ziele zu setzen und zu erreichen, die Dir seelisch entsprechen, Dir seelisch sinnvoll erscheinen und Dich mit Lebensfreude erfüllen können. 
+**Innere Kindheilung** kann Sie unterstützen, sich Ziele zu setzen und zu erreichen, die Ihnen seelisch entsprechen. Ziele, die Ihnen seelisch sinnvoll erscheinen und Sie mit Lebensfreude erfüllen können.  
 
-Mit einer Einzelaufstellung bringst Du Klarheit in Dein Leben.    
+Unser moderner Alltag ist manchmal unübersichtlich, macht uns ratlos und kann uns sogar überfordern. Mit einer **Einzelaufstellung** bringen Sie schnell Klarheit in Ihre Gedanken. Das ist schon der erste Schritt zu einer guten Stressbewältigung und den Alltag mit mehr Kraft zu bewältigen.       
 
 ### Praxis für Traumatherapie (hp psych)
-Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden ohne körperliche Ursache, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer kann ich Sie mit meinem therapeutischen Wissen längerfristig unterstützen.  
+Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer unterstütze ich Sie gerne mit meinem therapeutischen Wissen längerfristig.  
 
 (Nur Selbstzahler. Ich empfehle, ärztlich klären zu lassen, dass keine organischen Ursachen für Ihre Symptome bestehen.)
 
 
 
 ### Außerdem
- <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Informatives aus dem Bereich Persönlichkeitswachstum, Innere Kindheilung, Coaching und Spiritualität, für ein Leben selbstbestimmt in Leichtigkeit und Freude - mit dem Inneren Kind, mit unserer Seele. Von wissenschaftlich Interessantem über Naturheilkunde bis spirituell erweiternd.
+ <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Informatives aus dem Bereich Persönlichkeitswachstum, Innere Kindheilung, Coaching und Spiritualität, für ein kraftvolles Leben, selbstbestimmt in Leichtigkeit und Freude. Von wissenschaftlich Interessantem über Naturheilkunde bis spirituell Erweiterndes.
 	</p>
 	
 
-<p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Mein Info-Letter </a></strong> ist genau das: er hält Dich auf dem Laufenden. Ich schicke ihn ca. ein bis alle zwei Monate, um Dich über meine aktuellen Termine und Blog-Veröffentlichungen zu informieren.</p>
+<p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Meinen Info-Letter </a></strong>  schicke ich ca. ein bis alle zwei Monate, um Sie über meine aktuellen Termine und Blog-Veröffentlichungen zu informieren. Ihre Emailadresse ist kostbar. Als kleines Dankeschön biete ich Ihnen regelmäßig eine Achtsamkeitspraxis ohne Zusatzkosten an (Wheel of Awareness). </p>
 	
 <p>
 <h4>Ein Feedback zu meiner Inneren Kindheilung - Coaching, von Maria W. aus Liechtenstein: </h4>
