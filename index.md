@@ -18,8 +18,9 @@ Dann sind Sie hier richtig.
 
 
 #### Nächste Termine
-- **Freitag, den 15.12.2023, 18:30 Uhr. Wheel of Awareness:** [Ein Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 - **Freitag, den 26.01.2024, 19:00 Uhr**, **Aurareinigung** mit heilsamen Klängen" - Thema: Lebensmut.
+- **Freitag, den 9.2.2024, 18:30 Uhr. Wheel of Awareness:** [Ein Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+
   [Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)
 
 
