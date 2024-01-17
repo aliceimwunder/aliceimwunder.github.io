@@ -1,5 +1,5 @@
 ---
-title: Traumatherapie in Berlin 
+title: Ganzheitliche Traumatherapie in Berlin 
 ---
 
 Meine Praxis für Traumatherapie und Coaching finden Sie im wunderschönen Aquariana Praxis- und Seminarzentrum, Berlin-Kreuzberg. 
@@ -9,28 +9,38 @@ Ich biete dort Traumatherapie nach dem Heilpraktikergesetz an. Das bedeutet, das
 ![]()
 
 
-## Wann ist eine Traumatherapie ratsam? 
-Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Verletzungen** in Ihrem Leben erfahren haben, diese negativen Erfahrungen jedoch im Nachhinein nicht verarbeiten konnten. Ob eine Erfahrung nicht verarbeitet werden konnte, zeigt sich mit der Zeit. So ist es völlig normal, wenn Sie nach einem schockierenden Erlebnis sich erschüttert fühlen und/oder trauern. 
+## Wann ist eine Traumatherapie hilfreich? 
+Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Verletzungen** in Ihrem Leben erfahren haben und diese verletzenden Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. Ob eine Erfahrung nicht verarbeitet werden konnte, zeigt sich mit der Zeit. Es ist völlig normal, wenn Sie sich nach einem schockierenden Erlebnis erschüttert fühlen und/oder trauern. 
 
-Hier kann eine unterstützende Begleitung mit einem Fokus auf Ihre Ressourcen sehr hilfreich sein, um sich wieder zu stabilisieren. Oft können hier auch Freunde oder Familie unterstützen. Ist die soziale Unterstützung und Ihre Resilienz hoch genug, integriert sich eine negative Erfahrung und wird zu einer Erinnerung von vielen, die Sie in Ihrem Leben sammeln. Man würde jedoch nicht von einem Trauma sprechen. 
+Direkt nach solchen Erfahrungen kann eine psychologische Begleitung mit einem Fokus auf Ihre Ressourcen sehr hilfreich sein, damit Sie sich gut wieder stabilisieren und keine Traumatisierung entsteht. Oft können hier auch Freunde oder Familie helfen. Ist die soziale Unterstützung und Ihre Resilienz hoch genug, integriert sich eine negative Erfahrung und wird zu einer Erinnerung von vielen, die Sie in Ihrem Leben sammeln. Kurz nach einem Geschehen würde man jedoch noch nicht von einem Trauma sprechen. 
 
-Ob eine tiefergehende **Erschütterung zurückbleibt**, lässt sich erkennen, wenn man sich beispielsweise auch nach vielen Monaten noch sehr erschüttert oder traurig fühlt, Alpträume oder Zwänge entwickelt hat. Die Auswirkungen mancher Verletzungen können sich auch erst nach Jahren oder sogar Jahrzehnten zeigen. Viele treten nach einer Verletzung erst einmal die Flucht nach vorne an und konzentrieren sich völlig auf die anstehenden Probleme des Alltags. Erst wenn man dann bereit ist, meldet das eigene psychische System Bedarf an, Verletzungen zu verarbeiten.  
+Ob eine tiefergehende Erschütterung **zurückbleibt** (Traumatisierung) lässt sich daran erkennen, wenn man sich beispielsweise auch nach vielen Monaten noch sehr erschüttert oder traurig fühlt, Alpträume oder Zwänge entwickelt hat oder das Vertrauen ins Leben sich nicht wieder herstellen lässt. Dann ist es Zeit, Unterstützung in Form einer Traumatherapie in Erwägung zu ziehen.  
+
+Die Auswirkungen mancher Verletzungen können sich auch erst nach Jahren oder sogar Jahrzehnten zeigen. Das kann z.B. bei einem Bindungstrauma aus der Kindheit auftreten. Viele Betroffene treten auch erst einmal die Flucht nach vorne an und konzentrieren sich völlig auf die anstehenden Probleme des Alltags. Wenn man dann bereit ist, sich für eine Verarbeitung (auch Integration genannt) zu öffnen und mögliche Einschränkungen in der Lebensqualität oder psychische Symptomen nicht mehr hinnehmen will, dann bietet eine Traumatherapie neue Wege zur Integration der Vergangenheit.  
 
 ## Woran erkennt man unverarbeitete seelische Verletzungen? 
-Ganz wesentlich hängt das von Ihrer Lebensqualität ab: Haben Sie psychologische Symptome, die Sie in Ihrer Lebensqualität einschränken? **Haben Sie den Verdacht**, dass diese Symptome aufgrund von seelischen Verletzungen aufgetreten sein könnten? Oft erinnert man sich an die Verletzung, es kann aber genauso gut ein unbestimmtes Gefühl sein, dass da mal was war. Gerade wenn in der Kindheit Verletzungen aufgetreten sind oder wenn man über längere Zeit verletzenden Umständen ausgesetzt war oder extreme, völlig unverhergesehene plötzliche Ereignisse stattfanden, kann unser psychisches System in der Lage sein, die konkreten Verletzungen zu verdrängen.  
+Ganz wesentlich hängt das von Ihrer Lebensqualität ab: Haben Sie psychologische Symptome, die Sie in Ihrer Lebensqualität einschränken? **Haben Sie den Verdacht**, dass diese Symptome aufgrund von seelischen Verletzungen aufgetreten sein könnten? Oft erinnert man sich an negative Erfahrungen, es kann aber genauso gut ein unbestimmtes Gefühl sein, dass da mal was war. Gerade wenn man in der Kindheit seelischen Verletzungen erlebt hat oder man über längere Zeit verletzenden Umständen ausgesetzt war oder völlig unerwartete plötzliche Ereignisse stattfanden, kann unser psychisches System in der Lage sein, die konkreten Umstände zu verdrängen.  
 
-Wichtig ist daher Ihre Wahrnehmung. Wenn Sie den Eindruck haben, dass bei Ihnen eine seelische Verletzung oder sogar eine Serie von Traumata aufgetreten sein könnten und deswegen Ihre Lebensqualität eingeschränkt wird, dann ist es ratsam, eine Traumatherapie auszuprobieren. 
+Wichtig ist daher Ihre Wahrnehmung. Wenn Sie den Eindruck haben, dass bei Ihnen ein einmaliges Schocktrauma oder sogar eine Serie von seelischen Verletzungen aufgetreten sein könnten und deswegen Ihre Lebensqualität später eingeschränkt ist, dann ist es ratsam, eine Traumatherapie auszuprobieren. 
 
-Ein weiterer Hinsweis kann auch sein, dass z.B. allgemeine Tipps für eine bessere Stressbewältigung einfach nicht helfen wollen, Sie ein grundsätzliches Misstrauen gegenüber der Umwelt bemerken. Für eine genauere Diagnose benötigt es ein persönliches Gespräch mit einem Therapeuten oder einer Therapeutin. Bei Beschwerden, die sich auch körperlich zeigen, wie z.B. psychosomatischen Beschwerden, ist es emfpehlenswert, wenn Sie ärztlichen Rat aufsuchen.  
+Für eine belastbare Diagnose benötigt es ein persönliches Gespräch mit einem Therapeuten oder einer Therapeutin. Teilweise zeigen sich Verletzungen auch erst im Rahmen einer Therapie, wenn mehr Vertrauen zum Therapeuten aufgebaut werden konnte. Bei Beschwerden, die sich auch körperlich zeigen, wie z.B. psychosomatischen Beschwerden, ist es sehr emfpehlenswert, wenn Sie sich auch medizinisch klären lassen, ob organische Ursachen vorliegen.  
 
 
 ### Anhaltspunke für Sie
 Nehmen Sie sich oft als ausgebrannt oder überfordert in Ihrem Leben wahr? 
-Vielleicht psychische Symptome, wie Unsicherheit, Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder umgekehrt, die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Beziehungsunfähigkeit, Depression, sich grundlos mutlos fühlend oder grundsätzlich misstrauisch sein? 
 
-Nicht in eine Traumatherapie gehören organisch verursachte Depression, Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn oder lebenszerstörende Süchte (Heroin, Kokain, Alkohol etc.). Hier kann eine Traumatherapie unterstützend wirken, ist jedoch nicht geeignet zur alleinigen Behandlung.  
+Vielleicht haben Sie psychische Symptome, wie Unsicherheit, Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder umgekehrt, die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Beziehungsunfähigkeit, Depression, sich grundlos mutlos fühlend oder grundsätzlich misstrauisch sein? 
 
-Manchmal überfordert das Leben unsere Verarbeitungskapazität. Was genau ein Trauma auslöst, lässt sich daher nicht allgemein gültig für alle Menschen vorhersagen. Es sind in der Regel erhebliche Ereignisse, müssen jedoch nicht Kriegserlebnisse oder Massenvergewaltigung gewesen sein.  Es können Arbeitsunfälle, Vernachlässigung in der Kindheit, Suchtprobleme der Eltern, der plötzliche Tod eines geliebten Kindes, Mobbing längere Zeit ausgesetzt sein. 
+Ein weiterer Hinsweis kann auch sein, dass z.B. allgemeine Tipps für eine bessere Stressbewältigung einfach nicht helfen wollen. Selbstabwertungsspiralen, innere Schuldzuweisunge, ein grundsätzliches Misstrauen dem Leben gegenüber können ebenfalls Anhaltspunkte sein, dass eine Traumatherapie Sie unterstützt, mehr Lebensqualität zu erfahren.  
+
+Nicht in eine Traumatherapie gehören organisch verursachte Depression, Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn oder Süchte (Heroin, Kokain, Alkohol etc.). In solchen Fällen kann eine Traumatherapie nur begleitend angeboten werden, ist jedoch nicht geeignet zur alleinigen Behandlung solcher Krankheitsbilder.  
+
+### Was ist ein Trauma?
+Was Menschen an Schrecken in der Menschheitsgeschichte überstanden haben, ist erstaunlich. Wir haben erstaunliche unsere Resilienzfähigkeiten in uns, manchmal aber **überfordert das Leben** unsere seelische Verarbeitungskapazität. Was genau ein Trauma auslöst, lässt sich daher nicht allgemein gültig für alle Menschen vorhersagen. 
+
+Traumatisierende Erfahrungen sind in der Regel **einschneidende Ereignisse**. Jedoch sind das nicht nur Kriegserlebnisse oder Massenvergewaltigung.  Es können Arbeitsunfälle, Vernachlässigung in der Kindheit, sexuelle Nötigung, Suchtprobleme der Eltern, der plötzliche Tod eines geliebten Kindes, Mobbing über längere Zeit sein und vieles mehr. 
+
+Eine abwertende, innere Bewertung, "alle anderen haben es doch auch überstanden", ist wenig heilsam. Neben der Frage, wie schwer etwas grundsätzlich uns erschüttern kann, spielt auch die Frage, wie psychisch stabil und wie alt wir in dem Moment der Erfahrung waren und ob wir uns noch als selbstwirksam wahrnehmen konnten oder uns ausgeliefert gefühlt haben.   
 
 
 ### Regeneration für unsere Seele
