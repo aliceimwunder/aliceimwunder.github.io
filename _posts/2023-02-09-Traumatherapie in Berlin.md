@@ -4,7 +4,7 @@ title: Ganzheitliche Traumatherapie in Berlin
 
 Meine Praxis für Traumatherapie und Coaching finden Sie im wunderschönen Aquariana Praxis- und Seminarzentrum, Berlin-Kreuzberg. 
 
-Ich biete dort Traumatherapie nach dem Heilpraktikergesetz an. Das bedeutet, dass ich Ihnen ohne lange Wartezeit oder Anträge bei einer Krankenkasse Unterstützung anbieten kann. 
+Ich biete dort Traumatherapie nach dem Heilpraktikergesetz an. Das bedeutet, dass ich Ihnen ohne lange Wartezeit oder Anträge bei einer Krankenkasse Unterstützung anbieten kann, jedoch keine Kassenzulassung als Psychotherapeutin habe. 
 
 ![]()
 
