@@ -89,3 +89,6 @@ Ein telefonisches Vorgespräch zur Klärung von Fragen bzw. für einen ersten Ei
 
 
 Gesetzliche Krankenkassen dürfen die Kosten einer Heilpraktikerin für Psychotherapie nicht übernehmen. Private (Zusatz-)Versicherungen übernehmen nur dann die Kosten der Psychotherapie, wenn im Vertrag ausdrücklich die Kosten für einen Heilpraktiker *für Psychotherapie* enthalten sind. 
+
+### Habe ich Ihr Interesse an einer Traumatherapie geweckt?
+Sie können sich direkt per Email info@alicewindolf.de oder telefonisch 01607047080 bei mir melden und wir vereinbaren einen Termin. 
