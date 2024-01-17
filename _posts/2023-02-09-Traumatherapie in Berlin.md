@@ -14,7 +14,7 @@ Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische 
 
 Direkt nach solchen Erfahrungen kann eine psychologische Begleitung mit einem Fokus auf Ihre Ressourcen sehr hilfreich sein, damit Sie sich gut wieder stabilisieren und keine Traumatisierung entsteht. Oft können hier auch Freunde oder Familie helfen. Ist die soziale Unterstützung und Ihre Resilienz hoch genug, integriert sich eine negative Erfahrung und wird zu einer Erinnerung von vielen, die Sie in Ihrem Leben sammeln. Kurz nach einem Geschehen würde man jedoch noch nicht von einem Trauma sprechen, von einem Schock möglicherweise schon. 
 
-Ob eine tiefergehende Erschütterung **zurückbleibt** (Traumatisierung) lässt sich daran erkennen, wenn man sich beispielsweise auch nach vielen Monaten noch sehr erschüttert oder traurig fühlt, Alpträume oder Zwänge entwickelt hat oder das Vertrauen ins Leben sich nicht wieder herstellen lässt. Dann ist es Zeit, Unterstützung in Form einer Traumatherapie in Erwägung zu ziehen.  
+Ob eine tiefergehende Erschütterung **zurückbleibt** (Traumatisierung) lässt sich daran erkennen, wenn man sich beispielsweise auch nach vielen Monaten noch sehr erschüttert oder traurig fühlt, Alpträume oder Zwänge entwickelt hat oder das Vertrauen ins Leben sich nicht wieder herstellen lässt. Dann ist es Zeit, Unterstützung in Form einer Traumatherapie zu suchen.  
 
 Die Auswirkungen mancher Verletzungen können sich auch erst nach Jahren oder sogar Jahrzehnten zeigen. Das kann z.B. bei einem Bindungstrauma aus der Kindheit auftreten. Viele Betroffene treten auch erst einmal die Flucht nach vorne an und konzentrieren sich völlig auf die anstehenden Probleme des Alltags. Wenn man dann bereit ist, sich für eine Verarbeitung (auch Integration genannt) zu öffnen und mögliche Einschränkungen in der Lebensqualität oder psychische Symptomen nicht mehr hinnehmen will, dann bietet eine Traumatherapie neue Wege zur Integration der Vergangenheit.  
 
@@ -29,7 +29,7 @@ Für eine belastbare Diagnose benötigt es ein persönliches Gespräch mit einem
 ### Anhaltspunke für Sie
 Nehmen Sie sich oft als ausgebrannt oder überfordert in Ihrem Leben wahr? 
 
-Vielleicht haben Sie psychische Symptome, wie Unsicherheit, Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder umgekehrt, die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Beziehungsunfähigkeit, Depression, sich grundlos mutlos fühlend oder grundsätzlich misstrauisch sein? 
+Vielleicht haben Sie psychische Symptome, wie Unsicherheit, Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder umgekehrt, die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Beziehungsunfähigkeit, Depression oder sich grundlos mutlos fühlend? 
 
 Ein weiterer Hinsweis kann auch sein, dass z.B. allgemeine Tipps für eine bessere Stressbewältigung einfach nicht helfen wollen. Selbstabwertungsspiralen, innere Schuldzuweisunge, ein grundsätzliches Misstrauen dem Leben gegenüber können ebenfalls Anhaltspunkte sein, dass eine Traumatherapie Sie unterstützt, mehr Lebensqualität zu erfahren.  
 
@@ -48,11 +48,14 @@ Wenn wir merken, dass wir bereit sind, die Einschränkungen der Lebensqualität 
 
 In einer **Traumatherapie** dürfen sich alte Muster und damals überlastenden Erfahrungen auf ganz sanfte Art zeigen, im Hier und Jetzt, aber ohne erneut zu überlasten. Dazu brauchen wir ein **Gefühl von Sicherheit, von Getragen sein.** Sonst lässt unser psychisches System keinen direkten Zugriff auf unsere Verletzungen zu. 
 
+## Traumatherapie, ein ganzheitlicher Weg zu einem kraftvollen Leben
 Eine Traumatherapie besteht aus drei Schritten, die sich wiederholen und aufeinander aufbauen. Dadurch entsteht **ein gangbarer, zuverlässiger Weg** in ein selbstbestimmtes Leben. Verletzungen und Überlastungen aus der Vergangenheit können sich auswirken, als ob man keinen Einfluss auf das eigene Leben hat. Stattdessen darf man sich nun wieder ans Steuer seines Lebens setzen. Als Heilpraktikerin für Psychotherapie bin ich dabei keine Chirurgin, die an Ihrer Seele schneidet und näht, eher eine Art Reisebegleiterin, die auf einen sicheren und liebevollen Weg achtet.
 
 1. **Innere Sicherheit** erzeugen, Vertrauen in sich wahrnehmen, in der Zeit während der Therapie verlässlich aufbauen, sodass neue Erfahrungen in den Alltag hineingetragen werden können. 
 2. Sich den Erfahrungen in sich, die sich noch nicht harmonisch integriert haben, auf vorsichtige Weise in ganz kleinen Stücken nähern, mitfühlend für sich werden. Denn für die Integration braucht es letztlich nicht viel: **Geduld mit sich, Achtsamkeit, Mitgefühl, ein Bezeugen** der Verletzung. 
-3. Mit der geschaffenen Integration **wieder Neues im Leben erschaffen**. Gleich, ob man sich wieder mehr Energie für den Körper erschaffen will, einen besseren Umgang mit einer chronischen Erkrankung, eine liebevolle Partnerschaft, mehr Vertrauen ins Leben. 
+3. Mit der geschaffenen Integration **wieder Neues im Leben erschaffen**. Gleich, ob man sich wieder mehr Energie für den Körper erschaffen will, einen besseren Umgang mit einer chronischen Erkrankung, eine liebevolle Partnerschaft, mehr Vertrauen ins Leben.
+
+Tiefenpsychologische und verhaltenstherapeutische Ansätze greifen in der Regel auf einen konkreten Behandlungsrahmen zurück. In die Traumatherapie fließen alle Ansätze ein, die sich als wirksam herausgestellt haben. Es ist vielmehr Selbstschrauber-Werkstatt, dahingehend, wie Sie Ihr Leben gestalten wollen. Ich suche nach den für Sie passenden Werkzeuge, Sie wenden sie an.
 
 
 ## Zusammen geht es leichter
@@ -62,13 +65,13 @@ Wir sind keine Einzelkämpfer von Natur aus. Unser Körper ist kein Einzelkämpf
 Geht man **den Weg gemeinsam**,  
 - Vertrauen in sich aufzubauen, 
 - Sicherheit wahrzunehmen, 
-- Vertrauen in den eigenen Heilungsprozess zu entwickeln, 
+- Vertrauen in die eigene Regenerationsfähigkeit zu entwickeln, 
 - Motivation und Durchhaltevermögen für andere Entscheidungen in sich zu finden, 
 - seine Kraft in weniger innere Schutzmechanismen und mehr in aktive Gestaltung des Lebens zu investieren,
 - resilient zu werden (Resilienz bei Belastungserfahrungen ist kein Gen, das man hat oder nicht; eher eine Art Muskel, den wir trainieren können),
 - flexibel auf die weiteren Herausforderungen des Lebens zu reagieren,
 
-dann ist man nicht nur schneller, auch sicherer und tiefgreifender **auf dem eigenen Heilweg unterwegs**. Ist jemand da, der den Raum für Sicherheit und Offenheit halten kann, dann wird aus der Anwesenheit von zwei Personen viel mehr als 2. Es kann drei, vier oder fünf werden.
+dann ist man nicht nur schneller, auch sicherer und tiefgreifender **auf dem eigenen Selbstheilungsweg unterwegs**. Ist jemand da, der den Raum für Sicherheit und Offenheit halten kann, dann wird aus der Anwesenheit von zwei Personen viel mehr als 2. Es kann drei, vier oder fünf werden.
  
 
 
