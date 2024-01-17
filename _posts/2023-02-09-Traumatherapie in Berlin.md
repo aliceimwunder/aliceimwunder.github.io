@@ -36,11 +36,13 @@ Ein weiterer Hinsweis kann auch sein, dass z.B. allgemeine Tipps für eine besse
 Nicht in eine Traumatherapie gehören organisch verursachte Depression, Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn oder Süchte (Heroin, Kokain, Alkohol etc.). In solchen Fällen kann eine Traumatherapie nur begleitend angeboten werden, ist jedoch nicht geeignet zur alleinigen Behandlung solcher Krankheitsbilder.  
 
 ### Was ist ein Trauma?
-Was Menschen an Schrecken in der Menschheitsgeschichte überstanden haben, ist erstaunlich. Wir haben erstaunliche unsere Resilienzfähigkeiten in uns, manchmal aber **überfordert das Leben** unsere seelische Verarbeitungskapazität. Was genau ein Trauma auslöst, lässt sich daher nicht allgemein gültig für alle Menschen vorhersagen. 
+Was Menschen an Schrecken in der Menschheitsgeschichte überstanden haben, ist erstaunlich. Wir haben erstaunliche Resilienzfähigkeiten in uns, manchmal aber **überfordert das Leben** unsere seelische Verarbeitungskapazität. Was genau ein Trauma auslöst, lässt sich daher nicht allgemein gültig für alle Menschen vorhersagen. 
 
-Traumatisierende Erfahrungen sind in der Regel **einschneidende Ereignisse**. Jedoch sind das nicht nur Kriegserlebnisse oder Massenvergewaltigung.  Es können Arbeitsunfälle, Vernachlässigung in der Kindheit, sexuelle Nötigung, Suchtprobleme der Eltern, der plötzliche Tod eines geliebten Kindes, Mobbing über längere Zeit sein und vieles mehr. 
+Traumatisierende Erfahrungen sind in der Regel **einschneidende Ereignisse**. Jedoch sind das nicht nur Kriegserlebnisse oder Massenvergewaltigung.  Es können Arbeitsunfälle, Vernachlässigung in der Kindheit, sexuelle Nötigung, Suchtprobleme der Eltern, der plötzliche Tod eines geliebten Kindes, Mobbing und vieles mehr sein. 
 
-Eine abwertende, innere Bewertung, "alle anderen haben es doch auch überstanden", ist wenig heilsam. Neben der Frage, wie schwer etwas grundsätzlich uns erschüttern kann, spielt auch die Frage, wie psychisch stabil und wie alt wir in dem Moment der Erfahrung waren und ob wir uns noch als selbstwirksam wahrnehmen konnten oder uns ausgeliefert gefühlt haben.   
+Eine abwertende, innere Bewertung, "alle anderen haben x, y, z doch auch überstanden", ist wenig heilsam. Neben der Frage, wie schwer etwas grundsätzlich uns erschüttern kann, spielt auch die Frage, wie psychisch stabil und wie alt wir in dem Moment der Erfahrung waren und ob wir uns noch als selbstwirksam wahrnehmen konnten oder uns ausgeliefert gefühlt haben. 
+
+Haben zwei Menschen einen Fahrradunfall und steigen unvorhergesehen über den Lenker ab, hat der eine vielleicht nur eine gut verheilende Verstauchung in den Handgelenken, der andere bricht sich das Handgelenk und hat noch Jahre danach mit Versteifungen zu kämpfen. Hier würde sich Vorwürfe machen auch nicht weiterhelfen, nur die Frage, welche Maßnahmen wieder mehr Bewegung ins Handgelenk bringen, Geduld und Selbsliebe. Und so ist das auch mit der Psyche.   
 
 
 ### Regeneration für unsere Seele
