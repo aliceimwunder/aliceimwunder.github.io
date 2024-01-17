@@ -2,39 +2,47 @@
 title: Traumatherapie in Berlin 
 ---
 
-Meine Praxis für Traumaheilung und Coaching finden Sie im wunderschönen Aquariana Praxis- und Seminarzentrum. 
+Meine Praxis für Traumatherapie und Coaching finden Sie im wunderschönen Aquariana Praxis- und Seminarzentrum, Berlin-Kreuzberg. 
+
+Ich biete dort Traumatherapie nach dem Heilpraktikergesetz an. Das bedeutet, dass ich Ihnen ohne lange Wartezeit oder Anträge bei einer Krankenkasse Unterstützung anbieten kann. 
 
 ![]()
 
 
-## Sich unterstützen lassen
-Nehmen Sie sich als ausgebrannt oder überfordert in Ihrem Leben wahr? Vielleicht psychische Symptome, wie Unsicherheit, Angst, Panik, Entfremdung von sich selbst, psychosomatische Beschwerden? Das Leben bringt uns oft Herausforderungen, Belastungen oder Stress. Nicht alles kann immer sofort verarbeitet werden. Manches bleibt liegen. **Manches übersteigt einfach unsere Bewältigungsmöglichkeiten**. 
+## Wann ist eine Traumatherapie ratsam? 
+Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Verletzungen** in Ihrem Leben erfahren haben, diese negativen Erfahrungen jedoch im Nachhinein nicht verarbeiten konnten. Ob eine Erfahrung nicht verarbeitet werden konnte, zeigt sich mit der Zeit. So ist es völlig normal, wenn Sie nach einem schockierenden Erlebnis sich erschüttert fühlen und/oder trauern. 
+
+Hier kann eine unterstützende Begleitung mit einem Fokus auf Ihre Ressourcen sehr hilfreich sein, um sich wieder zu stabilisieren. Oft können hier auch Freunde oder Familie unterstützen. Ist die soziale Unterstützung und Ihre Resilienz hoch genug, integriert sich eine negative Erfahrung und wird zu einer Erinnerung von vielen, die Sie in Ihrem Leben sammeln. Man würde jedoch nicht von einem Trauma sprechen. 
+
+Ob eine tiefergehende Erschütterung zurückbleibt, lässt sich erst erkennen, wenn man sich beispielsweise auch nach vielen Monaten noch sehr erschüttert oder traurig fühlt, Alpträume oder Zwänge entwickelt hat. Die Auswirkungen mancher Verletzungen können sich auch erst nach Jahren oder sogar Jahrzehnten zeigen. Viele treten nach einer Verletzung erst einmal die Flucht nach vorne an und konzentrieren sich völlig auf die anstehenden Probleme des Alltags. Erst wenn man dann bereit ist, meldet das eigene psychische System Bedarf an, Verletzungen zu verarbeiten.  
+
+## Woran erkennt man unverarbeitete seelische Verletzungen? 
+Ganz wesentlich hängt das von Ihrer Lebensqualität ab: Haben Sie psychologische Symptome, die Sie in Ihrer Lebensqualität einschränken? **Haben Sie den Verdacht**, dass diese Symptome aufgrund von seelischen Verletzungen aufgetreten sein könnten? Oft erinnert man sich an die Verletzung, es kann aber genauso gut ein unbestimmtes Gefühl sein, dass da mal was war. Gerade wenn in der Kindheit Verletzungen aufgetreten sind oder wenn man über längere Zeit verletzenden Umständen ausgesetzt war oder extreme, völlig unverhergesehene plötzliche Ereignisse stattfanden, kann unser psychisches System in der Lage sein, die konkreten Verletzungen zu verdrängen.  
+
+Wichtig ist daher Ihre Wahrnehmung. Wenn Sie den Eindruck haben, dass bei Ihnen eine seelische Verletzung oder sogar eine Serie von Traumata aufgetreten sein könnten und deswegen Ihre Lebensqualität eingeschränkt wird, dann ist es ratsam, eine Traumatherapie auszuprobieren. 
+
+Ein weiterer Hinsweis kann auch sein, dass z.B. allgemeine Tipps für eine bessere Stressbewältigung einfach nicht helfen wollen, Sie ein grundsätzliches Misstrauen gegenüber der Umwelt bemerken. Für eine genauere Diagnose benötigt es ein persönliches Gespräch mit einem Therapeuten oder einer Therapeutin. Bei Beschwerden, die sich auch körperlich zeigen, wie z.B. psychosomatischen Beschwerden, ist es emfpehlenswert, wenn Sie ärztlichen Rat aufsuchen.  
 
 
-Dann entsteht vielleicht der **Wunsch nach Regeneration** in uns. Ein Wunsch danach, die Vergangenheit hinter sich zu lassen und das ganz eigene Leben zu entfalten: **Seelisch Kraft aufbauen**, sich zentrieren, sich wieder mit einem positiven Strom des Lebens verbinden und inneres Wachstum geschehen lassen. 
+### Anhaltspunke für Sie
+Nehmen Sie sich oft als ausgebrannt oder überfordert in Ihrem Leben wahr? 
+Vielleicht psychische Symptome, wie Unsicherheit, Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder umgekehrt, die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Beziehungsunfähigkeit, Depression, sich grundlos mutlos fühlend oder grundsätzlich misstrauisch sein? 
+
+Nicht in eine Traumatherapie gehören organisch verursachte Depression, Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn oder lebenszerstörende Süchte (Heroin, Kokain, Alkohol etc.). Hier kann eine Traumatherapie unterstützend wirken, ist jedoch nicht geeignet zur alleinigen Behandlung.  
+
+Manchmal überfordert das Leben unsere Verarbeitungskapazität. Was genau ein Trauma auslöst, lässt sich daher nicht allgemein gültig für alle Menschen vorhersagen. Es sind in der Regel erhebliche Ereignisse, müssen jedoch nicht Kriegserlebnisse oder Massenvergewaltigung gewesen sein.  Es können Arbeitsunfälle, Vernachlässigung in der Kindheit, Suchtprobleme der Eltern, der plötzliche Tod eines geliebten Kindes, Mobbing längere Zeit ausgesetzt sein. 
 
 
-Wir bestehen nicht nur aus einem einzigen festen, unveränderlichen Ich. Wir haben viele Seiten in uns, viele Aspekte, die gelebt werden wollen. Manches, von dem, was uns geschieht, wollen wir jedoch nicht mehr fortsetzen. **Alte Muster, alte Gefühle, altes Verhalten.** Das Gefühl, nicht frei das Leben gestalten zu können, weil manches aus der Vergangenheit wie ein Stein wiegt. Die verschiedenen Aspekte in uns, die wir leben können oder wollen oder nicht wollen (wir sind anders, wenn wir einkaufen gehen, oder wenn wir mit einem Kind sprechen oder wenn wir ein Beratungsgespräch in einer Bank wahrnehmen), sind alle Anteile in uns, die unser Ich zusammen bilden. 
+### Regeneration für unsere Seele
+Wenn wir merken, dass wir bereit sind, die Einschränkungen der Lebensqualität nicht mehr hinzunehmen bzw. ausreichend Raum für die Verarbeitung seelicher Verletzungen da ist, entsteht der **Wunsch nach Regeneration** in uns. Ein Wunsch danach, die Vergangenheit hinter sich zu lassen und das ganz eigene Leben zu entfalten: **Seelisch Kraft aufbauen**, sich zentrieren, sich wieder mit einem positiven Strom des Lebens verbinden und inneres Wachstum geschehen lassen. Dem Leben zu vertrauen und nährende Beziehungen aufzubauen. 
 
+In einer **Traumatherapie** dürfen sich alte Muster und damals überlastenden Erfahrungen auf ganz sanfte Art zeigen, im Hier und Jetzt, aber ohne erneut zu überlasten. Dazu brauchen wir ein **Gefühl von Sicherheit, von Getragen sein.** Sonst lässt unser psychisches System keinen direkten Zugriff auf unsere Verletzungen zu. 
 
-## Die Vergangenheit 
-Belastende Erfahrungen können sich an einen dieser Aspekte in uns haften. Unsere Psyche tut das, ohne dass wir dies bewusst entscheiden würden, um uns zu schützen. Die Anteile mit ihren angehefteten Erfahrungen können wir nämlich gut in uns verpacken, vielleicht sogar vergessen, bis irgendwann die Zeit zum Heilen sein darf. Der Haken an der Sache: die versteckten Anteile sind nur versteckt, nicht weg. Wir leben dann in bestimmten Situationen immer wieder alte Muster, die wir nicht abstreifen können - wir kommen nicht aus unserer Haut. Eine Art **Spaltung in uns**, die wir nicht steuern können. 
+Eine Traumatherapie besteht aus drei Schritten, die sich wiederholen und aufeinander aufbauen. Dadurch entsteht **ein gangbarer, zuverlässiger Weg** in ein selbstbestimmtes Leben. Verletzungen und Überlastungen aus der Vergangenheit können sich auswirken, als ob man keinen Einfluss auf das eigene Leben hat. Stattdessen darf man sich nun wieder ans Steuer seines Lebens setzen. Als Heilpraktikerin für Psychotherapie bin ich dabei keine Chirurgin, die an Ihrer Seele schneidet und näht, eher eine Art Reisebegleiterin, die auf einen sicheren und liebevollen Weg achtet.
 
-
-In der Psychotherapie nennt man die versteckten Muster, sei es ein Verhalten, sei es ein Gefühl, sei es eine längere Stimmung, für die wir uns nicht bewusst entscheiden, **Dissoziation**. Es ist ein alter Schutzmechanismus, der uns bei bzw. direkt nach einer belastenden Erfahrung weiter unser Leben gestalten lässt, bis wir die Zeit haben, mit der Vergangenheit abzuschließen. 
-
-
-Diese Schutzmauern in uns sind wunderbare Helfer in belastenden Situationen. Sie auf Dauer bestehen zu lassen kostet Kraft, kann Symptome aller Art verursachen. Sie lassen uns nicht mit unserer vollen seelischen Kraft unser Leben gestalten und genießen. Psychische und psychosomatische Symptome entstehen. 
-
-
-## Traumatherapie 
-In der Traumatherapie dürfen sich diese alten Muster und damals überlastenden Erfahrungen auf ganz sanfte Art zeigen, im Hier und Jetzt, aber ohne erneut zu überlasten. Die Anteile mit ihren angehefteten Erfahrungen können sich wieder in unser Ich auf harmonische Weise einordnen, ohne Schutzmauer. Dazu brauchen wir ein **Gefühl von Sicherheit, von Getragen sein.** Sonst lässt unser psychisches System keinen direkten Zugriff zu. Bis genügend Vertauen und Schutz wahrgenommen wird; bis Raum und Zeit für diese Art Heilung gekommen ist. 
-
-
-Daher besteht eine Traumatherapie aus drei Schritten, die sich wiederholen und aufeinander aufbauen. Dadurch entsteht **ein gangbarer, zuverlässiger Weg** in ein selbstbestimmtes Leben. Verletzungen und Überlastungen aus der Vergangenheit können sich auswirken, als ob man keinen Einfluss auf das eigene Leben hat. Stattdessen darf man sich nun wieder ans Steuer seines Lebens setzen. Als Therapeutin bin ich dabei keine Fahrlehrerin, eher eine Reisebegleiterin, die auf einen sicheren und liebevollen Weg achtet. 
-1. Innere Sicherheit erzeugen, Vertrauen in sich wahrnehmen, in der Zeit während der Therapie verlässlich aufbauen, sodass neue Erfahrungen in den Alltag hineingetragen werden können. 
-2. Sich den Erfahrungen in sich, die sich noch nicht harmonisch integriert haben, auf vorsichtige Weise in ganz kleinen Stücken nähern, mitfühlend für sich werden. Denn für die Integration braucht es letztlich nicht viel: **Geduld mit sich, Achtsamkeit, Mitgefühl, ein Bezeugen**, wie sich der Anteil mit der angehefteten Erfahrung gerade jetzt wahrnimmt. 
-3. Mit der geschaffenen Integration wieder Neues im Leben erschaffen. Gleich, ob man sich wieder mehr Energie für den Körper erschaffen will, einen besseren Umgang mit einer chronischen Erkrankung, eine liebevolle Partnerschaft, mehr Vertrauen ins Leben, mehr seelische Berufung in das Geld verdienen einbringen will oder auch ein harmonisches Leben den eigenen Kindern bieten will. 
+1. **Innere Sicherheit** erzeugen, Vertrauen in sich wahrnehmen, in der Zeit während der Therapie verlässlich aufbauen, sodass neue Erfahrungen in den Alltag hineingetragen werden können. 
+2. Sich den Erfahrungen in sich, die sich noch nicht harmonisch integriert haben, auf vorsichtige Weise in ganz kleinen Stücken nähern, mitfühlend für sich werden. Denn für die Integration braucht es letztlich nicht viel: **Geduld mit sich, Achtsamkeit, Mitgefühl, ein Bezeugen** der Verletzung. 
+3. Mit der geschaffenen Integration **wieder Neues im Leben erschaffen**. Gleich, ob man sich wieder mehr Energie für den Körper erschaffen will, einen besseren Umgang mit einer chronischen Erkrankung, eine liebevolle Partnerschaft, mehr Vertrauen ins Leben. 
 
 
 ## Zusammen geht es leichter
@@ -57,6 +65,7 @@ dann ist man nicht nur schneller, auch sicherer und tiefgreifender **auf dem eig
 ## Kosten und Aufwand
 Traumatherapie ist ideal einmal wöchentlich. Eine psychotherapeutische Sitzung umfasst 50 min. Andere Gestaltungsformen, von einem zweiwöchentlichen Rhythmus bis zu mehrmals pro Woche, sind je nach Bedarf ebenfalls möglich. 
 
+Als Heilpraktikerin für Psychotherapie kann ich eine Traumatherapie in der Regel nur für Selbstzahler anbieten. 
 
 **Kosten: 80,-€**/Sitzung in einer fortlaufenden Therapie. 
 
