@@ -14,9 +14,8 @@ Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische 
 
 Direkt nach Belastungserfahrungen kann eine psychologische Begleitung mit einem Fokus auf Ihre Ressourcen sehr hilfreich sein, damit Sie sich gut wieder stabilisieren und keine Traumatisierung entsteht. Oft können hier auch Freunde oder Familie helfen. Ist die soziale Unterstützung und Ihre Resilienz hoch genug, integriert sich eine negative Erfahrung und wird zu einer Erinnerung von vielen, die Sie in Ihrem Leben sammeln. Kurz nach einem Geschehen würde man jedoch noch nicht von einem Trauma sprechen, von einem Schock möglicherweise schon. 
 
-Ob eine tiefergehende Erschütterung ihres seelischen Gleichgewichts **zurückbleibt** (Traumatisierung) lässt sich daran erkennen, wenn man sich beispielsweise nach vielen Monaten später noch sehr erschüttert oder traurig fühlt, Alpträume oder Zwänge entwickelt oder das Vertrauen ins Leben sich nicht wieder herstellen lässt. Dann ist es Zeit, Unterstützung in Form einer Traumatherapie zu suchen.  
+Ob eine tiefergehende Erschütterung ihres seelischen Gleichgewichts **zurückbleibt** (Traumatisierung), lässt sich daran erkennen, wenn man sich beispielsweise nach vielen Monaten oder sogar Jahre bis Jahrzehnte später noch sehr erschüttert oder traurig fühlt, Alpträume, Zwänge oder andere psychologische Symptome entwickelt oder ein Grund-Vertrauen ins Leben verloren hat. Dann ist es Zeit, Unterstützung in Form einer Traumatherapie zu suchen.  
 
-Die Auswirkungen mancher Verletzungen können sich auch erst **nach Jahren** oder sogar Jahrzehnten zeigen. Manche Betroffene treten nach Belastungserfahrungen die Flucht nach vorne an und konzentrieren sich völlig auf die anstehenden Probleme des Alltags. Es ist nicht ungewöhnlich, erst länger nach den Erfahrungen sich bereit zu fühlen, sich für eine Verarbeitung (auch Integration genannt) zu öffnen. V.a. wenn man Einschränkungen in der Lebensqualität oder psychische Symptome nicht mehr hinnehmen will, dann bietet eine Traumatherapie neue Wege zur Integration der Vergangenheit.  
 
 ## Woran erkennt man unverarbeitete seelische Verletzungen? 
 Wichtig ist daher Ihre Wahrnehmung. 
