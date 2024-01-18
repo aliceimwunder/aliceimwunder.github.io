@@ -18,7 +18,7 @@ Ob eine tiefergehende Erschütterung ihres seelischen Gleichgewichts **zurückbl
 
 
 ## Woran erkennt man unverarbeitete seelische Verletzungen? 
-Wichtig ist daher Ihre Wahrnehmung. 
+Wichtig ist Ihre Wahrnehmung: 
 
 1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
 2. **Haben Sie den Verdacht**, dass diese Symptome aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, handeln, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit oder Missbrauch. 
