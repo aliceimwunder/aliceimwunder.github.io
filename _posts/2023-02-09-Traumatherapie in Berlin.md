@@ -30,7 +30,7 @@ Nehmen Sie Ihre Wahrnehmung ernst, vertrauen Sie sich. Sie sind der Experte, die
 1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
 2. **Haben Sie den Verdacht**, dass diese Symptome aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit oder Mobbing handeln. 
 
---> Oft erinnert man sich an die Belastungserfahrungen, es kann aber genauso gut ein **unbestimmtes Gefühl** sein, dass da mal was war. Denn unser psychisches System ist zu unserem eigenen Schutz in der Lage, Erinnerungen tief in uns zu verstecken, sodass wir keinen oder nur bruchstückhaften Zugang mehr dazu haben.    
+--> Oft erinnert man sich an die Belastungserfahrungen, es kann aber genauso gut ein **unbestimmtes Gefühl** sein, dass da mal was war. Denn unser psychisches System ist zu unserem eigenen Schutz in der Lage, Erinnerungen tief in uns zu verstecken, sodass wir keinen oder nur bruchstückhaften Zugang mehr dazu haben. Ob Sie konkrete Erinnerungen haben oder nicht, ist für den Erfolg einer Traumatherapie nicht wichtig.     
 
 Für eine belastbare Diagnose benötigt es ein **persönliches Gespräch** mit einem Therapeuten oder einer Therapeutin. Teilweise zeigen sich die seelischen Folgen von Belastungserfahrungen erst im Rahmen einer Therapie, wenn mehr Vertrauen zum Therapeuten oder zur Therapeutin aufgebaut werden konnte. 
 
