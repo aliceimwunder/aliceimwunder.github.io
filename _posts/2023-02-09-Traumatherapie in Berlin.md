@@ -2,47 +2,59 @@
 title: Ganzheitliche Traumatherapie in Berlin 
 ---
 
-Meine Praxis für Traumatherapie und Coaching finden Sie im wunderschönen Aquariana Praxis- und Seminarzentrum, Berlin-Kreuzberg. 
+Meine Praxis für Traumatherapie und Coaching finden Sie im wunderschönen Aquariana Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-Kreuzberg, nahe dem Bergmannkiez. 
 
-Ich biete dort Traumatherapie nach dem Heilpraktikergesetz an. Das bedeutet, dass ich Ihnen ohne lange Wartezeit oder Anträge bei einer Krankenkasse Unterstützung anbieten kann, jedoch keine Kassenzulassung als Psychotherapeutin habe. 
+Ich biete dort Traumatherapie nach dem Heilpraktikergesetz an. Das bedeutet, dass ich Ihnen zeitnah und ohne Anträge bei einer Krankenkasse Unterstützung anbieten kann, jedoch keine Kassenzulassung habe. 
 
 ![]()
 
 
 ## Wann ist eine Traumatherapie hilfreich? 
-Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Verletzungen** in Ihrem Leben erfahren haben und diese verletzenden Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. Ob eine Erfahrung nicht verarbeitet werden konnte, zeigt sich mit der Zeit. Es ist völlig normal, wenn Sie sich nach einem schockierenden Erlebnis erschüttert fühlen und/oder trauern. 
+Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Verletzungen** in Ihrem Leben erfahren haben und diese verletzenden Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. Zunächst ist es völlig normal, wenn Sie sich nach einem schockierenden Erlebnis erschüttert fühlen und/oder trauern. Erst mit der Zeit zeigt sich, ob eine Erfahrung die eigenen psychischen Kapazitäten zur Verarbeitung übersteigt
 
-Direkt nach solchen Erfahrungen kann eine psychologische Begleitung mit einem Fokus auf Ihre Ressourcen sehr hilfreich sein, damit Sie sich gut wieder stabilisieren und keine Traumatisierung entsteht. Oft können hier auch Freunde oder Familie helfen. Ist die soziale Unterstützung und Ihre Resilienz hoch genug, integriert sich eine negative Erfahrung und wird zu einer Erinnerung von vielen, die Sie in Ihrem Leben sammeln. Kurz nach einem Geschehen würde man jedoch noch nicht von einem Trauma sprechen, von einem Schock möglicherweise schon. 
+Direkt nach Belastungserfahrungen kann eine psychologische Begleitung mit einem Fokus auf Ihre Ressourcen sehr hilfreich sein, damit Sie sich gut wieder stabilisieren und keine Traumatisierung entsteht. Oft können hier auch Freunde oder Familie helfen. Ist die soziale Unterstützung und Ihre Resilienz hoch genug, integriert sich eine negative Erfahrung und wird zu einer Erinnerung von vielen, die Sie in Ihrem Leben sammeln. Kurz nach einem Geschehen würde man jedoch noch nicht von einem Trauma sprechen, von einem Schock möglicherweise schon. 
 
-Ob eine tiefergehende Erschütterung **zurückbleibt** (Traumatisierung) lässt sich daran erkennen, wenn man sich beispielsweise auch nach vielen Monaten noch sehr erschüttert oder traurig fühlt, Alpträume oder Zwänge entwickelt hat oder das Vertrauen ins Leben sich nicht wieder herstellen lässt. Dann ist es Zeit, Unterstützung in Form einer Traumatherapie zu suchen.  
+Ob eine tiefergehende Erschütterung ihres seelischen Gleichgewichts **zurückbleibt** (Traumatisierung) lässt sich daran erkennen, wenn man sich beispielsweise nach vielen Monaten später noch sehr erschüttert oder traurig fühlt, Alpträume oder Zwänge entwickelt oder das Vertrauen ins Leben sich nicht wieder herstellen lässt. Dann ist es Zeit, Unterstützung in Form einer Traumatherapie zu suchen.  
 
-Die Auswirkungen mancher Verletzungen können sich auch erst nach Jahren oder sogar Jahrzehnten zeigen. Das kann z.B. bei einem Bindungstrauma aus der Kindheit auftreten. Viele Betroffene treten auch erst einmal die Flucht nach vorne an und konzentrieren sich völlig auf die anstehenden Probleme des Alltags. Wenn man dann bereit ist, sich für eine Verarbeitung (auch Integration genannt) zu öffnen und mögliche Einschränkungen in der Lebensqualität oder psychische Symptomen nicht mehr hinnehmen will, dann bietet eine Traumatherapie neue Wege zur Integration der Vergangenheit.  
+Die Auswirkungen mancher Verletzungen können sich auch erst **nach Jahren** oder sogar Jahrzehnten zeigen. Manche Betroffene treten nach Belastungserfahrungen die Flucht nach vorne an und konzentrieren sich völlig auf die anstehenden Probleme des Alltags. Es ist nicht ungewöhnlich, erst länger nach den Erfahrungen sich bereit zu fühlen, sich für eine Verarbeitung (auch Integration genannt) zu öffnen. V.a. wenn man Einschränkungen in der Lebensqualität oder psychische Symptome nicht mehr hinnehmen will, dann bietet eine Traumatherapie neue Wege zur Integration der Vergangenheit.  
 
 ## Woran erkennt man unverarbeitete seelische Verletzungen? 
-Ganz wesentlich hängt das von Ihrer Lebensqualität ab: Haben Sie psychologische Symptome, die Sie in Ihrer Lebensqualität einschränken? **Haben Sie den Verdacht**, dass diese Symptome aufgrund von seelischen Verletzungen aufgetreten sein könnten? Oft erinnert man sich an negative Erfahrungen, es kann aber genauso gut ein unbestimmtes Gefühl sein, dass da mal was war. Gerade wenn man in der Kindheit seelischen Verletzungen erlebt hat oder man über längere Zeit verletzenden Umständen ausgesetzt war oder völlig unerwartete plötzliche Ereignisse stattfanden, kann unser psychisches System in der Lage sein, die konkreten Umstände zu verdrängen.  
+Wichtig ist daher Ihre Wahrnehmung. 
 
-Wichtig ist daher Ihre Wahrnehmung. Wenn Sie den Eindruck haben, dass bei Ihnen ein einmaliges Schocktrauma oder sogar eine Serie von seelischen Verletzungen aufgetreten sein könnten und deswegen Ihre Lebensqualität später eingeschränkt ist, dann ist es ratsam, eine Traumatherapie auszuprobieren. 
+1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
+2. **Haben Sie den Verdacht**, dass diese Symptome aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, handeln, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit oder Missbrauch. 
 
-Für eine belastbare Diagnose benötigt es ein persönliches Gespräch mit einem Therapeuten oder einer Therapeutin. Teilweise zeigen sich Verletzungen auch erst im Rahmen einer Therapie, wenn mehr Vertrauen zum Therapeuten aufgebaut werden konnte. Bei Beschwerden, die sich auch körperlich zeigen, wie z.B. psychosomatischen Beschwerden, ist es sehr emfpehlenswert, wenn Sie sich auch medizinisch klären lassen, ob organische Ursachen vorliegen.  
+--> Oft erinnert man sich an die Belastungserfahrungen, es kann aber genauso gut ein unbestimmtes Gefühl sein, dass da mal was war. Denn unser psychisches System ist zu unserem eigenen Schutz in der Lage, Erinnerungen gut in uns zu verstecken, sodass wir keinen oder nur bruchstückhaften Zugang mehr dazu haben.    
+
+Für eine belastbare Diagnose benötigt es ein persönliches Gespräch mit einem Therapeuten oder einer Therapeutin. Teilweise zeigen sich die seelischen Folgen von Belastungserfahrungen erst im Rahmen einer Therapie, wenn mehr Vertrauen zum Therapeuten oder zur Therapeutin aufgebaut werden konnte. 
+
+Bei Beschwerden, die sich auch körperlich zeigen, wie z.B. psychosomatischen Beschwerden, bitte ich darum, dass Sie ärztlich klären lassen, ob organische Ursachen vorliegen.  
 
 
 ### Anhaltspunke für Sie
-Nehmen Sie sich oft als ausgebrannt oder überfordert in Ihrem Leben wahr? 
+Entwickelt wurde Traumatherapie vor allem für die Posttraumatische Belastungsstörung (PTBS). Es können jedoch eine ganze Reihe an anderen Symptomen nach Belastungserfahrungen auftreten. 
+- Nehmen Sie sich oft als **ausgebrannt** oder überfordert in Ihrem Leben wahr, haben aber den Eindruck, dass Sie lieber mehr arbeiten, als sich auf Entspannung einzulassen, weil sonst vielleicht Erinnerungen hochkommen könnten? 
+- Helfen Ihnen allgemein als sinnvoll angesehene Tipps für eine bessere Stressbewältigung einfach nicht, obwohl Sie schon das ein oder andere ausprobiert haben?
+- Haben Sie den Eindruck, dass Sie zu wenig oder **zu viel essen**, um mit Belastungserfahrungen besser klar zu kommen? 
+- Haben Sie das **Vertrauen ins Leben verloren** oder sind oft misstrauisch, wo andere in Ihrer Umgebung mehr Vertrauen aufbringen können?
+- Haben Sie den Eindruck, in negativen Glaubenssätzen festzuhängen? Haben Sie sich schon öfters vorgenommen, anders in bestimmten Situationen zu reagieren, aber dann wiederholen Sie wieder **eingefahrene Muster**?
+- Fühlen Sie sich oft **schuldig** oder nehmen viel zu viel persönlich oder erwischen Sie sich bei **Selbstabwertungsspiralen**?
+- Psychische Symptome können sein: Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Depression.
 
-Vielleicht haben Sie psychische Symptome, wie Unsicherheit, Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder umgekehrt, die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Beziehungsunfähigkeit, Depression oder sich grundlos mutlos fühlend? 
+All dies können Anhaltspunkte sein, dass eine Traumatherapie Sie unterstützt, mehr Lebensqualität zu erfahren.  
 
-Ein weiterer Hinsweis kann auch sein, dass z.B. allgemeine Tipps für eine bessere Stressbewältigung einfach nicht helfen wollen. Selbstabwertungsspiralen, innere Schuldzuweisunge, ein grundsätzliches Misstrauen dem Leben gegenüber können ebenfalls Anhaltspunkte sein, dass eine Traumatherapie Sie unterstützt, mehr Lebensqualität zu erfahren.  
-
-Nicht in eine Traumatherapie gehören organisch verursachte Depression, Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn oder Süchte (Heroin, Kokain, Alkohol etc.). In solchen Fällen kann eine Traumatherapie nur begleitend angeboten werden, ist jedoch nicht geeignet zur alleinigen Behandlung solcher Krankheitsbilder.  
+Nicht in eine Traumatherapie gehören organisch verursachte bipolare Störungen, Schizophrenie, akute Essstörungen, Amnesien aufgrund von Verletzungen am Gehirn oder Süchte (Heroin, Kokain, Alkohol etc.). In solchen Fällen kann eine Traumatherapie nur begleitend angeboten werden, ist jedoch nicht geeignet zur alleinigen Behandlung solcher Krankheitsbilder.  
 
 ### Was ist ein Trauma?
-Was Menschen an Schrecken in der Menschheitsgeschichte überstanden haben, ist erstaunlich. Wir haben erstaunliche Resilienzfähigkeiten in uns, manchmal aber **überfordert das Leben** unsere seelische Verarbeitungskapazität. Was genau ein Trauma auslöst, lässt sich daher nicht allgemein gültig für alle Menschen vorhersagen. 
+Was Menschen an Schrecken in der Menschheitsgeschichte überstanden haben, ist erstaunlich. Wir alle haben daher Resilienzfähigkeiten in uns. 
+
+Aber manchmal **überfordert das Leben** unsere seelische Verarbeitungskapazität. Was genau ein Trauma auslöst, lässt sich nicht allgemein gültig für alle Menschen vorhersagen. 
 
 Traumatisierende Erfahrungen sind in der Regel **einschneidende Ereignisse**. Jedoch sind das nicht nur Kriegserlebnisse oder Massenvergewaltigung.  Es können Arbeitsunfälle, Vernachlässigung in der Kindheit, sexuelle Nötigung, Suchtprobleme der Eltern, der plötzliche Tod eines geliebten Kindes, Mobbing und vieles mehr sein. 
 
-Eine abwertende, innere Bewertung, "alle anderen haben x, y, z doch auch überstanden", ist wenig heilsam. Neben der Frage, wie schwer etwas grundsätzlich uns erschüttern kann, spielt auch die Frage, wie psychisch stabil und wie alt wir in dem Moment der Erfahrung waren und ob wir uns noch als selbstwirksam wahrnehmen konnten oder uns ausgeliefert gefühlt haben. 
+Eine abwertende, innere Bewertung, "alle anderen haben x,y,z doch auch überstanden", ist wenig heilsam. Neben der Frage, wie schwerwiegend grundsätzlich ein Erlebnis ist, spielt auch die Frage, wie psychisch stabil und wie alt wir in dem Moment der Erfahrung waren, und ob wir im Anschluss der Erfahrung ein tragfähiges soziales Netz zum Auffangen hatten, ein große Rolle. Außerdem kann auch ausschlaggebend sein, ob wir uns noch als selbstwirksam wahrnehmen konnten oder uns ausgeliefert gefühlt haben.  
 
-Haben zwei Menschen einen Fahrradunfall und steigen unvorhergesehen über den Lenker ab, hat der eine vielleicht nur eine gut verheilende Verstauchung in den Handgelenken, der andere bricht sich das Handgelenk und hat noch Jahre danach mit Versteifungen zu kämpfen. Hier würde sich Vorwürfe machen auch nicht weiterhelfen, nur die Frage, welche Maßnahmen wieder mehr Bewegung ins Handgelenk bringen, Geduld und Selbsliebe. Und so ist das auch mit der Psyche.   
+Haben zwei Menschen einen Fahrradunfall und steigen unvorhergesehen über den Lenker ab, hat der eine vielleicht nur eine gut verheilende Verstauchung in den Handgelenken, der andere bricht sich das Handgelenk und hat noch Jahre danach mit Versteifungen zu kämpfen. Hier würde sich-Vorwürfe-machen und Vergleich mit dem anderen Unfallopfer auch nicht weiterhelfen. Hilfreich ist nur die Frage, welche Maßnahmen nunmehr wieder mehr Bewegung ins Handgelenk bringen, dazu eine Portion Geduld und Selbsliebe. Und so ist das auch mit unserer Psyche.   
 
 
 ### Regeneration für unsere Seele
@@ -51,13 +63,26 @@ Wenn wir merken, dass wir bereit sind, die Einschränkungen der Lebensqualität 
 In einer **Traumatherapie** dürfen sich alte Muster und damals überlastenden Erfahrungen auf ganz sanfte Art zeigen, im Hier und Jetzt, aber ohne erneut zu überlasten. Dazu brauchen wir ein **Gefühl von Sicherheit, von Getragen sein.** Sonst lässt unser psychisches System keinen direkten Zugriff auf unsere Verletzungen zu. 
 
 ## Traumatherapie, ein ganzheitlicher Weg zu einem kraftvollen Leben
-Eine Traumatherapie besteht aus drei Schritten, die sich wiederholen und aufeinander aufbauen. Dadurch entsteht **ein gangbarer, zuverlässiger Weg** in ein selbstbestimmtes Leben. Verletzungen und Überlastungen aus der Vergangenheit können sich auswirken, als ob man keinen Einfluss auf das eigene Leben hat. Stattdessen darf man sich nun wieder ans Steuer seines Lebens setzen. Als Heilpraktikerin für Psychotherapie bin ich dabei keine Chirurgin, die an Ihrer Seele schneidet und näht, eher eine Art Reisebegleiterin, die auf einen sicheren und liebevollen Weg achtet.
+Eine Traumatherapie besteht aus drei Schritten, die sich wiederholen und aufeinander aufbauen. Dadurch entsteht **ein gangbarer, zuverlässiger Weg** in ein selbstbestimmtes Leben. Verletzungen und Überlastungen aus der Vergangenheit bewirken oft das Gefühl, als ob man keinen Einfluss auf das eigene Leben hat. Man sei dem Schicksal oder anderen Menschen ausgeliefert. Stattdessen setzt man sich nun wieder ans Steuer seines Lebens. 
+1. **Innere Sicherheit** erzeugen, Vertrauen in sich wahrnehmen, in der Zeit während der Therapie verlässlich aufbauen, sodass neue Erfahrungen in den Alltag hineingetragen werden können. Man braucht ein zuverlässiges Gegengewicht zu den Belastungen der Vergangenheit. 
+2. Sich den Erfahrungen in sich auf vorsichtige Weise nähern, mitfühlend für sich werden. Denn für die Integration braucht es letztlich nicht viel: **Geduld mit sich, Achtsamkeit, Mitgefühl, ein Bezeugen** der Verletzung.  
+3. Mit der geschaffenen Integration **wieder Neues im Leben erschaffen**. Würde man die Belastung der Vergangenheit einfach nur "wegmachen", entstünde Leere, nicht mehr Lebensqualität. Das Neue in Ihrem Leben kann alles sein, was Ihnen wichtig ist: mehr Energie für Körper und Seele, einen besseren Umgang mit einer chronischen Erkrankung, eine liebevolle Partnerschaft, mehr Vertrauen ins Leben, eine Berufung finden etc, eine harmonischere Beziehung zu den eigenen Kindern.
 
-1. **Innere Sicherheit** erzeugen, Vertrauen in sich wahrnehmen, in der Zeit während der Therapie verlässlich aufbauen, sodass neue Erfahrungen in den Alltag hineingetragen werden können. 
-2. Sich den Erfahrungen in sich, die sich noch nicht harmonisch integriert haben, auf vorsichtige Weise in ganz kleinen Stücken nähern, mitfühlend für sich werden. Denn für die Integration braucht es letztlich nicht viel: **Geduld mit sich, Achtsamkeit, Mitgefühl, ein Bezeugen** der Verletzung. 
-3. Mit der geschaffenen Integration **wieder Neues im Leben erschaffen**. Gleich, ob man sich wieder mehr Energie für den Körper erschaffen will, einen besseren Umgang mit einer chronischen Erkrankung, eine liebevolle Partnerschaft, mehr Vertrauen ins Leben.
+Tiefenpsychologische und verhaltenstherapeutische Ansätze in der Psychotherapie greifen in der Regel auf konkrete Behandlungsrahmen zurück. 
 
-Tiefenpsychologische und verhaltenstherapeutische Ansätze greifen in der Regel auf einen konkreten Behandlungsrahmen zurück. In die Traumatherapie fließen alle Ansätze ein, die sich als wirksam herausgestellt haben. Es ist vielmehr Selbstschrauber-Werkstatt, dahingehend, wie Sie Ihr Leben gestalten wollen. Ich suche nach den für Sie passenden Werkzeuge, Sie wenden sie an.
+In die Traumatherapie fließen alle Ansätze ein, die sich in den letzten 150 Jahren als hilfreich für traumatisierte Menschen herausgestellt haben. Die Therapieansätze werden ständig weiterentwickelt. Was sich auf Dauer nicht beweisen kann, wird wieder aussortiert. Die Methoden werden aus allen verfügbaren Quellen zusammengetragen. Daher gibt es auch sehr viele sehr unterschiedliche Ansätze, je nachdem, welcher Ausbildungsweg genommen wird, was ein Therapeut oder eine Therapeutin selbst gut vermitteln kann, ob jemand seinen Ausbildungsweg in einer klassischen Therapierichtung begonnen hat oder nicht. 
+
+Gleich, aus welcher Richtung ein Traumatherapeut sich dieser Therapieform zugewandt hat: Der Klient oder die Klientin wird in allen Lebensbezügen ernst genommen und nicht analysiert. 
+
+**Mein Ansätze haben nach mehreren Jahren Ausbildung ihre Wurzeln in:** 
+- psychodynamisch-imaginativer Traumatherapie nach Luise Reddemann.
+- enaktive Traumatherapie nach Ellert Nijenhuis.
+- EMDR nach Francine Shapiro und weitere danach entwickelte bifokale Ansätze.
+- Hypnotherapie nach Gunther Schmidt.
+- CleanLanguage und CleanSpace nach Roger Grove.
+- EFT nach Dawson Church.
+- Achtsamkeitspraxis nach Dan Siegel.
+- TaumaCentered NeuroCoaching nach Mark Robert Waldman.
 
 
 ## Zusammen geht es leichter
