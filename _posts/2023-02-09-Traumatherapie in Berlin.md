@@ -25,7 +25,7 @@ Direkt nach Belastungserfahrungen kann eine psychologische Begleitung mit einem 
 Ob eine tiefere Erschütterung ihres seelischen Gleichgewichts zurückbleibt - **Traumatisierung** -, lässt sich daran erkennen, wenn man sich beispielsweise nach vielen Monaten oder sogar Jahre bis Jahrzehnte später noch sehr erschüttert oder traurig fühlt, Alpträume, Zwänge oder andere psychologische Symptome entwickelt oder ein Grund-Vertrauen ins Leben verloren hat. Dann ist es Zeit, Unterstützung in Form einer Traumatherapie zu suchen.  
 
 
-## Woran erkennt man unverarbeitete seelische Verletzungen? 
+## Woran erkennt man unverarbeitete Belastungserfahrungen? 
 Nehmen Sie Ihre Wahrnehmung ernst, vertrauen Sie sich. Sie sind der Experte, die Expertin Ihres Lebens: 
 1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
 2. **Haben Sie den Verdacht**, dass diese Symptome aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit oder Mobbing handeln. 
