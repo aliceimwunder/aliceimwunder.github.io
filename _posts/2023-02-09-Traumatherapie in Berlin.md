@@ -123,6 +123,8 @@ Eine psychotherapeutische Sitzung umfasst 50 min.
 
 Empfehlenswert ist ein wöchentlicher Rhythmus der Sitzungen. Je nach Ihrem Bedarf sind andere zeitliche Gestaltungsformen möglich, von einem zweiwöchentlichen Rhythmus bis zu mehrmals pro Woche. 
 
+Seelische Heilung geschieht immer im eigenen Rhythmus des Menschen. **Wie lange eine Traumatherapie dauert**, kann man vorher nicht sagen. Grobe Erfahrungswerte können sein. Bei einem Schocktrauma (ein einmaliges tief unter die Haut gehendes Belastungserlebnis), dass noch nicht Jahre zurückliegt, kann sich in 12-24h als behandelbar darstellen. Jahrelange Vernachlässigum in der Kindheit bedeutet, dass man viel an Selbstfürsorge nachholen darf. Hier reden wir eher von 170-200h, ohne eine Gewähr für diese Dauer geben zu können. 
+
 Als Heilpraktikerin für Psychotherapie kann ich eine Traumatherapie in der Regel nur für Selbstzahler anbieten. 
 
 **Kosten: 80,-€**/Sitzung in einer fortlaufenden Therapie. 
