@@ -5,7 +5,7 @@ title: Der Wunsch nach Heilung und Traumatherapie (HeilPrG)
 
 Foto von <a href="https://unsplash.com/de/@ddealmeida?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Dan DeAlmeida</a> auf <a href="https://unsplash.com/de/fotos/klarer-spielzeugmarmor-mit-reflexion-der-kuste-Qr0Dvl8YQtU?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
 
-Leider kann man nicht seriös seelische Heilung versprechen und ein solches Versprechen einhalten. Manchmal wünschte ich mir sehr, das ging. Aber grundsätzlich ist es gut, dass niemand eine Seele aufklappen, hinsichtlich eines bestimmten Ergebnisses daran herumschneiden und wieder zunähen kann. 
+Leider kann man nicht seriös seelische Heilung versprechen und ein solches Versprechen einhalten. Manchmal wünschte ich mir, das ginge. Aber grundsätzlich ist es gut, dass niemand eine Seele aufklappen, hinsichtlich eines bestimmten Ergebnisses daran herumschneiden und wieder zunähen kann. 
 
 Unabhängig davon haben wir manchmal eine tiefe Sehnsucht nach Heilung. Je nach den aktuellen Symptomen suchen wir dann nach etwas Passendem, das zu den gegenwärtigen Bedürfnissen passt. Wenn Sie diese Seite aufrufen, dann liegt es nahe, dass Sie auf der Suche nach **seelischer Regeneration** sind. 
 
