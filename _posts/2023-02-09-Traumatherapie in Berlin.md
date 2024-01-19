@@ -12,7 +12,7 @@ Unabhängig davon haben wir manchmal eine tiefe Sehnsucht nach Heilung. Je nach 
 Denn einen Zeit-Raum aufzusuchen, in dem seelische Regeneration geschehen kann, Unterstützung und Halt für sich mit fundierten therapeutischen Techniken zu erhalten, das geht natürlich schon, um diesem Bedürfnis nach mehr seelischer Ausgeglichenheit nachzukommen.   
 
 ### Praxisraum - eine Zeit für Sie - ein Raum für Sie
-Sie finden hier Informationen, wozu eine Traumatherapie Ihnen dienlich sein kann, welche Kosten und Aufwand auf Sie zukommen und wie Sie bei mir eine Traumatherapie nach dem HeilPrG aufnehmen können.   
+Sie finden hier Informationen, wozu eine Traumatherapie Ihnen dienen kann, welche Kosten und Aufwand auf Sie zukommen und wie Sie bei mir eine Traumatherapie nach dem HeilPrG aufnehmen können.   
 
 Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, finden Sie im wunderschönen Aquariana Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-**Kreuzberg**, nahe dem Bergmannkiez. 
 
