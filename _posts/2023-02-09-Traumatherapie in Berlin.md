@@ -21,11 +21,12 @@ Ich biete dort **Traumatherapie** nach dem Heilpraktikergesetz an. Das heißt, i
 **Wissen Sie bereits, dass Sie einer Traumatherapie eine Chance geben wollen?**
 Dann können Sie sich direkt einen Termin für ein kostenfreies, unverbindliches Erstgespräch von ca. 20 min. buchen. 
 
-[Terminbuchung per zoom](https://traumatherapie.youcanbook.me) 
+**[Terminbuchung per zoom](https://traumatherapie.youcanbook.me)** 
 
 oder Sie wenden sich per 
 - **Email**: info@alicewindolf.de oder
-- **Tel**: 0160 704 7080 oder
+- **Tel**: 0160 704 7080
+  
 an mich.
 
 Dann können Sie sich ein persönliches Bild von mir machen, erste Fragen klären und zusammen passende Termine für die Therapie finden. 
