@@ -5,11 +5,11 @@ title: Der Wunsch nach Heilung und Traumatherapie (HeilPrG)
 
 Foto von <a href="https://unsplash.com/de/@ddealmeida?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Dan DeAlmeida</a> auf <a href="https://unsplash.com/de/fotos/klarer-spielzeugmarmor-mit-reflexion-der-kuste-Qr0Dvl8YQtU?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
 
-Leider kann man nicht seriös seelische Heilung versprechen und ein solches Versprechen einhalten. Manchmal wünschte ich mir, das ginge, um meinen Klient:innen zu schnelleren Ergebnissen zu verhelfen. Letztlich ist es gut, dass niemand eine Seele aufklappen, hinsichtlich eines bestimmten Ergebnisses daran herumschneiden und wieder zunähen kann. 
+Manchmal gibt es Momente im Leben, in denen Sehnsucht nach Heilung in uns wächst. Je nach den aktuellen Symptomen suchen wir dann nach etwas Passendem, das zu unseren Bedürfnissen passt. Wenn Sie diese Seite aufrufen, dann liegt es nahe, dass Sie auf der Suche nach **seelischer Regeneration** sind. 
 
-Unabhängig davon gibt es immer wieder Momente im Leben, in denen Sehnsucht nach Heilung in uns wächst. Je nach den aktuellen Symptomen suchen wir dann nach etwas Passendem, das zu unseren Bedürfnissen passt. Wenn Sie diese Seite aufrufen, dann liegt es nahe, dass Sie auf der Suche nach **seelischer Regeneration** sind. 
+Leider kann man nicht seriös seelische Heilung versprechen, was ich persönlich auch sehr beruhigend finde. Denn das bedeutet, dass wir selbst über uns bestimmen können: unser inneres Erleben wird immer von innen heraus erzeugt. Mit guter Begleitung können wir ein Verarbeiten der vergangenen Belastungserfahrungen und daraus entstehendes **post-traumatisches Wachstum** aus eigener Kraft bewirken.   
 
-Denn auch wenn es seelische Heilung nicht auf Knopfdruck gibt, so ist es möglich, einen **Zeit-Raum aufzusuchen**, in dem seelische Regeneration geschehen kann. Unterstützung und Halt für sich mit fundierten therapeutischen Techniken zu erhalten, das geht natürlich schon, um einem Bedürfnis nach mehr seelischer Ausgeglichenheit, Heilung, Zentriertheit, Selbstbestimmtheit oder Kraft nachzukommen.   
+Auch wenn es seelische Heilung weder in Tablettenform noch auf Knopfdruck gibt, so ist es möglich, einen **Zeit-Raum aufzusuchen**, in dem seelische Regeneration geschehen kann. Unterstützung und Halt für sich mit fundierten therapeutischen Techniken zu erhalten, das geht natürlich schon, um einem Bedürfnis nach mehr seelischer Ausgeglichenheit, Zentriertheit, Selbstbestimmtheit oder Kraft nachzukommen. 
 
 ### Praxisraum - eine Zeit für Sie - ein Raum für Sie
 Sie finden hier Informationen, wie Ihnen eine **Traumatherapie** dienen kann, welche Kosten und Aufwand auf Sie zukommen und wie Sie bei mir eine Traumatherapie nach dem HeilPrG aufnehmen können.   
@@ -132,15 +132,23 @@ Eine psychotherapeutische Sitzung umfasst 50 min.
 
 Empfehlenswert ist ein wöchentlicher Rhythmus der Sitzungen. Je nach Ihrem Bedarf sind andere zeitliche Gestaltungsformen möglich, von einem zweiwöchentlichen Rhythmus bis zu mehrmals pro Woche. 
 
-Seelische Heilung geschieht immer im eigenen Rhythmus des Menschen. **Wie lange eine Traumatherapie dauert**, kann man vorher nicht sagen. Grobe Erfahrungswerte können sein. Bei einem Schocktrauma (ein einmaliges tief unter die Haut gehendes Belastungserlebnis), dass noch nicht Jahre zurückliegt, kann sich in 12-24h als behandelbar darstellen. Jahrelange Vernachlässigum in der Kindheit bedeutet, dass man viel an Selbstfürsorge nachholen darf. Hier reden wir eher von 170-200h, ohne eine Gewähr für diese Dauer geben zu können. 
+Seelische Regeneration geschieht immer im eigenen Rhythmus eines Menschen. **Wie lange eine Traumatherapie dauert**, kann man vorher nicht sagen. Grobe Erfahrungswerte können sein. Bei einem Schocktrauma (ein einmaliges tief unter die Haut gehendes Belastungserlebnis), dass noch nicht Jahre zurückliegt, kann sich in 12-24h als behandelbar darstellen. Jahrelange Vernachlässigum in der Kindheit bedeutet, dass man viel an Selbstfürsorge nachholen darf. Hier reden wir eher von 170-200h, ohne eine Gewähr für diese Dauer geben zu können. 
 
 Als Heilpraktikerin für Psychotherapie kann ich eine Traumatherapie in der Regel nur für Selbstzahler anbieten. 
 
 **Kosten: 80,-€**/Sitzung in einer fortlaufenden Therapie. 
 
-Ein telefonisches Vorgespräch zur Klärung von Fragen bzw. für einen ersten Eindruck à ca. 20 min biete ich kostenfrei an. (Auch per zoom mit Video ist möglich.)
+Ein telefonisches Vorgespräch zur Klärung von Fragen bzw. für einen ersten Eindruck à ca. 20 min biete ich kostenfrei an. 
 
 Gesetzliche Krankenkassen dürfen die Kosten einer Heilpraktikerin für Psychotherapie nicht übernehmen. Private (Zusatz-)Versicherungen übernehmen nur dann die Kosten der Psychotherapie, wenn im Vertrag ausdrücklich die Kosten für einen Heilpraktiker *für Psychotherapie* enthalten sind. 
 
 ### Habe ich Ihr Interesse an einer Traumatherapie geweckt?
-Sie können sich direkt per Email info@alicewindolf.de oder telefonisch 01607047080 bei mir melden und wir vereinbaren einen Termin. 
+Dann können Sie sich direkt einen Termin für ein kostenfreies, unverbindliches Erstgespräch von ca. 20 min. buchen. 
+
+**[Terminbuchung per zoom](https://traumatherapie.youcanbook.me)** 
+
+oder Sie wenden sich per 
+- **Email**: info@alicewindolf.de oder
+- **Tel**: 0160 704 7080
+  
+an mich.
