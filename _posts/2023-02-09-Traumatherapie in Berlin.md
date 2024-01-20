@@ -36,51 +36,49 @@ Dann finden Sie weitere Informationen dazu:
   
 
 ## Wann ist eine Traumatherapie hilfreich? 
-Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
-
-Direkt nach Belastungserfahrungen kann eine psychologische Begleitung mit einem Fokus auf Ihre Ressourcen sehr hilfreich sein, damit Sie sich gut wieder stabilisieren und keine Traumatisierung entsteht. Oft können hier auch Freunde oder Familie helfen. Ist die soziale Unterstützung und Ihre Resilienz hoch genug, integriert sich eine negative Erfahrung und wird zu einer Erinnerung von vielen, die Sie in Ihrem Leben sammeln. Kurz nach einem Geschehen würde man noch nicht von einem Trauma sprechen (von einem **Schock** unter Umständen schon). Wenn Sie Begleitung direkt nach einer Belastungserfahrung benötigen, biete ich Ihnen gerne eine ressourcenorientierte Kurzzeittherapie oder Innere Kindheilung - Coaching an.  
-
-Ob eine tiefere Erschütterung des seelischen Gleichgewichts zurückgeblieben ist - **Traumatisierung** -, lässt sich z.B. daran erkennen, dass man sich nach vielen Monaten oder sogar Jahren bis Jahrzehnten später noch erschüttert oder traurig fühlt, Alpträume, Zwänge oder andere psychologische Symptome entwickelt oder das Grund-Vertrauen ins Leben verloren hat. Dann ist es Zeit, Unterstützung in Form einer Traumatherapie zu suchen.  
-
+Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. Ob eine tiefere Erschütterung des seelischen Gleichgewichts nach einiger Zeit zurückgeblieben ist - **Traumatisierung** -, lässt sich z.B. daran erkennen, dass man sich nach vielen Monaten oder sogar Jahren bis Jahrzehnten später noch erschüttert oder traurig fühlt, Alpträume, Zwänge oder andere psychologische Symptome entwickelt oder das Grund-Vertrauen ins Leben verloren hat. 
 
 ## Woran erkennt man unverarbeitete Belastungserfahrungen? 
-Nehmen Sie Ihre Wahrnehmung ernst, vertrauen Sie sich. Sie sind der Experte, die Expertin Ihres Lebens. Es gibt nicht das eine Symptome, das alle Betroffenen nach überfordernden Belastungserfahrungen etwickeln. Auf einer Meta-Ebene kann man sagen: 
+Nehmen Sie Ihre Wahrnehmung ernst, vertrauen Sie sich. Sie sind der Experte, die Expertin Ihres Lebens. Es gibt nicht das EINE Symptome, das alle Betroffenen nach überfordernden Belastungserfahrungen entwickeln. Auf einer Meta-Ebene kann man sagen: 
 1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
-2. **Haben Sie den Verdacht**, dass diese Symptome aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit oder Mobbing handeln. 
+2. **Haben Sie den Verdacht**, dass diese Symptome aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit (Entwicklungstrauma) oder Mobbing handeln. 
 
---> Manchmal erinnert man sich an konkrete Belastungserfahrungen, es kann aber genauso gut ein **unbestimmtes Gefühl** sein, dass da mal was war. Denn unser psychisches System ist zu unserem eigenen Schutz in der Lage, Erinnerungen tief in uns zu verstecken, sodass wir keinen oder nur bruchstückhaften Zugang mehr dazu haben. Ob Sie konkrete Erinnerungen haben oder nicht, ist für den Erfolg einer Traumatherapie nicht wichtig.     
+--> Manchmal erinnert man sich die Belastungserfahrungen, es kann aber genauso gut ein **unbestimmtes Gefühl** sein, dass da mal was war. Denn unser psychisches System ist zu unserem eigenen **Schutz** in der Lage, Erinnerungen tief in uns zu verstecken, sodass wir keinen oder nur bruchstückhaften Zugang mehr dazu haben. Ob Sie konkrete Erinnerungen haben oder nicht, ist für den Erfolg einer Traumatherapie nicht wichtig.     
 
-Für eine *belastbare Diagnose* benötigt es ein **persönliches Gespräch** mit einem Therapeuten oder einer Therapeutin. Teilweise zeigen sich die seelischen Folgen von Belastungserfahrungen erst im Rahmen einer Therapie, wenn mehr Vertrauen zum Therapeuten oder zur Therapeutin aufgebaut werden konnte. 
+Für eine belastbare Diagnose benötigt es ein **persönliches Gespräch** mit einem Therapeuten oder einer Therapeutin. Teilweise zeigen sich die seelischen Folgen von Belastungserfahrungen allerdings erst im Rahmen einer Therapie, wenn mehr Vertrauen zum Therapeuten oder zur Therapeutin aufgebaut werden konnte. 
 
-Bei Beschwerden, die sich auch körperlich zeigen, wie z.B. psychosomatischen Beschwerden, Migräne, Übelkeit, Schmerzen ist unbedingt angeraten, ärztlich klären zu lassen, ob organische Ursachen vorliegen. Aber gerade im Bereich Traumatherapie beginnt man sich dann dafür zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten.  
+Bei Beschwerden, die sich auch körperlich zeigen, wie z.B. psychosomatischen Beschwerden, Migräne, Übelkeit, Schmerzen ist unbedingt angeraten, ärztlich klären zu lassen, ob organische Ursachen vorliegen. (Gerade im Bereich Traumatherapie beginnen Betroffene sich dann für dieses Thema zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten.)  
 
 
 ### Anhaltspunke für Sie
-Entwickelt wurde Traumatherapie zu Beginn für die Posttraumatische Belastungsstörung (PTBS). Es können jedoch eine ganze Reihe anderer Symptomen nach Belastungserfahrungen auftreten. Fast immer steht man mit den eigenen Gefühlen auf Kriegsfuß: entweder man unternimmt alles, um nichts zu fühlen und kann  irgendwann nichts mehr fühlen, womit auch positive Gefühle abgeschnitten werden, oder man heftige Gefühle, die einem unangenehm sind, die sich einfach nicht regulieren lassen wollen. Manchmal schafft man es sogar, von einem Extrem ins andere zu fallen - innerlich wie abgestorben und dann später wieder zur auslösenden Situation unangemessen heftige Gefühle. 
-- Nehmen Sie sich oft als **ausgebrannt** oder überfordert in Ihrem Leben wahr, haben aber den Eindruck, dass Sie lieber nicht weniger arbeiten, weil sonst vielleicht unangenehme Gefühle hochkommen könnten? 
-- Helfen Ihnen allgemein als sinnvoll angesehene Tipps für eine bessere Stressbewältigung einfach nicht, obwohl Sie schon das ein oder andere ausprobiert haben? Sie sind fast immer in einem inneren Spannungszustand, den Sie vielleicht sogar in selbstschädigenden Verhalten abbauen?
-- Haben Sie den Eindruck, dass Sie zu wenig oder zu viel **essen**, Computer spielen, zu viel Fernsehen, in social media scrollen, um mit Belastungserfahrungen besser klar zu kommen? 
-- Haben Sie das **Vertrauen ins Leben verloren** oder sind oft misstrauisch, wo andere in Ihrer Umgebung mehr Vertrauen aufbringen können?
+Entwickelt wurde Traumatherapie v.a. für den Klassiker: die **Posttraumatische Belastungsstörung** (PTBS). 
+
+Es können jedoch auch andere Symptomen nach unverarbeiteten Belastungserfahrungen auftreten. 
+- Sie haben Probleme, Ihre Gefühle zu regulieren? Sei es, dass Sie nichts so richtig fühlen (womit zugleich positive Gefühle abgeschnitten sind), oder heftige, unangenehme Gefühle nicht in den Griff bekommen? (Bei Entwicklungstraumata hat man möglicherweise nie gelernt, Gefühle angemessen zu regulieren.)
+- Nehmen Sie sich oft als **ausgebrannt** oder überfordert in Ihrem Leben wahr, haben aber den Eindruck, dass Sie lieber nicht weniger arbeiten, weil sonst vielleicht unangenehme Gefühle hochkommen könnten?
+- Helfen Ihnen allgemein als sinnvoll angesehene Tipps für eine bessere Stressbewältigung nicht, obwohl Sie schon einiges ausprobiert haben? Sie sind fast immer in einem **inneren Spannungszustand**, den Sie vielleicht sogar in selbstschädigenden Verhalten abbauen?
+- Würden Sie gerne eine nährende Beziehung oder Freundschaften führen, aber wenn Sie interessante Menschen näher kennenlernen, **stoßen Sie** sie weg, auch wenn Sie das eigentlich nicht wollen? Oder umgekehrt, haben Sie den Eindruck immer denselben Typ Mensch kennenzulernen, mit/an dem Sie auf ähnliche Weise scheitern?
+- Haben Sie den Eindruck, dass Sie zu wenig oder zu viel **essen**, zu viel Computer spielen, zu viel Fernsehen, in social media scrollen, und könnte das mit Belastungserfahrungen in Ihrer Vergangenheit zusammenhängen? 
+- Haben Sie das **Vertrauen ins Leben verloren** oder sind oft misstrauisch, wo andere in Ihrer Umgebung mehr Vertrauen aufbringen?
 - Haben Sie den Eindruck, in negativen Glaubenssätzen festzuhängen? Haben Sie sich schon öfters vorgenommen, anders in bestimmten Situationen zu reagieren, aber dann wiederholen Sie wieder **eingefahrene Muster**?
 - Fühlen Sie sich oft **schuldig** oder nehmen viel zu viel persönlich oder erwischen Sie sich häufiger bei zermürbenden **Selbstabwertungsspiralen**?
 - Psychische **Symptome** können sein: Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Depression.
-- Fehlt ein Teil Ihrer Kindheit oder Jugend in Ihren Erinnerungen?
-  
+- **Fehlt** ein Teil der Kindheit/Jugend oder bei Erwachsenen nach einem Schock in den Erinnerungen?
 
-All dies können Anhaltspunkte sein, dass eine Traumatherapie Sie unterstützen wird, mehr Lebensqualität zu erfahren.  
+Weder müssen die Symptome genau so auftreten, noch müssen alle oder mehrere bei Ihnen auftreten. Es handelt sich nur um Anhaltspunkte, dass eine Traumatherapie Sie unterstützen wird, mehr Lebensqualität zu erfahren.
 
-Traumatherape ist nur für seelisch bedingte Symptome geeignet. Nicht in eine Traumatherapie gehören organisch verursachte Erkrankungen, wie Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn und auch keine akuten Essstörungen oder Süchte (Heroin, Kokain, fortgeschrittener Alkoholismus etc.). In solchen Fällen kann eine Traumatherapie in Einzelfällen begleitend angeboten werden, ist jedoch nicht geeignet zur alleinigen Behandlung solcher Krankheitsbilder.  
+Traumatherape ist nur für **seelisch bedingte Symptome** geeignet. Nicht in eine Traumatherapie gehören organisch verursachte Erkrankungen, wie Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn und auch keine akuten Essstörungen oder Süchte (Heroin, Kokain, fortgeschrittener Alkoholismus etc.). In solchen Fällen kann eine Traumatherapie in Einzelfällen begleitend angeboten werden, ist jedoch nicht geeignet zur alleinigen Behandlung solcher Krankheitsbilder.  
 
 ### Was ist ein Trauma?
 Was Menschen an Schrecken in der Menschheitsgeschichte überstanden haben, ist erstaunlich. Wir alle haben daher Resilienzfähigkeiten in uns. 
 
 Aber manchmal **überfordert das Leben** unsere seelische Verarbeitungskapazität. Was genau ein Trauma auslöst, lässt sich nicht allgemein gültig für alle Menschen vorhersagen. 
 
-Traumatisierende Erfahrungen sind in der Regel **einschneidende Ereignisse**. Jedoch sind das nicht nur Kriegserlebnisse oder Massenvergewaltigung.  Es können Arbeitsunfälle, Vernachlässigung in der Kindheit, Arbeitsplatzverlust als Alleinverdiener:in, sexuelle Nötigung, Suchtprobleme der Eltern, der plötzliche Tod eines geliebten Kindes, Mobbing und vieles mehr sein. 
+Traumatisierende Erfahrungen sind in der Regel **einschneidende Ereignisse**. Jedoch sind das nicht nur Kriegserlebnisse oder Massenvergewaltigung.  Es können Arbeitsunfälle, Vernachlässigung in der Kindheit, Arbeitsplatzverlust als Alleinverdiener:in, sexuelle Nötigung, Suchtprobleme der Eltern, der plötzliche Tod eines geliebten Kindes, Mobbing, Vergewaltigung, Stalking, medizinische Behandlungsmethoden bei schweren körperlichen Erkrankungen und vieles mehr sein. 
 
-Eine abwertende, innere **Bewertung** **sich** **gegenüber**, "alle anderen haben x,y,z doch auch überstanden", ist wenig heilsam. Neben der Frage, wie schwerwiegend grundsätzlich ein Erlebnis ist, spielt auch Fragen eine Rolle, wie psychisch stabil und wie alt wir in dem Moment der Belastungserfahrung waren, und ob wir im Anschluss der Erfahrung ein tragfähiges soziales Netz zum Auffangen hatten. Außerdem kann auch ausschlaggebend sein, ob wir uns während der Belastung noch als selbstwirksam wahrnehmen konnten oder uns ausgeliefert gefühlt haben.  
+Eine selbstabwertende **Bewertung** **sich** **gegenüber**, "alle anderen haben x,y,z doch auch überstanden", ist wenig heilsam. Neben der Frage, wie schwerwiegend grundsätzlich ein Erlebnis ist, spielt auch Fragen eine Rolle, wie psychisch stabil und wie alt wir in dem Moment der Belastungserfahrung waren, und ob wir im Anschluss der Erfahrung ein tragfähiges soziales Netz zum Auffangen hatten. Außerdem kann auch ausschlaggebend sein, ob wir uns während der Belastung noch als selbstwirksam wahrnehmen konnten oder uns ausgeliefert gefühlt haben.  
 
-Das lässt sich vergleichen: Haben zwei Menschen einen Fahrradunfall und steigen unvorhergesehen über den Lenker ab, hat der eine vielleicht nur eine verheilende Verstauchung in den Handgelenken, der andere bricht sich das Handgelenk und hat noch Jahre danach mit Versteifungen zu kämpfen. Hier würden Sich-Vorwürfe-machen und Vergleich mit dem anderen Unfallopfer nicht weiterhelfen. Hilfreich ist nur die Frage, welche Maßnahmen nunmehr wieder mehr Bewegung ins Handgelenk bringen, dazu eine **Portion Geduld**. So ist das auch mit unserer Psyche und unsere Resilienzfähigkeit.   
+Vielleicht hilft Ihnen folgender Vergleich: Haben zwei Menschen einen Fahrradunfall und steigen unvorhergesehen über den Lenker ab, hat der eine vielleicht nur eine zügig verheilende Verstauchung in den Handgelenken erlitten, der andere bricht sich das Handgelenk und hat noch Jahre danach mit Versteifungen zu kämpfen. Hier würden Sich-Vorwürfe-machen und Vergleich mit dem anderen Unfallopfer nicht weiterhelfen. Hilfreich ist nur die Frage, welche Maßnahmen nunmehr wieder mehr Bewegung ins Handgelenk bringen, dazu eine **Portion Geduld**. So ist das auch mit unserer Psyche und unsere Resilienzfähigkeit.   
 
 
 ### Wunsch nach Regeneration für unsere Seele
