@@ -58,15 +58,17 @@ Es können jedoch auch andere Symptomen nach unverarbeiteten Belastungserfahrung
 - Sie haben Probleme, Ihre Gefühle zu regulieren? Sei es, dass Sie nichts so richtig fühlen (womit zugleich positive Gefühle abgeschnitten sind), oder heftige, unangenehme Gefühle nicht in den Griff bekommen? (Bei Entwicklungstraumata hat man möglicherweise nie gelernt, Gefühle angemessen zu regulieren.)
 - Nehmen Sie sich oft als **ausgebrannt** oder überfordert in Ihrem Leben wahr, haben aber den Eindruck, dass Sie lieber nicht weniger arbeiten, weil sonst vielleicht unangenehme Gefühle hochkommen könnten?
 - Helfen Ihnen allgemein als sinnvoll angesehene Tipps für eine bessere Stressbewältigung nicht, obwohl Sie schon einiges ausprobiert haben? Sie sind fast immer in einem **inneren Spannungszustand**, den Sie vielleicht sogar in selbstschädigenden Verhalten abbauen?
-- Würden Sie gerne eine nährende Beziehung oder Freundschaften führen, aber wenn Sie interessante Menschen näher kennenlernen, **stoßen Sie** sie weg, auch wenn Sie das eigentlich nicht wollen? Oder umgekehrt, haben Sie den Eindruck immer denselben Typ Mensch kennenzulernen, mit/an dem Sie auf ähnliche Weise scheitern?
+- Würden Sie gerne eine nährende Beziehung oder Freundschaften führen, aber wenn Sie interessante Menschen näher kennenlernen, **stoßen Sie** sie weg, auch wenn Sie das eigentlich nicht wollen? Oder umgekehrt, haben Sie den Eindruck, wieder toxische Menschen kennenzulernen, mit/an denen Sie auf ähnliche Weise scheitern?
 - Haben Sie den Eindruck, dass Sie zu wenig oder zu viel **essen**, zu viel Computer spielen, zu viel Fernsehen, in social media scrollen, und könnte das mit Belastungserfahrungen in Ihrer Vergangenheit zusammenhängen? 
 - Haben Sie das **Vertrauen ins Leben verloren** oder sind oft misstrauisch, wo andere in Ihrer Umgebung mehr Vertrauen aufbringen?
 - Haben Sie den Eindruck, in negativen Glaubenssätzen festzuhängen? Haben Sie sich schon öfters vorgenommen, anders in bestimmten Situationen zu reagieren, aber dann wiederholen Sie wieder **eingefahrene Muster**?
 - Fühlen Sie sich oft **schuldig** oder nehmen viel zu viel persönlich oder erwischen Sie sich häufiger bei zermürbenden **Selbstabwertungsspiralen**?
-- Psychische **Symptome** können sein: Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Depression.
+- Versuchen Sie es immer allen Recht zu machen, aus Sorge, sonst vielleicht nicht mehr gemocht oder anerkannt zu werden?
 - **Fehlt** ein Teil der Kindheit/Jugend oder bei Erwachsenen nach einem Schock in den Erinnerungen?
+- Psychische **Symptome** können sein: Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Depression.
+- Manche chronischen Erkrankungen können im Zusammenhang mit Trauma stehen, sodass ein Versuch mit dieser Therapieform in Betracht gezogen werden kann. (z.B. chronische Erschöpfung (CFS), chronisches Schmerzsyndrom). 
 
-Weder müssen die Symptome genau so auftreten, noch müssen alle oder mehrere bei Ihnen auftreten. Es handelt sich nur um Anhaltspunkte, dass eine Traumatherapie Sie unterstützen wird, mehr Lebensqualität zu erfahren.
+Weder müssen die aufgezählten Symptome genau so auftreten, noch müssen alle oder mehrere bei Ihnen auftreten. Es handelt sich nur um Anhaltspunkte, dass eine Traumatherapie Sie unterstützen wird, mehr Lebensqualität zu erfahren. Eine sorgfältige Diagnose ersetzen diese Anhaltspunkte nicht. 
 
 Traumatherape ist nur für **seelisch bedingte Symptome** geeignet. Nicht in eine Traumatherapie gehören organisch verursachte Erkrankungen, wie Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn und auch keine akuten Essstörungen oder Süchte (Heroin, Kokain, fortgeschrittener Alkoholismus etc.). In solchen Fällen kann eine Traumatherapie in Einzelfällen begleitend angeboten werden, ist jedoch nicht geeignet zur alleinigen Behandlung solcher Krankheitsbilder.  
 
