@@ -5,20 +5,30 @@ title: Der Wunsch nach Heilung und Traumatherapie (HeilPrG)
 
 Foto von <a href="https://unsplash.com/de/@ddealmeida?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Dan DeAlmeida</a> auf <a href="https://unsplash.com/de/fotos/klarer-spielzeugmarmor-mit-reflexion-der-kuste-Qr0Dvl8YQtU?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
 
-Leider kann man nicht seriös seelische Heilung versprechen und ein solches Versprechen einhalten. Manchmal wünschte ich mir, das ginge. Aber grundsätzlich ist es gut, dass niemand eine Seele aufklappen, hinsichtlich eines bestimmten Ergebnisses daran herumschneiden und wieder zunähen kann. 
+Leider kann man nicht seriös seelische Heilung versprechen und ein solches Versprechen einhalten. Manchmal wünschte ich mir, das ginge, um meinen Klient:innen zu schnelleren Ergebnissen zu verhelfen. Letztlich ist es gut, dass niemand eine Seele aufklappen, hinsichtlich eines bestimmten Ergebnisses daran herumschneiden und wieder zunähen kann. 
 
-Unabhängig davon haben wir manchmal eine tiefe Sehnsucht nach Heilung. Je nach den aktuellen Symptomen suchen wir dann nach etwas Passendem, das zu den gegenwärtigen Bedürfnissen passt. Wenn Sie diese Seite aufrufen, dann liegt es nahe, dass Sie auf der Suche nach **seelischer Regeneration** sind. 
+Unabhängig davon gibt es immer wieder Momente im Leben, in denen Sehnsucht nach Heilung in uns wächst. Je nach den aktuellen Symptomen suchen wir dann nach etwas Passendem, das zu unseren Bedürfnissen passt. Wenn Sie diese Seite aufrufen, dann liegt es nahe, dass Sie auf der Suche nach **seelischer Regeneration** sind. 
 
-Denn einen Zeit-Raum aufzusuchen, in dem seelische Regeneration geschehen kann, Unterstützung und Halt für sich mit fundierten therapeutischen Techniken zu erhalten, das geht natürlich schon, um diesem Bedürfnis nach mehr seelischer Ausgeglichenheit nachzukommen.   
+Denn auch wenn es seelische Heilung nicht auf Knopfdruck gibt, so ist es möglich, einen **Zeit-Raum aufzusuchen**, in dem seelische Regeneration geschehen kann. Unterstützung und Halt für sich mit fundierten therapeutischen Techniken zu erhalten, das geht natürlich schon, um einem Bedürfnis nach mehr seelischer Ausgeglichenheit, Heilung, Zentriertheit, Selbstbestimmtheit oder Kraft nachzukommen.   
 
 ### Praxisraum - eine Zeit für Sie - ein Raum für Sie
-Sie finden hier Informationen, wozu eine Traumatherapie Ihnen dienen kann, welche Kosten und Aufwand auf Sie zukommen und wie Sie bei mir eine Traumatherapie nach dem HeilPrG aufnehmen können.   
+Sie finden hier Informationen, wie Ihnen eine **Traumatherapie** dienen kann, welche Kosten und Aufwand auf Sie zukommen und wie Sie bei mir eine Traumatherapie nach dem HeilPrG aufnehmen können.   
 
 Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, finden Sie im wunderschönen Aquariana Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-**Kreuzberg**, nahe dem Bergmannkiez. 
 
 Ich biete dort **Traumatherapie** nach dem Heilpraktikergesetz an. Das heißt, ich kann Ihnen zeitnah und ohne Anträge bei einer Krankenkasse Unterstützung in Form einer Traumatherapie anbieten. Allerdings bedeutet dass, das keine Kassenzulassung vorliegt, sodass diese Therapieform für Selbstzahler gedacht ist. 
 
-Wissen Sie bereits, dass Sie einer Traumatherapie eine Chance geben wollen? Dann können Sie sich direkt per Email info@alicewindolf.de oder Tel: 0160 704 7080 an mich wenden und wir vereinbaren einen ersten telefonischen Kontakt, um sich ein persönliches Bild von mir machen zu können, Fragen zu klären, passende Termine zu finden. 
+**Wissen Sie bereits, dass Sie einer Traumatherapie eine Chance geben wollen?**
+Dann können Sie sich direkt einen Termin für ein kostenfreies, unverbindliches Erstgespräch von ca. 20 min. buchen. 
+
+[Terminbuchung per zoom](https://traumatherapie.youcanbook.me) 
+
+oder Sie wenden sich per 
+- **Email**: info@alicewindolf.de oder
+- **Tel**: 0160 704 7080 oder
+an mich.
+
+Dann können Sie sich ein persönliches Bild von mir machen, erste Fragen klären und zusammen passende Termine für die Therapie finden. 
 
 Sie wollen **erst genauer wissen**, was es mit einer Traumatherapie auf sich hat?
 
