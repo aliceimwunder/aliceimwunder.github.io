@@ -1,6 +1,7 @@
 ---
 layout: default
 ---
+<br/>
 <img src="/assets/images/Landingpage Traumatherapie.jpg" alt="" style="max-width:100%"/>
 
 <header>
