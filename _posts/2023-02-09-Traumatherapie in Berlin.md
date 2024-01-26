@@ -3,14 +3,12 @@ layout: default
 ---
 <img src="assets/images/2023-02-09-Landingpage.jpg" alt="" style="max-width:100%"/>
 
-## Traumatherapie in Berlin Kreuzberg nach dem HeilprG
+# Traumatherapie in Berlin Kreuzberg nach dem HeilprG
 Haben Sie das Bedürfnis nach seelischer Regeneration? Sind Sie auf der Suche nach einer Traumatherapie in Berlin? 
 
 Aktuell habe ich einzelne Therapieplätze frei. 
 
-Mit guter Begleitung können Sie ein Verarbeiten der vergangenen Belastungserfahrungen und daraus entstehendes **post-traumatisches Wachstum** aus eigener Kraft bewirken. 
-
-Auch wenn es seelische Heilung leider nicht auf Knopfdruck gibt, so ist es möglich, einen **Zeit-Raum aufzusuchen**, in dem seelische Regeneration geschehen kann. Bei mir finden Sie Unterstützung in einer Traumatherapie nach dem HeilPrG. 
+Mit guter Begleitung können Sie ein Verarbeiten der vergangenen Belastungserfahrungen und daraus entstehendes **post-traumatisches Wachstum** in sich bewirken. 
 
 ### Praxisraum - eine Zeit für Sie - ein Raum für Sie
 Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, liegt im wunderschönen **Aquariana** Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-Kreuzberg, nahe dem Bergmannkiez. 
