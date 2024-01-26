@@ -110,7 +110,7 @@ In die Traumatherapie fließen alle Ansätze ein, die sich in den letzten 150 Ja
 ### Mein ganzheitlicher Ansatz
 Gleich, aus welcher Richtung ein Traumatherapeut sich dieser Therapieform zugewandt hat: Der Klient oder die Klientin wird in allen Lebensbezügen ernst genommen - ganzheitlich Lösungen angeboten - und nicht analysiert.
 
-**Mein Ansätze haben nach mehreren Jahren Ausbildung ihre Wurzeln in:** 
+**Mein Ansätze haben nach mehreren Jahren Ausbildung an der arche medica, Berlin, ihre Wurzeln in:** 
 - psychodynamisch-imaginative Traumatherapie nach Luise Reddemann.
 - enaktive Traumatherapie nach Ellert Nijenhuis.
 - EMDR nach Francine Shapiro und weitere danach entwickelte bifokale Ansätze.
