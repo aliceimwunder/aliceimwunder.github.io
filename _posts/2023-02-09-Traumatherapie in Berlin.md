@@ -44,21 +44,20 @@ Dann können Sie hier weiterlesen:
 ## Wann ist eine Traumatherapie hilfreich? 
 Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
 
-Traumatherapie ist eine sehr ressourcenorientierte Therapieform, sodass sie bei allen seelischen **Stressfolgeerkrankungen** eine gute Option zur Begleitung ist (dann mit einer zu den Symptomen passenden Diagnose).  
+Traumatherapie ist eine sehr ressourcenorientierte Therapieform, sodass sie auch bei anderen seelischen **Stressfolgeerkrankungen** eine gute Option zur Begleitung ist (dann mit einer zu den Symptomen passenden Diagnose).  
 
 ## Woran erkennt man unverarbeitete Belastungserfahrungen? 
-Sicher kann man von einer Traumafolgestörung ausgehen, wenn man die klassischen Symptome einer **Posttraumatischen Belastungsstörung** (PTBS) entwickelt hat. Manchmal bemerkt man aber gar nicht, dass man diese Symptome hat, beispielsweise dass das Nervensystem immer in Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für normal hält. Das ist v.a. bei komplexer Traumafolgestörungen möglich. 
+Sicher kann man von einer Traumafolgestörung ausgehen, wenn man die klassischen Symptome einer **Posttraumatischen Belastungsstörung** (PTBS) entwickelt hat. Manchmal bemerkt man aber gar nicht, dass man diese Symptome hat, beispielsweise dass das Nervensystem immer in Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für normal hält. Das ist v.a. bei [komplexer Traumafolgestörungen](https://psylife.de/magazin/icd-11-was-bringt-uns-die-neue-diagnose-komplexe-ptbs) möglich. (Luise Reddemann zu der Problematik der Diagnose von komplexen Traumafolgestörungen.)
 
 Daher vertrauen Sie sich. Sie sind die Expertin, der Experte Ihres Lebens. Aus einer Meta-Perspektive kann man sagen:    
 1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
 2. **Haben Sie den Verdacht**, dass diese Symptome aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit (Entwicklungstrauma) oder Mobbing handeln. 
 
---> Manchmal erinnert man sich die Belastungserfahrungen, es kann aber genauso gut ein **unbestimmtes Gefühl** sein, dass da mal was war. Denn unser psychisches System ist zu unserem eigenen **Schutz** in der Lage, Erinnerungen tief in uns zu verstecken, sodass wir keinen oder nur bruchstückhaften Zugang mehr dazu haben. Ob Sie konkrete Erinnerungen haben oder nicht, ist für den Erfolg einer Traumatherapie nicht ausschlaggebend.     
+--> Manchmal erinnert man sich die Belastungserfahrungen, es kann aber genauso gut ein **unbestimmtes Gefühl** sein, dass da mal was war. Denn unser psychisches System ist zu unserem eigenen **Schutz** in der Lage, Erinnerungen tief in uns zu verstecken (verdrängen), sodass wir keinen oder nur bruchstückhaften Zugang mehr dazu haben. Ob Sie konkrete Erinnerungen haben oder nicht, ist für den Erfolg einer Traumatherapie nicht ausschlaggebend.      
 
 Gerade bei unklaren Ursachen benötigt es für eine belastbare Diagnose ein ausführliches **persönliches Gespräch** mit einer Therapeutin oder Therapeutin (Anamnese). Teilweise wird man sich der seelischen Folgen von Belastungserfahrungen sogar erst im Rahmen einer Therapie bewusst, wenn mehr Vertrauen zum Therapeuten oder zur Therapeutin aufgebaut werden konnte. Die Psyche braucht dann den Schutzmechanismus der Verdrängung nicht mehr so intensiv.  
 
 Bei Beschwerden, die sich auch körperlich zeigen, insb. **psychosomatischen Beschwerden**, aber Migräne, Übelkeit, Schmerzen ist unbedingt angeraten, ärztlich klären zu lassen, dass **keine organische Ursachen** vorliegen. (Gerade im Bereich Traumatherapie beginnen Betroffene sich allerdings dann für dieses Thema zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten, auf der Suche, ob die Ursachen mehr in seelischen als in organischen Vorgängen liegen.)  
-
 
 ### Anhaltspunke für Sie
 Entwickelt wurde Traumatherapie v.a. für den Klassiker: die **Posttraumatische Belastungsstörung** (PTBS). 
@@ -66,23 +65,24 @@ Entwickelt wurde Traumatherapie v.a. für den Klassiker: die **Posttraumatische 
 Es können jedoch auch andere Symptomen nach unverarbeiteten Belastungserfahrungen auftreten. 
 - Sie haben Probleme, Ihre Gefühle zu regulieren? Sei es, dass Sie nichts so richtig fühlen (womit zugleich positive Gefühle abgeschnitten sind), oder heftige, unangenehme Gefühle nicht in den Griff bekommen? (Bei Entwicklungstraumata hat man möglicherweise nie gelernt, Gefühle angemessen zu regulieren.)
 - Nehmen Sie sich oft als **ausgebrannt** oder überfordert in Ihrem Leben wahr, haben aber den Eindruck, dass Sie lieber nicht weniger arbeiten, weil sonst vielleicht unangenehme Gefühle hochkommen könnten?
-- Helfen Ihnen allgemein als sinnvoll angesehene Tipps für eine bessere Stressbewältigung nicht, obwohl Sie schon einiges ausprobiert haben? Sie sind fast immer in einem **inneren Spannungszustand**, den Sie vielleicht sogar in selbstschädigenden Verhalten abbauen?
-- Würden Sie gerne eine nährende Beziehung oder Freundschaften führen, aber wenn Sie interessante Menschen näher kennenlernen, **stoßen Sie** sie weg, auch wenn Sie das eigentlich nicht wollen? Oder umgekehrt, haben Sie den Eindruck, wieder toxische Menschen kennenzulernen, mit/an denen Sie auf ähnliche Weise scheitern?
-- Haben Sie den Eindruck, dass Sie zu wenig oder zu viel **essen**, zu viel Computer spielen, zu viel Fernsehen, in social media scrollen, und könnte das mit Belastungserfahrungen in Ihrer Vergangenheit zusammenhängen? 
+- Helfen Ihnen allgemein als sinnvoll angesehene Tipps für eine bessere Stressbewältigung nicht, obwohl Sie schon einiges ausprobiert haben? Sie sind fast immer in einem **inneren Spannungszustand**, den Sie vielleicht sogar in selbstschädigendem Verhalten abbauen?
+- Würden Sie gerne eine nährende Beziehung oder Freundschaften führen, aber wenn Sie interessante Menschen näher kennenlernen, **stoßen Sie** sie weg, auch wenn Sie das eigentlich nicht wollen? Oder umgekehrt, haben Sie den Eindruck, nur toxische Menschen kennenzulernen, mit/an denen Sie auf ähnliche Weise scheitern?
+- Haben Sie den Eindruck, dass Sie zu wenig oder zu viel **essen**, zu viel Computer spielen, zu viel Fernsehen, in social media scrollen, und könnte das mit Belastungserfahrungen in Ihrer Vergangenheit zusammenhängen?  
 - Haben Sie das **Vertrauen ins Leben verloren** oder sind oft misstrauisch, wo andere in Ihrer Umgebung mehr Vertrauen aufbringen?
-- Haben Sie den Eindruck, in negativen Glaubenssätzen festzuhängen? Haben Sie sich schon öfters vorgenommen, anders in bestimmten Situationen zu reagieren, aber dann wiederholen Sie wieder **eingefahrene Muster**?
+- Haben Sie den Eindruck, in negativen Glaubenssätzen festzuhängen? Haben Sie sich schon öfters vorgenommen, anders in bestimmten Situationen zu reagieren, aber dann wiederholen Sie wieder **eingefahrene Muster**, die aus einer anderen Zeit stammen könnten?
 - Fühlen Sie sich oft **schuldig** oder nehmen viel zu viel persönlich oder erwischen Sie sich häufiger bei zermürbenden **Selbstabwertungsspiralen**?
 - Versuchen Sie es immer allen Recht zu machen, aus Sorge, sonst vielleicht nicht mehr gemocht oder anerkannt zu werden?
-- **Fehlt** ein Teil der Kindheit/Jugend oder bei Erwachsenen nach einem Schock in den Erinnerungen?
-- Psychische **Symptome** können sein: Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, Entfremdung von sich selbst oder die Umwelt wirkt manchmal seltsam fremd auf Sie, psychosomatische Beschwerden, Zwänge, Alpträume, Depression.
-- Manche chronischen Erkrankungen können im Zusammenhang mit Trauma stehen, sodass ein Versuch mit dieser Therapieform in Betracht gezogen werden kann. (z.B. chronische Erschöpfung (CFS), chronisches Schmerzsyndrom). 
+- **Fehlt** ein Teil der Kindheit/Jugend (oder bei Erwachsenen nach einem Schock) in den Erinnerungen?
+- Haben Sie manchmal das Gefühl, neben sich zu stehen (dissoziiert von sich)? Vielleicht auch Entfremdung von sich selbst oder die Umwelt wirkt manchmal seltsam fremd auf Sie, oder finden sich nach Stress an einem Ort selbst wieder, ohne so recht zu wissen, wie Sie dahin gelangt sind? 
+- Psychische **Symptome**, die im Zusammenhang stehen können, sind z.B.: Konzentrationsprobleme, Gedächtnislücken, Angst, Panik, psychosomatische Beschwerden, Zwänge, Alpträume, Depression. Oft sind solche Symptome "komorbid", sie treten gleichzeitig zu einer Traumafolgestörung auf. 
+- Manche chronischen Erkrankungen können im Zusammenhang mit Trauma stehen, sodass diese Therapieform Erleichterung im Umgang mit diesen Krankheiten bringen kann. (z.B. chronische Erschöpfung/CFS, chronisches Schmerzsyndrom, Fibromyalgie, Migräne, Taubheit, Krämpfe). 
 
-Weder müssen die aufgezählten Symptome genau so auftreten, noch müssen alle oder mehrere bei Ihnen auftreten. Es handelt sich nur um Anhaltspunkte, dass eine Traumatherapie Sie unterstützen wird, mehr Lebensqualität zu erfahren. Eine sorgfältige Diagnose ersetzen diese Anhaltspunkte nicht. 
+Weder müssen die aufgezählten Symptome genau so auftreten, noch müssen alle oder mehrere bei Ihnen auftreten. Es handelt sich nur um Anhaltspunkte für Sie, dass eine Traumatherapie Sie unterstützen wird, **mehr Lebensqualität** zu erfahren. Eine sorgfältige Diagnose ersetzen diese Anhaltspunkte nicht. 
 
 Traumatherape ist nur für **seelisch bedingte Symptome** geeignet. Nicht in eine Traumatherapie gehören organisch verursachte Erkrankungen, wie Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn und auch keine akuten Essstörungen oder Süchte (Heroin, Kokain, fortgeschrittener Alkoholismus etc.). In solchen Fällen kann eine Traumatherapie in Einzelfällen begleitend angeboten werden, ist jedoch nicht geeignet zur alleinigen Behandlung solcher Krankheitsbilder.  
 
 ### Was ist ein Trauma?
-Was Menschen an Schrecken in der Menschheitsgeschichte überstanden haben, ist erstaunlich. Wir alle haben daher Resilienzfähigkeiten in uns. 
+Was Menschen an Schrecken in der Menschheitsgeschichte überstanden haben, ist erstaunlich. Wir alle haben daher **Resilienzfähigkeiten** in uns. 
 
 Aber manchmal **überfordert das Leben** unsere seelische Verarbeitungskapazität. Was genau ein Trauma auslöst, lässt sich nicht allgemein gültig für alle Menschen vorhersagen. 
 
