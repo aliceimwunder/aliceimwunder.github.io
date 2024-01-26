@@ -9,7 +9,7 @@ Mit guter Begleitung können Sie ein Verarbeiten der vergangenen Belastungserfah
 Auch wenn es seelische Heilung leider nicht auf Knopfdruck gibt, so ist es möglich, einen **Zeit-Raum aufzusuchen**, in dem seelische Regeneration geschehen kann. Bei mir finden Sie Unterstützung in einer Traumatherapie nach dem HeilPrG. 
 
 ### Praxisraum - eine Zeit für Sie - ein Raum für Sie
-Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, liegt im wunderschönen Aquariana Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-**Kreuzberg**, nahe dem Bergmannkiez. 
+Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, liegt im wunderschönen **Aquariana** Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-Kreuzberg, nahe dem Bergmannkiez. 
 
 Ich biete dort **Traumatherapie** nach dem Heilpraktikergesetz an. Das heißt, ich kann Ihnen zeitnah und ohne Anträge bei einer Krankenkasse einen Therapieplatz anbieten. Allerdings bedeutet es zugleich, dass diese Therapieform für Selbstzahler gedacht ist. 
 
