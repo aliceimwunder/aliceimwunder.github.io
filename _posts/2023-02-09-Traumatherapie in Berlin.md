@@ -1,9 +1,9 @@
 ---
 layout: default
 ---
-<img src="assets/images/2023-02-09-Landingpage.jpg" alt="" style="max-width:100%"/>
+<img src="assets/images/Landingpage Traumatherapie.jpg" alt="" style="max-width:100%"/>
 
-# Traumatherapie in Berlin Kreuzberg nach dem HeilprG
+## Traumatherapie in Berlin Kreuzberg nach dem HeilprG
 Haben Sie das Bedürfnis nach seelischer Regeneration? Sind Sie auf der Suche nach einer Traumatherapie in Berlin? 
 
 Aktuell habe ich einzelne Therapieplätze frei. 
