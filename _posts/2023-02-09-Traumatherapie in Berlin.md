@@ -16,7 +16,7 @@ Aktuell habe ich einzelne Therapieplätze frei.
 Mit guter Begleitung können Sie ein Verarbeiten der vergangenen Belastungserfahrungen und daraus entstehendes **post-traumatisches Wachstum** in sich bewirken. 
 
 ### Praxisraum - eine Zeit für Sie - ein Raum für Sie
-Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, liegt im wunderschönen **Aquariana** Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-Kreuzberg, nahe dem Bergmannkiez. 
+Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, liegt im wunderschönen **Aquariana** Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-Kreuzberg, nahe dem Bergmannkiez. Hier lässt sich Kraft schöpfen und Vertrauen zurückgewinnen. 
 
 Ich biete dort **Traumatherapie** nach dem Heilpraktikergesetz an. Das heißt, ich kann Ihnen zeitnah und ohne Anträge bei einer Krankenkasse einen Therapieplatz anbieten. Allerdings bedeutet es zugleich, dass diese Therapieform nur Selbstzahlern offen steht. 
 
