@@ -17,7 +17,7 @@ Ich biete dort **Traumatherapie** nach dem Heilpraktikergesetz an. Das heißt, i
 
 Kosten: 80,-/Einzelsitzung à 50 min in einer laufenden Therapie. 
 
-**Wissen Sie bereits, dass Sie einer Traumatherapie eine Chance geben wollen?**
+### **Wissen Sie bereits, dass Sie einer Traumatherapie eine Chance geben wollen?**
 Dann können Sie sich direkt einen Termin für ein kostenfreies, unverbindliches Erstgespräch von ca. 20 min. buchen. 
 
 **[Terminbuchung per zoom](https://traumatherapie.youcanbook.me)** 
