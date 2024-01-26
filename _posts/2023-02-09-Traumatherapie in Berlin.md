@@ -35,18 +35,24 @@ Dann können Sie hier weiterlesen:
   
 
 ## Wann ist eine Traumatherapie hilfreich? 
-Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. Ob eine tiefere Erschütterung des seelischen Gleichgewichts nach einiger Zeit zurückgeblieben ist - **Traumatisierung** -, lässt sich z.B. daran erkennen, dass man sich nach vielen Monaten, Jahren oder sogar Jahrzehnten später noch erschüttert oder traurig fühlt, Alpträume, Zwänge oder andere psychologische Symptome entwickelt oder das Grund-Vertrauen ins Leben verloren hat. 
+Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
+
+Ob eine tiefere Erschütterung des seelischen Gleichgewichts nach einiger Zeit zurückgeblieben ist - **Traumatisierung** -, lässt sich z.B. daran erkennen, dass man sich nach vielen Monaten, Jahren oder sogar Jahrzehnten später noch erschüttert oder traurig fühlt, Alpträume, Zwänge oder andere psychologische Symptome entwickelt oder das Grund-Vertrauen ins Leben verloren hat. 
+
+Für alle Stressfolgeerkrankungen können die ressourcenorientierten Tools und darin enthaltene Selbstfürsorgetraining Hilfe leisten.  
 
 ## Woran erkennt man unverarbeitete Belastungserfahrungen? 
-Nehmen Sie Ihre Wahrnehmung ernst, vertrauen Sie sich. Sie sind der Experte, die Expertin Ihres Lebens. Es gibt nicht das EINE Symptome, das alle Betroffenen nach überfordernden Belastungserfahrungen entwickeln. Auf einer Meta-Ebene kann man sagen: 
+Sicher kann man von einer Traumafolgestörung ausgehen, wenn man die klassischen Symptome einer **Posttraumatischen Belastungsstörung** (PTBS) entwickelt hat. Manchmal bemerkt man aber gar nicht, dass man diese Symptome hat, beispielsweise dass das Nervensystem immer im Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für normal hält. 
+
+Vertrauen Sie sich. Sie sind die Expertin, der Experte Ihres Lebens.   
 1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
 2. **Haben Sie den Verdacht**, dass diese Symptome aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit (Entwicklungstrauma) oder Mobbing handeln. 
 
---> Manchmal erinnert man sich die Belastungserfahrungen, es kann aber genauso gut ein **unbestimmtes Gefühl** sein, dass da mal was war. Denn unser psychisches System ist zu unserem eigenen **Schutz** in der Lage, Erinnerungen tief in uns zu verstecken, sodass wir keinen oder nur bruchstückhaften Zugang mehr dazu haben. Ob Sie konkrete Erinnerungen haben oder nicht, ist für den Erfolg einer Traumatherapie nicht wichtig.     
+--> Manchmal erinnert man sich die Belastungserfahrungen, es kann aber genauso gut ein **unbestimmtes Gefühl** sein, dass da mal was war. Denn unser psychisches System ist zu unserem eigenen **Schutz** in der Lage, Erinnerungen tief in uns zu verstecken, sodass wir keinen oder nur bruchstückhaften Zugang mehr dazu haben. Ob Sie konkrete Erinnerungen haben oder nicht, ist für den Erfolg einer Traumatherapie nicht ausschlaggebend.     
 
-Für eine belastbare Diagnose benötigt es ein **persönliches Gespräch** mit einem Therapeuten oder einer Therapeutin. Teilweise zeigen sich die seelischen Folgen von Belastungserfahrungen allerdings erst im Rahmen einer Therapie, wenn mehr Vertrauen zum Therapeuten oder zur Therapeutin aufgebaut werden konnte. 
+Gerade bei unklaren Ursachen benötigt es für eine belastbare Diagnose ein ausführliches **persönliches Gespräch** mit einer Therapeutin oder Therapeutin (Anamnese). Teilweise wird man sich der seelischen Folgen von Belastungserfahrungen sogar erst im Rahmen einer Therapie bewusst, wenn mehr Vertrauen zum Therapeuten oder zur Therapeutin aufgebaut werden konnte. Die Psyche braucht dann den Schutzmechanismus der Verdrängung nicht mehr so intensiv.  
 
-Bei Beschwerden, die sich auch körperlich zeigen, wie z.B. psychosomatischen Beschwerden, Migräne, Übelkeit, Schmerzen ist unbedingt angeraten, ärztlich klären zu lassen, ob organische Ursachen vorliegen. (Gerade im Bereich Traumatherapie beginnen Betroffene sich dann für dieses Thema zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten.)  
+Bei Beschwerden, die sich auch körperlich zeigen, insb. **psychosomatischen Beschwerden**, aber Migräne, Übelkeit, Schmerzen ist unbedingt angeraten, ärztlich klären zu lassen, dass **keine organische Ursachen** vorliegen. (Gerade im Bereich Traumatherapie beginnen Betroffene sich allerdings dann für dieses Thema zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten, auf der Suche, ob die Ursachen mehr in seelischen als in organischen Vorgängen liegen.)  
 
 
 ### Anhaltspunke für Sie
