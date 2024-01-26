@@ -6,9 +6,10 @@ layout: default
 
 <header>
 	<h2>Traumatherapie in Berlin</h2>
+	<p>Es ist erstaunlich, wie viel Menschen vermögen, wenn man es ihnen nur zutraut. (Luise Reddemann)</p>
 </header>
 
-Haben Sie das Bedürfnis nach seelischer Regeneration? Sind Sie auf der Suche nach einer Traumatherapie in Berlin? 
+Haben Sie das **Bedürfnis nach seelischer Regeneration**? Sind Sie auf der Suche nach einer Traumatherapie in Berlin? 
 
 Aktuell habe ich einzelne Therapieplätze frei. 
 
@@ -17,7 +18,7 @@ Mit guter Begleitung können Sie ein Verarbeiten der vergangenen Belastungserfah
 ### Praxisraum - eine Zeit für Sie - ein Raum für Sie
 Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, liegt im wunderschönen **Aquariana** Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-Kreuzberg, nahe dem Bergmannkiez. 
 
-Ich biete dort **Traumatherapie** nach dem Heilpraktikergesetz an. Das heißt, ich kann Ihnen zeitnah und ohne Anträge bei einer Krankenkasse einen Therapieplatz anbieten. Allerdings bedeutet es zugleich, dass diese Therapieform für Selbstzahler gedacht ist. 
+Ich biete dort **Traumatherapie** nach dem Heilpraktikergesetz an. Das heißt, ich kann Ihnen zeitnah und ohne Anträge bei einer Krankenkasse einen Therapieplatz anbieten. Allerdings bedeutet es zugleich, dass diese Therapieform nur Selbstzahlern offen steht. 
 
 Kosten: 80,-/Einzelsitzung à 50 min in einer laufenden Therapie. 
 
@@ -43,14 +44,12 @@ Dann können Sie hier weiterlesen:
 ## Wann ist eine Traumatherapie hilfreich? 
 Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
 
-Ob eine tiefere Erschütterung des seelischen Gleichgewichts nach einiger Zeit zurückgeblieben ist - **Traumatisierung** -, lässt sich z.B. daran erkennen, dass man sich nach vielen Monaten, Jahren oder sogar Jahrzehnten später noch erschüttert oder traurig fühlt, Alpträume, Zwänge oder andere psychologische Symptome entwickelt oder das Grund-Vertrauen ins Leben verloren hat. 
-
-Für alle Stressfolgeerkrankungen können die ressourcenorientierten Tools und darin enthaltene Selbstfürsorgetraining Hilfe leisten.  
+Traumatherapie ist eine sehr ressourcenorientierte Therapieform, sodass sie bei allen seelischen **Stressfolgeerkrankungen** eine gute Option zur Begleitung ist (dann mit einer zu den Symptomen passenden Diagnose).  
 
 ## Woran erkennt man unverarbeitete Belastungserfahrungen? 
-Sicher kann man von einer Traumafolgestörung ausgehen, wenn man die klassischen Symptome einer **Posttraumatischen Belastungsstörung** (PTBS) entwickelt hat. Manchmal bemerkt man aber gar nicht, dass man diese Symptome hat, beispielsweise dass das Nervensystem immer im Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für normal hält. 
+Sicher kann man von einer Traumafolgestörung ausgehen, wenn man die klassischen Symptome einer **Posttraumatischen Belastungsstörung** (PTBS) entwickelt hat. Manchmal bemerkt man aber gar nicht, dass man diese Symptome hat, beispielsweise dass das Nervensystem immer in Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für normal hält. Das ist v.a. bei komplexer Traumafolgestörungen möglich. 
 
-Vertrauen Sie sich. Sie sind die Expertin, der Experte Ihres Lebens.   
+Daher vertrauen Sie sich. Sie sind die Expertin, der Experte Ihres Lebens. Aus einer Meta-Perspektive kann man sagen:    
 1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
 2. **Haben Sie den Verdacht**, dass diese Symptome aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit (Entwicklungstrauma) oder Mobbing handeln. 
 
