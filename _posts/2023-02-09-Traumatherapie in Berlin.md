@@ -1,5 +1,5 @@
 ![Landingapge Traumatherapie hp psych](/assets/2023-02-09-Landingpage.jpg)
-## Traumatherapie in Berlin Kreuzberg
+## Traumatherapie in Berlin Kreuzberg nach dem HeilprG
 Haben Sie das Bedürfnis nach seelischer Regeneration? Sind Sie auf der Suche nach einer Traumatherapie in Berlin? 
 
 Aktuell habe ich einzelne Therapieplätze frei. 
