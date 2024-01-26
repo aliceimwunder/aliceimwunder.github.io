@@ -1,39 +1,40 @@
 ---
-title: Der Wunsch nach Heilung und Traumatherapie (HeilPrG)
+title: Traumatherapie in Berlin Kreuzberg
 ---
-![Inneres Zentrum - Kugel](/assets/2023-02-09-Traumatherapie-Kugel.jpg)
+![Landingapge Traumatherapie hp psych](/assets/2023-02-09-Landingpage.jpg)
 
-Foto von <a href="https://unsplash.com/de/@ddealmeida?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Dan DeAlmeida</a> auf <a href="https://unsplash.com/de/fotos/klarer-spielzeugmarmor-mit-reflexion-der-kuste-Qr0Dvl8YQtU?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
+Haben Sie das Bedürfnis nach seelischer Regeneration? Sind Sie auf der Suche nach einer Traumatherapie in Berlin? 
 
-Manchmal gibt es Momente im Leben, in denen Sehnsucht nach Heilung in uns wächst. Je nach den aktuellen Symptomen suchen wir dann nach etwas Passendem, das zu unseren Bedürfnissen passt. Wenn Sie diese Seite aufrufen, dann liegt es nahe, dass Sie auf der Suche nach **seelischer Regeneration** sind. 
+Aktuell habe ich einzelne Therapieplätze frei. 
 
-Leider kann man nicht seriös seelische Heilung versprechen, was ich persönlich auch sehr beruhigend finde. Denn das bedeutet, dass wir selbst über uns bestimmen können: unser inneres Erleben wird immer von innen heraus erzeugt. Mit guter Begleitung können wir ein Verarbeiten der vergangenen Belastungserfahrungen und daraus entstehendes **post-traumatisches Wachstum** aus eigener Kraft bewirken.   
+Mit guter Begleitung können Sie ein Verarbeiten der vergangenen Belastungserfahrungen und daraus entstehendes **post-traumatisches Wachstum** aus eigener Kraft bewirken. 
 
-Auch wenn es seelische Heilung weder in Tablettenform noch auf Knopfdruck gibt, so ist es möglich, einen **Zeit-Raum aufzusuchen**, in dem seelische Regeneration geschehen kann. Unterstützung und Halt für sich mit fundierten therapeutischen Techniken zu erhalten, das geht natürlich schon, um einem Bedürfnis nach mehr seelischer Ausgeglichenheit, Zentriertheit, Selbstbestimmtheit oder Kraft nachzukommen. 
+Auch wenn es seelische Heilung leider nicht auf Knopfdruck gibt, so ist es möglich, einen **Zeit-Raum aufzusuchen**, in dem seelische Regeneration geschehen kann. Bei mir finden Sie Unterstützung in einer Traumatherapie nach dem HeilPrG. 
 
 ### Praxisraum - eine Zeit für Sie - ein Raum für Sie
-Sie finden hier Informationen, wie Ihnen eine **Traumatherapie** dienen kann, welche Kosten und Aufwand auf Sie zukommen und wie Sie bei mir eine Traumatherapie nach dem HeilPrG aufnehmen können.   
+Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, liegt im wunderschönen Aquariana Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-**Kreuzberg**, nahe dem Bergmannkiez. 
 
-Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, finden Sie im wunderschönen Aquariana Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-**Kreuzberg**, nahe dem Bergmannkiez. 
+Ich biete dort **Traumatherapie** nach dem Heilpraktikergesetz an. Das heißt, ich kann Ihnen zeitnah und ohne Anträge bei einer Krankenkasse einen Therapieplatz anbieten. Allerdings bedeutet es zugleich, dass diese Therapieform für Selbstzahler gedacht ist. 
 
-Ich biete dort **Traumatherapie** nach dem Heilpraktikergesetz an. Das heißt, ich kann Ihnen zeitnah und ohne Anträge bei einer Krankenkasse Unterstützung in Form einer Traumatherapie anbieten. Allerdings bedeutet dass, das keine Kassenzulassung vorliegt, sodass diese Therapieform für Selbstzahler gedacht ist. 
+Kosten: 80,-/Einzelsitzung à 50 min in einer laufenden Therapie. 
 
 **Wissen Sie bereits, dass Sie einer Traumatherapie eine Chance geben wollen?**
 Dann können Sie sich direkt einen Termin für ein kostenfreies, unverbindliches Erstgespräch von ca. 20 min. buchen. 
 
 **[Terminbuchung per zoom](https://traumatherapie.youcanbook.me)** 
 
-oder Sie wenden sich per 
+Machen Sie sich ein persönliches Bild von mir, klären Sie unkompliziert erste Fragen. 
+
+Oder Sie wenden sich per 
 - **Email**: info@alicewindolf.de oder
 - **Tel**: 0160 704 7080
   
 an mich.
 
-Dann können Sie sich ein persönliches Bild von mir machen, erste Fragen klären und zusammen passende Termine für die Therapie finden. 
 
-Sie wollen **erst genauer wissen**, was es mit einer Traumatherapie auf sich hat?
+Sie wollen **erst genauer wissen**, was es mit einer dieser Therapieform auf sich hat?
 
-Dann finden Sie weitere Informationen dazu:
+Dann können Sie hier weiterlesen:
   
 
 ## Wann ist eine Traumatherapie hilfreich? 
