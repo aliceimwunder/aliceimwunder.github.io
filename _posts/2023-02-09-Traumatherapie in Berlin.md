@@ -4,8 +4,7 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie.jpg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2>Willkommen</h2>
-	<p>Traumatherapie in Berlin Kreuzberg</p>
+	<h2>Traumatherapie in Berlin</h2>
 </header>
 
 Haben Sie das Bedürfnis nach seelischer Regeneration? Sind Sie auf der Suche nach einer Traumatherapie in Berlin? 
