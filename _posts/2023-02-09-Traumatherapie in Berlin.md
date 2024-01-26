@@ -156,7 +156,10 @@ Gesetzliche Krankenkassen dürfen die Kosten einer Heilpraktikerin für Psychoth
 ### Habe ich Ihr Interesse an einer Traumatherapie geweckt?
 Dann können Sie sich direkt einen Termin für ein kostenfreies, unverbindliches Erstgespräch von ca. 20 min. buchen. 
 
-**[Terminbuchung per zoom](https://traumatherapie.youcanbook.me)** 
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Terminbuchung für Zoom](https://traumatherapie.youcanbook.me)
+</span>
+
 
 oder Sie wenden sich per 
 - **Email**: info@alicewindolf.de oder
