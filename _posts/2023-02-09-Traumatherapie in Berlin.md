@@ -35,7 +35,7 @@ Dann können Sie hier weiterlesen:
   
 
 ## Wann ist eine Traumatherapie hilfreich? 
-Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. Ob eine tiefere Erschütterung des seelischen Gleichgewichts nach einiger Zeit zurückgeblieben ist - **Traumatisierung** -, lässt sich z.B. daran erkennen, dass man sich nach vielen Monaten oder sogar Jahren bis Jahrzehnten später noch erschüttert oder traurig fühlt, Alpträume, Zwänge oder andere psychologische Symptome entwickelt oder das Grund-Vertrauen ins Leben verloren hat. 
+Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. Ob eine tiefere Erschütterung des seelischen Gleichgewichts nach einiger Zeit zurückgeblieben ist - **Traumatisierung** -, lässt sich z.B. daran erkennen, dass man sich nach vielen Monaten, Jahren oder sogar Jahrzehnten später noch erschüttert oder traurig fühlt, Alpträume, Zwänge oder andere psychologische Symptome entwickelt oder das Grund-Vertrauen ins Leben verloren hat. 
 
 ## Woran erkennt man unverarbeitete Belastungserfahrungen? 
 Nehmen Sie Ihre Wahrnehmung ernst, vertrauen Sie sich. Sie sind der Experte, die Expertin Ihres Lebens. Es gibt nicht das EINE Symptome, das alle Betroffenen nach überfordernden Belastungserfahrungen entwickeln. Auf einer Meta-Ebene kann man sagen: 
