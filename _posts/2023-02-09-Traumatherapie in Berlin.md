@@ -61,6 +61,13 @@ Gerade bei unklaren Ursachen benötigt es für eine belastbare Diagnose ein ausf
 
 Bei Beschwerden, die sich auch körperlich zeigen, insb. **psychosomatischen Beschwerden**, aber Migräne, Übelkeit, Schmerzen ist unbedingt angeraten, ärztlich klären zu lassen, dass **keine organische Ursachen** vorliegen. (Gerade im Bereich Traumatherapie beginnen Betroffene sich allerdings dann für dieses Thema zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten, auf der Suche, ob die Ursachen mehr in seelischen als in organischen Vorgängen liegen.)  
 
+Für ein 20 minütiges unverbindliches und kostenfreies Kennenlerngespräch. 
+
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Terminbuchung für ein Zoom-Meeting](https://traumatherapie.youcanbook.me)
+</span>
+
+
 ### Anhaltspunke für Sie
 Entwickelt wurde Traumatherapie v.a. für den Klassiker: die **Posttraumatische Belastungsstörung** (PTBS). 
 
