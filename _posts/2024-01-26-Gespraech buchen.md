@@ -10,7 +10,6 @@ layout: default
 </header>
 
 ## Mich kennenlernen
-
 Machen Sie sich ein persönliches Bild von mir, klären Sie unkompliziert erste Fragen. 
 
 Per zoom können wir uns kennenlernen und Sie können sich einen persönlichen Eindruck machen.  
