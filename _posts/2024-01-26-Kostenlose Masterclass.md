@@ -6,7 +6,7 @@ layout: default
 
 <header>
 	<h2>Kostenfreie Masterclass - Die fünfte Dimension leben</h2>
-	header>
+</header>
 
 
 ## Wie kann ich mein Bewusstsein entfalten, sodass ich die Fünfte Dimension leben kann
