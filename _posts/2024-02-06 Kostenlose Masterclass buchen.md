@@ -9,9 +9,18 @@ layout: default
 	<p>Es ist erstaunlich, wie viel Menschen vermögen, wenn man es ihnen nur zutraut. (Luise Reddemann)</p>
 </header>
 
-## Kostenfreie Masterclass - Die fünfte Dimension leben
+## Mich kennenlernen
+Machen Sie sich ein persönliches Bild von mir, klären Sie unkompliziert erste Fragen. 
 
-am 21.2.2024, 19:00 bis 20:15 Uhr. 
-auf zoom 
+Per zoom können wir uns kennenlernen und Sie können sich einen persönlichen Eindruck machen.  
 
-Tipps, wie Du im Alltag Deine Schwingung erhöhst. 
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Termin buchen](https://traumatherapie.youcanbook.me)
+</span>
+
+Oder Sie wenden sich per 
+- **Email**: info@alicewindolf.de oder
+- **Tel**: 0160 704 7080
+  
+an mich.
+
