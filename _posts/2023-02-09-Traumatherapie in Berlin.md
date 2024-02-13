@@ -18,7 +18,7 @@ layout: default
 - die Möglichkeit, sofort beginnen zu können.
 - evidenzbasierte und zugleich ganzheitliche Lösungswege. 
 - einen sicheren Raum mitten in Berlin.
-- kostengünstig zu 80,-€/Sitzung (berücksichtigen bitte: nur Selbstzahler:innen).
+- kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur Selbstzahler:innen möglich).
 - kostenfreies unverbindliches Erstgespräch per zoom (oder telefonisch) à 20 min zum Kennenlernen.     
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
