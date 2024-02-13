@@ -10,16 +10,6 @@ Mit „Dimensionen“ sind hier also keine mathematischen Fachbegriffe gemeint. 
 
 ## Wie funktioniert das nun mit dem Wechsel in die 5. Dimension? 
 Wie kannst Du Dich Dich damit leichter, klarer und wohler in Deiner Haut fühlen? 
-Kostenfreier online-Workshop: Lebe Dein bestes Leben! 5. Dimension im Alltag
-
-Auf mehrfache Nachfrage gibt es in diesem kostenlosen Workshop ein Mehr an Infos zur 5. Dimension. 
-
-Im Grunde ist es ganz einfach: Mit der 5. bzw. 3 Dimension wird die Schwingung von bewusstem Sein angegeben. Gerade leben wir in der 3. Dimension auf der Erde und das macht das Leben schwerfällig. Vorgesehen ist spätestens seit 2012 die 5. Dimension.
-
-Mit „Dimensionen“ sind hier also keine mathematischen Fachbegriffe gemeint. In diesem Workshop geht es nur um Deine Bewusstseinsentfaltung und die des gesamten Erdmatrixfeldes. Mit der 5. Dimension fühlt sich durch die höhere Schwingung automatisch das Leben leichter und freundlicher an. 
-
-Wie funktioniert das nun mit dem Wechsel in die 5. Dimension? 
-Wie kannst Du Dich Dich damit leichter, klarer und wohler in Deiner Haut fühlen? 
 
 In Meditationsretreats, auf dem Jakobsweg, beim Après-Ski oder im Urlaub an einem wunderschönen Ort können die meisten Menschen sich viel mehr mit sich und dem Universum verbunden fühlen, haben intuitiv Zugang zu sich selbst. Dann ist es leicht, sich innerlich frei zu fühlen.
 
@@ -27,14 +17,13 @@ Diese besonderen Momente im Leben - sich vielleicht ein bisschen wie ein Einhorn
 
 Falls Du einen solchen Umzug nicht planst: An diesem Abend geht es darum, dass Du Dich zu Hause wohl in Deiner Haut fühlst, genau da, wo du bist: Dich in Deinem Alltag selbst zu lieben, statt Stress und Sorgen im Gedankenkarussell. 
 
-Was Dir dieser Workshop bietet: 
+## Was Dir dieser Workshop bietet: 
 Stell Dir vor, Du begibst Dich auf eine spannende Reise – ganz entspannt von Deinem Sofa aus. Eine Reise zu Dir selbst und Deinen Träumen. Du kannst runterkommen vom stressigen Alltag und Deine Reise führt Dich direkt im Hier und Jetzt in die Entspannung und einem Gefühl von Einklang. 
 
 An diesem Abend findest Du heraus, wie Du in Einklang mit Dir und Deinem Leben kommst. 
 
 Wenn Dich das anspricht, dann zeige ich Dir in diesem kostenfreien online-Workshop, 
 1. wie Du einen Frischekick für Deine Energie bekommst und Leichtigkeit im Alltag erfährst. (Anti-Stress von Donna Eden)
-
 2. im Alltag konstant Deine Schwingung hochhältst, dadurch Stress und Fremdenergien leichter abperlen und Du damit zugleich Heilung für Deine Seele erzeugst (Tipps zur 5. Dimension). 
 
 3. wie Du Klarheit in Deinem Alltag erfährst und eine tiefgehende Aurareinigung für Deinen Energiekörper erfährst (mit Channeling der Energie von Avatar Babaji).
