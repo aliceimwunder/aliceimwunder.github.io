@@ -1,5 +1,6 @@
 ---
 title: Kostenfreier online-Workshop - Lebe Dein bestes Leben! 5. Dimension im Alltag
+---
 
 Auf mehrfache Nachfrage gibt es in diesem kostenlosen Workshop ein Mehr an Infos zur 5. Dimension. 
 
