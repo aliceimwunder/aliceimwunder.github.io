@@ -28,10 +28,10 @@ Stell Dir vor, Du begibst Dich auf eine spannende Reise – ganz entspannt von D
 An diesem Abend findest Du heraus, wie Du in Einklang mit Dir und Deinem Leben kommst. 
 
 Wenn Dich das anspricht, dann zeige ich Dir in diesem kostenfreien online-Workshop, 
-1. wie Du einen Frischekick für Deine Energie bekommst und Leichtigkeit im Alltag erfährst. (Anti-Stress von Donna Eden)
+1. wie Du einen Frischekick für Deine Energie bekommst und jederzeit darauf zurückgreifen kannst? (energetisches Anti-Stress nach Donna Eden)
 2. im Alltag konstant Deine Schwingung hochhältst, dadurch Stress und Fremdenergien leichter abperlen und Du damit zugleich Heilung für Deine Seele erzeugst (Tipps zur 5. Dimension). 
 3. wie Du Klarheit in Deinem Alltag erfährst und eine tiefgehende Aurareinigung für Deinen Energiekörper erfährst (mit Channeling der Energie von Avatar Babaji).
-4. wie Du in Deine Träume und Wünsche eintauchst und Deine Gedanken – statt auf all das, was nicht geht – darauf ausrichtest. (Dein Warum)
+4. wie Du in Deine Träume und Wünsche eintauchst und Deine Gedanken – statt auf all das, was nicht geht – darauf ausrichtest, was geht. (Dein seelisches Warum)
 
 Sei mit Dir im Einklang. Liebe Dein Leben, gleich da, wo Du bist, in Deinem Alltag, auf dem Sofa. 
 
@@ -40,8 +40,8 @@ Am Mittwoch Abend, den 21.2.2024, 19:00 bis 20:30 Uhr.
 Melde Dich gleich an: info@alicewindolf.de 
 Du bekommst von mir die Zugangsdaten. 
 
-Es gibt auch eine Überaschungsverlosung an diesem Abend zu diesem Thema, sei gespannt. 
+Es gibt auch eine Überaschungsverlosung an diesem Abend zu diesem Thema, sei gespannt, wer bis zum Schluss bleibt, kann teilnehmen. 
 
-Und natürlich auch, wie Du Dir regelmäßig Impulse holen kannst, damit Du voll in Deine Kraft kommst, um Deinen Alltag so zu gestalten, dass Du später zurückblicken kannst: also das war eine besondere Zeit für mich. 
+Und natürlich auch, wie Du Dir regelmäßig Impulse holen kannst, damit Du voll in Deine Kraft und Vitalität kommst, um Deinen Alltag so zu gestalten, dass Du später zurückblicken kannst: also das war eine geile (... ähm ich meine natürlich) besondere Zeit für mich. ;-) 
 
  
