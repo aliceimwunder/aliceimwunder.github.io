@@ -66,8 +66,10 @@ Melde Dich gleich an: info@alicewindolf.de
 
 Du bekommst von mir die Zugangsdaten. 
 
-Es gibt auch eine Überaschungsverlosung an diesem Abend zu diesem Thema, sei gespannt. 
+Es gibt auch eine **Überaschungsverlosung** an diesem Abend zu diesem Thema, sei gespannt. 
 
-Und natürlich auch, wie Du Dir regelmäßig Impulse holen kannst, damit Du voll in Deine Kraft kommst, um Deinen Alltag so zu gestalten, dass Du später zurückblicken kannst: also das war eine besondere Zeit für mich. 
+Und natürlich auch, wie es dann weitergehen kann. 
+
+Wie kannst Du Dir regelmäßig Impulse holen, damit Du voll in Deine Kraft kommst, um Deinen Alltag so zu gestalten, dass Du später zurückblicken kannst: also das war eine besondere Zeit für mich. 
 
  
