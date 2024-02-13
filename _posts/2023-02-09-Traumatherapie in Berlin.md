@@ -22,8 +22,7 @@ layout: default
 
 Ich bin Heilpraktikerin für Psychotherapie. Das bedeutet, dass Sie ohne langwierige Beantragung sofort beginnen können. Leider bedeutet es zugleich, dass diese Therapieform nur Selbstzahler:innen offen steht. 
 
-
-Gerne auch vorab ein kostenfreies, unverbindliches Erstgespräch per zoom oder telefonisch von ca. 20 min. 
+Buchen Sie sich gerne vorab ein kostenfreies, unverbindliches Erstgespräch per zoom oder telefonisch von ca. 20 min. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Termin buchen](https://traumatherapie.youcanbook.me)
