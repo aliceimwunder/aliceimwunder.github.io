@@ -4,19 +4,19 @@ title: Kostenfreier online-Workshop - Lebe Dein bestes Leben! 5. Dimension im Al
 
 Auf mehrfache Nachfrage gibt es in diesem kostenlosen Workshop ein Mehr an Infos zur 5. Dimension. 
 
-Im Grunde ist es ganz einfach: Mit der 5. bzw. 3 Dimension wird die Schwingung von bewusstem Sein angegeben. Gerade leben wir in der 3. Dimension auf der Erde und das macht das Leben schwerfällig. Vorgesehen ist spätestens seit 2012 die 5. Dimension.
+Im Grunde ist es ganz einfach: Mit der 5. bzw. 3 Dimension wird die Schwingung von **bewusstem Sein** angegeben. Gerade leben wir in der 3. Dimension auf der Erde und das macht das Leben **schwerfällig**. Vorgesehen ist spätestens seit 2012 die 5. Dimension.
 
-Mit „Dimensionen“ sind hier also keine mathematischen Fachbegriffe gemeint. In diesem Workshop geht es nur um Deine Bewusstseinsentfaltung und die des gesamten Erdmatrixfeldes. Mit der 5. Dimension fühlt sich durch die höhere Schwingung automatisch das Leben leichter und freundlicher an. 
+Mit „Dimensionen“ sind hier also keine mathematischen Fachbegriffe gemeint. In diesem Workshop geht es nur um Deine Bewusstseinsentfaltung und die des gesamten Erdmatrixfeldes. Mit der 5. Dimension fühlt sich durch die höhere Schwingung automatisch das Leben leichter und **freundlicher** an. 
 
 ## Wie funktioniert das nun mit dem Wechsel in die 5. Dimension? 
 Wie kannst Du Dich Dich damit leichter, klarer und wohler in Deiner Haut fühlen? 
 
-In Meditationsretreats, auf dem Jakobsweg, beim Après-Ski oder im Urlaub an einem wunderschönen Ort können die meisten Menschen sich viel mehr mit sich und dem Universum verbunden fühlen, haben intuitiv Zugang zu sich selbst. 
+In Meditationsretreats, auf dem Jakobsweg, beim Après-Ski oder im Urlaub an einem wunderschönen Ort können die meisten Menschen sich viel mehr mit sich und dem Universum **verbunden fühlen**, haben intuitiv Zugang zu sich selbst. 
 
-Dann ist es leicht, sich innerlich frei zu fühlen. Morgens aufzustehen und in sich fest verankert haben: das Leben ist gut. Ich bin okay, wie ich bin. 
+Dann ist es leicht, sich innerlich **frei** zu fühlen. Morgens aufzustehen und in sich fest verankert haben: das Leben ist gut. Ich bin okay, wie ich bin. 
 
 ## Diese besonderen Momente im Leben 
-Sich vielleicht ein bisschen wie ein Einhorn im Glitzerwald zu fühlen oder gelassen wie ein erleuchteter Buddha - steht jedem offen. 
+Sich vielleicht ein bisschen wie ein Einhorn im Glitzerwald zu fühlen oder gelassen wie ein erleuchteter Buddha zu fühlen - steht jedem offen! 
 
 Aber die meiste Zeit verbringen wir nicht im Zen-Kloster oder auf einem Jakobsweg – es sei denn, Du planst ohnehin, in ein Ashram überzuwechseln. 
 
