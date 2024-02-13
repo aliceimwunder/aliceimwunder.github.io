@@ -6,17 +6,18 @@ layout: default
 
 <header>
 	<h2>Traumatherapie</h2>
-	<p>Mit sich in Balance kommen. Wohlfühlen, ohne dass sich die Vergangenheit meldet</p>
-</header>
+	</header>
+
+**Sie suchen:**
 
 Tief durchatmen können und Vertrauen ins Leben haben. Mit Ihren Gefühlen in Harmonie leben. 
 
-Wollen Sie das wieder leben und Ihr Trauma hinter sich lassen? Dann sind Sie bei mir richtig, damit Sie Ihr Leben wieder genießen können. 
+Mit sich in Balance kommen. Wohlfühlen, ohne dass sich die Vergangenheit meldet.
 
-Aktuell habe ich einzelne Therapieplätze frei (Di/Do in Berlin Kreuzberg und Mo/Mi im Osten Brandenburg). 
+Wollen Sie Ihr Trauma hinter sich lassen? Dann sind Sie bei mir richtig, damit Sie Ihr Leben wieder genießen können. 
 
 ### Eine Zeit für Sie - ein Raum für Sie
-Ich biete Ihnen 
+**Ich biete Ihnen** 
 - die Möglichkeit, sofort beginnen zu können.
 - evidenzbasierte und zugleich ganzheitliche Lösungswege. 
 - einen sicheren Raum mitten in Berlin.
