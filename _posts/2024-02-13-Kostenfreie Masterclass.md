@@ -2,9 +2,9 @@
 title: Kostenfreier online-Workshop - Lebe Dein bestes Leben! 5. Dimension im Alltag
 ---
 
-Auf mehrfache Nachfrage gibt es in diesem kostenlosen Workshop ein Mehr an Infos zur 5. Dimension. 
+Auf mehrfache Nachfrage gibt es in diesem kostenlosen Workshop ein Mehr an Infos zur 5. Dimension. Im Grunde ist es ganz einfach: Mit der 5. bzw. 3 Dimension wird die Schwingung von **bewusstem Sein** angegeben. 
 
-Im Grunde ist es ganz einfach: Mit der 5. bzw. 3 Dimension wird die Schwingung von **bewusstem Sein** angegeben. Gerade leben wir in der 3. Dimension auf der Erde und das macht das Leben schwerfällig. Vorgesehen ist spätestens seit 2012 die 5. Dimension. Leider bewegt sich unser Gesellschaftssystem eher in die entgegengesetzte Richtung. Es hängt sogar Kriegsangst in der Luft. Das einzig Effektive, was wir alle tun können, ist bei uns anzufangen: **unsere Schwingung erhöhen**.
+Gerade leben wir in der 3. Dimension auf der Erde und das macht das Leben schwerfällig. Vorgesehen ist spätestens seit 2012 die 5. Dimension. Leider bewegt sich unser Gesellschaftssystem eher in die entgegengesetzte Richtung. Es hängt sogar Kriegsangst in der Luft. Das einzig Effektive, was wir alle tun können, ist bei uns anzufangen: **unsere Schwingung erhöhen**.
 
 Mit „Dimensionen“ sind hier also keine mathematischen Fachbegriffe gemeint. In diesem Workshop geht es nur um Deine Bewusstseinsentfaltung und die des gesamten Erdmatrixfeldes. Mit der 5. Dimension fühlt sich durch die höhere Schwingung automatisch das Leben leichter und **freundlicher** an. Ein Grundgefühl von: Das Leben ist gut.  
 
