@@ -11,9 +11,14 @@ Mit „Dimensionen“ sind hier also keine mathematischen Fachbegriffe gemeint. 
 ## Wie funktioniert das nun mit dem Wechsel in die 5. Dimension? 
 Wie kannst Du Dich Dich damit leichter, klarer und wohler in Deiner Haut fühlen? 
 
-In Meditationsretreats, auf dem Jakobsweg, beim Après-Ski oder im Urlaub an einem wunderschönen Ort können die meisten Menschen sich viel mehr mit sich und dem Universum verbunden fühlen, haben intuitiv Zugang zu sich selbst. Dann ist es leicht, sich innerlich frei zu fühlen.
+In Meditationsretreats, auf dem Jakobsweg, beim Après-Ski oder im Urlaub an einem wunderschönen Ort können die meisten Menschen sich viel mehr mit sich und dem Universum verbunden fühlen, haben intuitiv Zugang zu sich selbst. 
 
-Diese besonderen Momente im Leben - sich vielleicht ein bisschen wie ein Einhorn im Glitzerwald zu fühlen oder gelassen wie ein erleuchteter Buddha - steht jedem offen. Aber die meiste Zeit verbringen wir nicht im Zen-Kloster oder auf einem Jakobsweg – es sei denn, Du planst ohnehin, in ein Ashram überzuwechseln. 
+Dann ist es leicht, sich innerlich frei zu fühlen. Morgens aufzustehen und in sich fest verankert haben: das Leben ist gut. Ich bin okay, wie ich bin. 
+
+## Diese besonderen Momente im Leben 
+Sich vielleicht ein bisschen wie ein Einhorn im Glitzerwald zu fühlen oder gelassen wie ein erleuchteter Buddha - steht jedem offen. 
+
+Aber die meiste Zeit verbringen wir nicht im Zen-Kloster oder auf einem Jakobsweg – es sei denn, Du planst ohnehin, in ein Ashram überzuwechseln. 
 
 Falls Du einen solchen Umzug nicht planst: An diesem Abend geht es darum, dass Du Dich zu Hause wohl in Deiner Haut fühlst, genau da, wo du bist: Dich in Deinem Alltag selbst zu lieben, statt Stress und Sorgen im Gedankenkarussell. 
 
