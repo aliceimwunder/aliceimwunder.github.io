@@ -20,7 +20,7 @@ Sich vielleicht ein bisschen wie ein Einhorn im Glitzerwald zu fühlen oder gela
 
 Aber die meiste Zeit verbringen wir nicht im Zen-Kloster oder auf einem Jakobsweg – es sei denn, Du planst ohnehin, in ein Ashram überzuwechseln. 
 
-Falls Du einen solchen Umzug nicht planst: An diesem Abend geht es darum, dass Du Dich zu Hause wohl in Deiner Haut fühlst, genau da, wo du bist: Dich in Deinem Alltag selbst zu lieben, statt Stress und Sorgen im Gedankenkarussell. 
+Falls Du einen solchen Umzug nicht planst: An diesem Abend geht es darum, dass Du Dich **zu Hause wohl** in Deiner Haut fühlst, genau da, wo du bist: Dich in Deinem Alltag selbst zu lieben, statt Stress und Sorgen im Gedankenkarussell. 
 
 ## Was Dir dieser Workshop bietet: 
 Stell Dir vor, Du begibst Dich auf eine spannende Reise – ganz entspannt von Deinem Sofa aus. Eine Reise zu Dir selbst und Deinen Träumen. Du kannst runterkommen vom stressigen Alltag und Deine Reise führt Dich direkt im Hier und Jetzt in die Entspannung und einem Gefühl von Einklang. 
