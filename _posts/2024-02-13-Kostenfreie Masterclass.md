@@ -30,7 +30,7 @@ Wenn Dich das anspricht, dann zeige ich Dir in diesem kostenfreien online-Worksh
 
 Sei mit Dir im Einklang. Liebe Dein Leben, gleich da, wo Du bist, in Deinem Alltag, auf dem Sofa. 
 
-Kostenfreier Online-Workshop auf zoom: 
+## Anmeldung kostenfreier Online-Workshop auf zoom 
 Am Mittwoch Abend, den 21.2.2024, 19:00 bis 20:30 Uhr.
 Melde Dich gleich an: info@alicewindolf.de 
 Du bekommst von mir die Zugangsdaten. 
