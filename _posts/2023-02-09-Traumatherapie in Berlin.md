@@ -16,7 +16,6 @@ Mit sich in Balance kommen. Wohlfühlen, ohne dass sich die Vergangenheit meldet
 
 Wollen Sie Ihr Trauma hinter sich lassen? Dann sind Sie bei mir richtig, damit Sie Ihr Leben wieder genießen können. 
 
-### Eine Zeit für Sie - ein Raum für Sie
 **Ich biete Ihnen** 
 - die Möglichkeit, sofort beginnen zu können.
 - evidenzbasierte und zugleich ganzheitliche Lösungswege. 
