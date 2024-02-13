@@ -11,13 +11,11 @@ layout: default
 
 Mit sich in Balance kommen. Sich in den eigenen vier Wänden wohlfühlen, ohne dass sich die Vergangenheit meldet. 
 
-Tief durchatmen können und Vertrauen ins Leben haben.  
-
-Mit Ihren Gefühlen in Harmonie leben. 
+Tief durchatmen können und Vertrauen ins Leben haben. Mit Ihren Gefühlen in Harmonie leben. 
 
 Aber leider ist das gerade nicht so? Symptome quälen Sie oder Sie können etwas nicht umsetzen, was Sie gerne in Ihrem Leben hätten?    
 
-Wie wäre es, wenn wir gemeinsam auf die Suche nach der besten Lösung für Sie gehen, damit Sie Ihr Leben wieder genießen können? Damit Sie Ihr Trauma hinter sich lassen können. 
+Wie wäre es, wenn wir gemeinsam auf die Suche nach der besten Lösung für Sie gehen, damit Sie Ihr Leben wieder genießen können? Damit Sie Ihr Trauma hinter sich lassen können?
 
 Aktuell habe ich einzelne Therapieplätze frei (Di/Do in Berlin Kreuzberg und Mo/Mi in Brandenburg). 
 
