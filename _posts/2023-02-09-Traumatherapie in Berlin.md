@@ -16,7 +16,8 @@ layout: default
 
 **Ich biete Ihnen:** 
 - die Möglichkeit, sofort beginnen zu können.
-- evidenzbasierte und zugleich ganzheitliche Lösungswege. 
+- evidenzbasierte und zugleich ganzheitliche Lösungswege.
+- mehrjährige Erfahrung. 
 - einen sicheren Raum mitten in Berlin.
 - kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur Selbstzahler:innen möglich).
 - kostenfreies unverbindliches Erstgespräch per zoom (oder telefonisch) à 20 min zum Kennenlernen.     
