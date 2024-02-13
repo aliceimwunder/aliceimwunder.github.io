@@ -13,7 +13,7 @@ Tief durchatmen können und Vertrauen ins Leben haben. Mit Ihren Gefühlen in Ha
 
 Wollen Sie das wieder leben und Ihr Trauma hinter sich lassen? Dann sind Sie bei mir richtig, damit Sie Ihr Leben wieder genießen können. 
 
-Aktuell habe ich einzelne Therapieplätze frei (Di/Do in Berlin Kreuzberg und Mo/Mi). 
+Aktuell habe ich einzelne Therapieplätze frei (Di/Do in Berlin Kreuzberg und Mo/Mi im Osten Brandenburg). 
 
 ### Eine Zeit für Sie - ein Raum für Sie
 Ich biete Ihnen 
