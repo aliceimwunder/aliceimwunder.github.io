@@ -5,18 +5,24 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie1.jpg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2>Traumatherapie in Berlin</h2>
+	<h2>Traumatherapie</h2>
 	<p>Es ist erstaunlich, wie viel Menschen vermögen, wenn man es ihnen nur zutraut. (Luise Reddemann)</p>
 </header>
 
-Haben Sie das **Bedürfnis nach seelischer Regeneration**? Sind Sie auf der Suche nach einer Traumatherapie in Berlin? 
+Mit sich in Balance kommen. Sich in den eigenen vier Wänden wohlfühlen, ohne dass sich die Vergangenheit meldet. 
 
-Aktuell habe ich einzelne Therapieplätze frei. 
+Tief durchatmen können und Vertrauen ins Leben haben.  
 
-Mit guter Begleitung können Sie ein Verarbeiten der vergangenen Belastungserfahrungen und daraus entstehendes **post-traumatisches Wachstum** in sich bewirken. 
+Mit Ihren Gefühlen in Harmonie leben. 
 
-### Praxisraum - eine Zeit für Sie - ein Raum für Sie
-Meine Praxis für Traumatherapie und Coaching, Heilpraktikerin für Psychotherapie, liegt im wunderschönen **Aquariana** Praxis- und Seminarzentrum, einer ruhigen geschützten Oase mitten in Berlin-Kreuzberg, nahe dem Bergmannkiez. Hier lässt sich Kraft schöpfen und Vertrauen zurückgewinnen. 
+Aber leider ist das gerade nicht so? Symptome quälen Sie oder Sie können etwas nicht umsetzen, was Sie gerne in Ihrem Leben hätten?    
+
+Wie wäre es, wenn wir gemeinsam auf die Suche nach der besten Lösung für Sie gehen, damit Sie Ihr Leben wieder genießen können? Damit Sie Ihr Trauma hinter sich lassen können. 
+
+Aktuell habe ich einzelne Therapieplätze frei (Di/Do in Berlin Kreuzberg und Mo/Mi in Brandenburg). 
+
+### Eine Zeit für Sie - ein Raum für Sie
+
 
 Ich biete dort eine evidenzbasierte **Traumatherapie** (nach dem Heilpraktikergesetz) an. Das heißt, ich kann Ihnen zeitnah und ohne Anträge bei einer Krankenkasse einen Therapieplatz anbieten. Allerdings bedeutet es zugleich, dass diese Therapieform Selbstzahler:innen offen steht. 
 
