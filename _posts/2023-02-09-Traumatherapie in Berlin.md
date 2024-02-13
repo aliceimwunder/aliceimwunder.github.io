@@ -5,29 +5,32 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie1.jpg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2>Traumatherapie</h2>
+	<h2>Ein besseres Leben - Traumatherapie</h2>
 	</header>
 
-**Sie suchen:**
+**Suchen Sie?**
 - Tief durchatmen können und Vertrauen ins Leben haben. Mit Ihren Gefühlen in Harmonie leben. 
-- Mit sich in Balance kommen. Wohlfühlen mit sich und/oder Ihren Liebsten, ohne dass sich die Vergangenheit meldet.
+- Mit sich in Balance kommen. Wohlfühlen mit sich und/oder Ihren Liebsten, Familie, Freund:innen oder Kolleg:innen, ohne dass sich die Vergangenheit meldet.
 - Trauma (oder Traumata) hinter sich lassen und das Leben einfach genießen können. 
 
 **Ich biete Ihnen:** 
 - die Möglichkeit, sofort beginnen zu können.
 - evidenzbasierte und zugleich ganzheitliche Lösungswege.
 - mehrjährige Erfahrung. 
-- einen sicheren Praxisraum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez).
+- einen sicheren Raum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez).
 - kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur Selbstzahler:innen möglich).
 - kostenfreies unverbindliches Erstgespräch per zoom (oder telefonisch) à 20 min zum Kennenlernen.     
 
+Unverbindliches Zoom-Gespräch buchen:
+
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[unverbindlichen Gesprächs-Termin buchen](https://traumatherapie.youcanbook.me)
+[Buchen](https://traumatherapie.youcanbook.me)
 </span>
 
 Oder Sie wenden sich per 
 - **Email**: info@alicewindolf.de oder
 - **Tel**: 0160 704 7080
+
 direkt an mich.
 
 Sie wollen **erst genauer wissen**, was es mit einer dieser Therapieform auf sich hat? Dann können Sie hier weiterlesen:
@@ -35,7 +38,7 @@ Sie wollen **erst genauer wissen**, was es mit einer dieser Therapieform auf sic
 ### Wann ist eine Traumatherapie hilfreich? 
 Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie eine oder mehrere **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrung oder Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
 
-Ob Sie sich an die konkreten Gegebenheiten erinnern können oder nicht, ist für eine traumatherapeutische Unterstützung nicht von Bedeutung. 
+Übrigens: eine traumatherapeutische Unterstützung ist auch dann möglich, wenn man sich nicht an (noch) konkrete Begebenheiten erinnern kann.  
 
 Manchmal 
 - weiß man ganz genau, was los war.
@@ -54,9 +57,7 @@ Letztlich gilt: Vertrauen Sie sich. Sie sind die Expertin, der Experte Ihres Leb
 1. Haben Sie Symptome, die Ihre **Lebensqualität einschränken** oder ist etwas, dass Sie gerne erreichen würden, nie in Ihrer Reichweite?
 2. **Haben Sie den Verdacht**, dass diese Symptome/das Nichterreichen aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit (Entwicklungstrauma) oder Mobbing handeln. 
 
-Gerade bei unklaren Ursachen benötigt es für eine belastbare Diagnose ein ausführliches **persönliches Gespräch** mit einer Therapeutin oder Therapeutin (Anamnese). Teilweise wird man sich der seelischen Folgen von Belastungserfahrungen sogar erst im Rahmen einer Therapie bewusst, wenn mehr Vertrauen zum Therapeuten oder zur Therapeutin aufgebaut werden konnte. Die Psyche braucht dann den Schutzmechanismus der Verdrängung nicht mehr so intensiv.  
-
-Bei Beschwerden, die sich auch körperlich zeigen, insb. **psychosomatischen Beschwerden**, aber auch Migräne, Übelkeit, Schmerzen ist unbedingt angeraten, ärztlich klären zu lassen, dass **keine organische Ursachen** vorliegen. Gerade im Bereich Traumatherapie beginnen Betroffene sich für diese Therapie zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten. 
+Bei Beschwerden, die sich körperlich zeigen, also **psychosomatischen Beschwerden**, z.B. Migräne, Übelkeit, Schmerzen: bitte ärztlich klären lassen, dass keine organische Ursachen vorliegen. Gerade im Bereich Traumatherapie beginnen Betroffene sich für diese Therapie zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Terminbuchung für ein erstes Zoom-Meeting](https://traumatherapie.youcanbook.me)
@@ -83,26 +84,7 @@ Weder müssen die aufgezählten Symptome genau so auftreten, noch müssen alle o
 
 Traumatherape ist nur für **seelisch bedingte Symptome** geeignet. Nicht in eine Traumatherapie gehören organisch verursachte Erkrankungen, wie Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn und auch keine akuten Essstörungen oder Süchte (Heroin, Kokain, fortgeschrittener Alkoholismus etc.). In solchen Fällen kann eine Traumatherapie in Einzelfällen begleitend angeboten werden, ist jedoch nicht geeignet zur alleinigen Behandlung solcher Krankheitsbilder.  
 
-### Was ist ein Trauma?
-Was Menschen an Schrecken in der Menschheitsgeschichte überstanden haben, ist erstaunlich. Wir alle haben daher **Resilienzfähigkeiten** in uns. 
-
-Aber manchmal **überfordert das Leben** unsere seelische Verarbeitungskapazität. Was genau ein Trauma auslöst, lässt sich nicht allgemein gültig für alle Menschen vorhersagen. 
-
-Traumatisierende Erfahrungen sind in der Regel **einschneidende Ereignisse**. Jedoch sind das nicht nur Kriegserlebnisse oder Massenvergewaltigung.  Es können Arbeitsunfälle, Vernachlässigung in der Kindheit, Arbeitsplatzverlust als Alleinverdiener:in, sexuelle Nötigung, Suchtprobleme der Eltern, der plötzliche Tod eines geliebten Kindes, Mobbing, Vergewaltigung, Stalking, medizinische Behandlungsmethoden bei schweren körperlichen Erkrankungen und vieles mehr sein. 
-
-Eine selbstabwertende **Bewertung** **sich** **gegenüber**, "alle anderen haben x,y,z doch auch überstanden", ist wenig heilsam. Neben der Frage, wie schwerwiegend grundsätzlich ein Erlebnis ist, spielt auch Fragen eine Rolle, wie psychisch stabil und wie alt wir in dem Moment der Belastungserfahrung waren, und ob wir im Anschluss der Erfahrung ein tragfähiges soziales Netz zum Auffangen hatten. Außerdem kann auch ausschlaggebend sein, ob wir uns während der Belastung noch als selbstwirksam wahrnehmen konnten oder uns ausgeliefert gefühlt haben.  
-
-Vielleicht hilft Ihnen folgender Vergleich: Haben zwei Menschen einen Fahrradunfall und steigen unvorhergesehen über den Lenker ab, hat der eine vielleicht nur eine zügig verheilende Verstauchung in den Handgelenken erlitten, der andere bricht sich das Handgelenk und hat noch Jahre danach mit Versteifungen zu kämpfen. Hier würden Sich-Vorwürfe-machen und Vergleich mit dem anderen Unfallopfer nicht weiterhelfen. Hilfreich ist nur die Frage, welche Maßnahmen nunmehr wieder mehr Bewegung ins Handgelenk bringen, dazu eine **Portion Geduld**. So ist das auch mit unserer Psyche und unsere Resilienzfähigkeit.   
-
-
-### Wunsch nach Regeneration für unsere Seele
-Wenn wir merken, dass wir bereit sind, die nach den Belastungserfahrungen eingetretenen Einschränkungen der Lebensqualität nicht mehr hinzunehmen oder auch einfach ausreichend Raum für die Verarbeitung seelicher Verletzungen vorhanden ist, entsteht der **Wunsch nach Regeneration** in uns. 
-
-Ein Wunsch danach, die Vergangenheit hinter sich zu lassen und das _eigene_ Leben zu entfalten; **Seelisch Kraft aufbauen**, sich zentrieren, sich wieder mit einem positiven Strom des Lebens verbinden und inneren Wachstum geschehen lassen. Dem Leben vertrauen und nährende Beziehungen aufbauen. 
-
-In einer **Traumatherapie** dürfen sich alte Muster und damals überlastenden Erfahrungen auf ganz sanfte Art zeigen, im Hier und Jetzt, aber ohne erneut zu überlasten. Dazu brauchen wir ein **Gefühl von Sicherheit, von Getragen sein.** Sonst lässt unser psychisches System keinen direkten Zugriff auf überlastende Erlebnisse zu. 
-
-## Traumatherapie, ein ganzheitlicher Weg zu einem kraftvollen Leben
+### Traumatherapie, ein ganzheitlicher Weg zu einem kraftvollen Leben
 Eine Traumatherapie besteht aus drei Schritten, die sich wiederholen und aufeinander aufbauen. Dadurch entsteht ein **gangbarer Weg** in ein selbstbestimmtes Leben. Man kann sich zunehmend wieder (oder zum ersten Mal) ans Steuer seines Lebens setzen. 
 1. **Innere Sicherheit** erzeugen, Vertrauen in sich wahrnehmen, in der Zeit während der Therapie verlässlich aufbauen, sodass neue Erfahrungen in den Alltag hineingetragen werden können. Man braucht ein zuverlässiges Gegengewicht zu den Belastungen der Vergangenheit. 
 2. Sich der Beziehung zu den Erfahrungen in sich auf vorsichtige Weise nähern, mitfühlend für sich werden. Denn für die Integration braucht es letztlich nicht viel: **Geduld mit sich, Achtsamkeit, Mitgefühl, ein Bezeugen** der seelischen Verletzung.  (Was uns quält, ist die Beziehung, die wir innerlich zur Vergangenheit haben, nicht die Vergangenheit an sich. Vergangenheit kann nicht in der Gegenwart stattfinden.)
