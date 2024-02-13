@@ -12,7 +12,7 @@ layout: default
 
 - Tief durchatmen können und Vertrauen ins Leben haben. Mit Ihren Gefühlen in Harmonie leben. 
 - Mit sich in Balance kommen. Wohlfühlen, ohne dass sich die Vergangenheit meldet.
-- Wollen Sie Ihr Trauma hinter sich lassen? Dann sind Sie bei mir richtig, damit Sie Ihr Leben wieder genießen können. 
+- Wollen Sie Ihr Trauma hinter sich lassen und Ihr Leben genießen können? 
 
 **Ich biete Ihnen:** 
 - die Möglichkeit, sofort beginnen zu können.
