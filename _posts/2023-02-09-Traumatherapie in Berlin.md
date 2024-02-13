@@ -84,16 +84,6 @@ Weder müssen die aufgezählten Symptome genau so auftreten, noch müssen alle o
 
 Traumatherape ist nur für **seelisch bedingte Symptome** geeignet. Nicht in eine Traumatherapie gehören organisch verursachte Erkrankungen, wie Schizophrenie, Amnesien aufgrund von Verletzungen am Gehirn und auch keine akuten Essstörungen oder Süchte (Heroin, Kokain, fortgeschrittener Alkoholismus etc.). In solchen Fällen kann eine Traumatherapie in Einzelfällen begleitend angeboten werden, ist jedoch nicht geeignet zur alleinigen Behandlung solcher Krankheitsbilder.  
 
-### Traumatherapie, ein ganzheitlicher Weg zu einem kraftvollen Leben
-Eine Traumatherapie besteht aus drei Schritten, die sich wiederholen und aufeinander aufbauen. Dadurch entsteht ein **gangbarer Weg** in ein selbstbestimmtes Leben. Man kann sich zunehmend wieder (oder zum ersten Mal) ans Steuer seines Lebens setzen. 
-1. **Innere Sicherheit** erzeugen, Vertrauen in sich wahrnehmen, in der Zeit während der Therapie verlässlich aufbauen, sodass neue Erfahrungen in den Alltag hineingetragen werden können. Man braucht ein zuverlässiges Gegengewicht zu den Belastungen der Vergangenheit. 
-2. Sich der Beziehung zu den Erfahrungen in sich auf vorsichtige Weise nähern, mitfühlend für sich werden. Denn für die Integration braucht es letztlich nicht viel: **Geduld mit sich, Achtsamkeit, Mitgefühl, ein Bezeugen** der seelischen Verletzung.  (Was uns quält, ist die Beziehung, die wir innerlich zur Vergangenheit haben, nicht die Vergangenheit an sich. Vergangenheit kann nicht in der Gegenwart stattfinden.)
-3. Mit der geschaffenen Integration **wieder Neues im Leben erschaffen**. Würde man die Belastung der Vergangenheit einfach nur "wegmachen", entstünde Leere, nicht mehr Lebensqualität. Das Neue in Ihrem Leben kann alles sein, was Ihnen wichtig ist: mehr Energie für Körper und Seele, einen besseren Umgang mit einer chronischen Erkrankung, eine liebevolle Partnerschaft, mehr Vertrauen ins Leben, eine Berufung finden etc, eine harmonischere Beziehung zu den eigenen Kindern.
-
-Tiefenpsychologische und verhaltenstherapeutische Ansätze in der Psychotherapie greifen in der Regel auf konkrete Behandlungsrahmen zurück. 
-
-In die Traumatherapie fließen alle Ansätze ein, die sich in den letzten 150 Jahren als hilfreich für traumatisierte Menschen herausgestellt haben. Die **Therapieansätze werden ständig weiterentwickelt**. Was sich auf Dauer nicht beweisen kann, wird wieder aussortiert. Die Methoden werden aus allen verfügbaren wissenschaftlichen Quellen zusammengetragen. Daher gibt es auch viele unterschiedliche Ansätze, je nachdem, welcher Ausbildungsweg genommen wird, was ein Therapeut oder eine Therapeutin selbst gut vermitteln kann, ob jemand den Ausbildungsweg in einer klassischen Therapierichtung begonnen hat, ob jemand eher körperlich arbeitet, oder eher geistig. 
-
 ### Mein ganzheitlicher Ansatz
 Gleich, aus welcher Richtung ein Traumatherapeut sich dieser Therapieform zugewandt hat: Der Klient oder die Klientin wird in allen Lebensbezügen ernst genommen - ganzheitlich Lösungen angeboten - und nicht analysiert.
 
