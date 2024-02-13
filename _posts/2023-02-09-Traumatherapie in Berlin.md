@@ -11,31 +11,31 @@ layout: default
 
 Tief durchatmen können und Vertrauen ins Leben haben. Mit Ihren Gefühlen in Harmonie leben. 
 
-Wollen Sie das wieder leben und Ihr Trauma hinter sich lassen? Dann lassen Sie uns gemeinsam auf die Suche nach der besten Lösung für Sie gehen, damit Sie Ihr Leben wieder genießen können. 
+Wollen Sie das wieder leben und Ihr Trauma hinter sich lassen? Dann sind Sie bei mir richtig, damit Sie Ihr Leben wieder genießen können. 
 
-Aktuell habe ich einzelne Therapieplätze frei (Di/Do in Berlin Kreuzberg und Mo/Mi in Brandenburg). 
+Aktuell habe ich einzelne Therapieplätze frei (Di/Do in Berlin Kreuzberg und Mo/Mi). 
 
 ### Eine Zeit für Sie - ein Raum für Sie
+Ich biete Ihnen 
+- die Möglichkeit, sofort beginnen zu können.
+- evidenzbasierte und zugleich ganzheitliche Lösungswege. 
+- einen sicheren Raum mitten in Berlin.
+- kostengünstig zu 80,-€/Sitzung.   
+
+Ich bin Heilpraktikerin für Psychotherapie. Das bedeutet, dass Sie ohne langwierige Beantragung sofort beginnen können. Leider bedeutet es zugleich, dass diese Therapieform nur Selbstzahler:innen offen steht. 
 
 
-Ich biete dort eine evidenzbasierte **Traumatherapie** (nach dem Heilpraktikergesetz) an. Das heißt, ich kann Ihnen zeitnah und ohne Anträge bei einer Krankenkasse einen Therapieplatz anbieten. Allerdings bedeutet es zugleich, dass diese Therapieform Selbstzahler:innen offen steht. 
-
-Kosten: 80,-/Einzelsitzung à 50 min in einer laufenden Therapie. 
-
-### **Wissen Sie bereits, dass Sie einer Traumatherapie eine Chance geben wollen?**
-Dann können Sie sich direkt einen Termin für ein kostenfreies, unverbindliches Erstgespräch von ca. 20 min. buchen. 
+Gerne auch vorab ein kostenfreies, unverbindliches Erstgespräch per zoom oder telefonisch von ca. 20 min. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Termin buchen](https://traumatherapie.youcanbook.me)
 </span>
 
-Machen Sie sich ein persönliches Bild von mir, klären Sie unkompliziert erste Fragen. 
-
 Oder Sie wenden sich per 
 - **Email**: info@alicewindolf.de oder
 - **Tel**: 0160 704 7080
   
-an mich.
+direkt an mich.
 
 
 Sie wollen **erst genauer wissen**, was es mit einer dieser Therapieform auf sich hat?
