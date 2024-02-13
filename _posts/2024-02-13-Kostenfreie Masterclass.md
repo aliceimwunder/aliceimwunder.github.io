@@ -1,7 +1,7 @@
 ---
 title: Kostenfreier online-Workshop - Lebe Dein bestes Leben! 5. Dimension im Alltag
 ---
-
+![Das Leben ist gut Tasse](assets/2024-02-13-Das Leben ist gut Tasse.jpg)
 Auf mehrfache Nachfrage gibt es in diesem kostenlosen Workshop ein Mehr an Infos zur 5. Dimension. Im Grunde ist es ganz einfach: Mit der 5. bzw. 3 Dimension wird die Schwingung von **bewusstem Sein** angegeben. 
 
 Gerade leben wir in der 3. Dimension auf der Erde und das macht das Leben schwerfällig. Vorgesehen ist spätestens seit 2012 die 5. Dimension. Leider bewegt sich unser Gesellschaftssystem eher in die entgegengesetzte Richtung. Es hängt sogar Kriegsangst in der Luft. Das einzig Effektive, was wir alle tun können, ist bei uns anzufangen: **unsere Schwingung erhöhen**.
