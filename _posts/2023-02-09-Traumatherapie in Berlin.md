@@ -10,13 +10,11 @@ layout: default
 
 **Sie suchen:**
 
-Tief durchatmen können und Vertrauen ins Leben haben. Mit Ihren Gefühlen in Harmonie leben. 
+- Tief durchatmen können und Vertrauen ins Leben haben. Mit Ihren Gefühlen in Harmonie leben. 
+- Mit sich in Balance kommen. Wohlfühlen, ohne dass sich die Vergangenheit meldet.
+- Wollen Sie Ihr Trauma hinter sich lassen? Dann sind Sie bei mir richtig, damit Sie Ihr Leben wieder genießen können. 
 
-Mit sich in Balance kommen. Wohlfühlen, ohne dass sich die Vergangenheit meldet.
-
-Wollen Sie Ihr Trauma hinter sich lassen? Dann sind Sie bei mir richtig, damit Sie Ihr Leben wieder genießen können. 
-
-**Ich biete Ihnen** 
+**Ich biete Ihnen:** 
 - die Möglichkeit, sofort beginnen zu können.
 - evidenzbasierte und zugleich ganzheitliche Lösungswege. 
 - einen sicheren Raum mitten in Berlin.
@@ -46,10 +44,7 @@ Dann können Sie hier weiterlesen:
 ## Wann ist eine Traumatherapie hilfreich? 
 Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
 
-Traumatherapie ist eine sehr ressourcenorientierte Therapieform, sodass sie auch bei anderen seelischen **Stressfolgeerkrankungen** eine gute Option zur Begleitung ist (dann mit einer zu den Symptomen passenden Diagnose).  
-
-## Woran erkennt man unverarbeitete Belastungserfahrungen? 
-Sicher kann man von einer Traumafolgestörung ausgehen, wenn man die klassischen Symptome einer **Posttraumatischen Belastungsstörung** (PTBS) entwickelt hat. Manchmal bemerkt man aber gar nicht, dass man diese Symptome hat, beispielsweise dass das Nervensystem immer in Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für normal hält. Das ist v.a. bei [komplexer Traumafolgestörungen](https://psylife.de/magazin/icd-11-was-bringt-uns-die-neue-diagnose-komplexe-ptbs) möglich. (Luise Reddemann zu der Problematik der Diagnose von komplexen Traumafolgestörungen.)
+Klassisch unterstützt diese Therapieform bei einer **Posttraumatischen Belastungsstörung** (PTBS) entwickelt hat. Manchmal bemerkt man aber gar nicht, dass man diese Symptome hat, beispielsweise dass das Nervensystem immer in Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für normal hält. Das ist v.a. bei [komplexer Traumafolgestörungen](https://psylife.de/magazin/icd-11-was-bringt-uns-die-neue-diagnose-komplexe-ptbs) möglich. (Luise Reddemann zu der Problematik der Diagnose von komplexen Traumafolgestörungen.)
 
 Daher vertrauen Sie sich. Sie sind die Expertin, der Experte Ihres Lebens. Aus einer Meta-Perspektive kann man sagen:    
 1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
