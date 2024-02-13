@@ -9,16 +9,15 @@ layout: default
 	</header>
 
 **Sie suchen:**
-
 - Tief durchatmen können und Vertrauen ins Leben haben. Mit Ihren Gefühlen in Harmonie leben. 
-- Mit sich in Balance kommen. Wohlfühlen, ohne dass sich die Vergangenheit meldet.
-- Wollen Sie Ihr Trauma hinter sich lassen und Ihr Leben genießen können? 
+- Mit sich in Balance kommen. Wohlfühlen mit sich und/oder Ihren Liebsten, ohne dass sich die Vergangenheit meldet.
+- Trauma (oder Traumata) hinter sich lassen und das Leben einfach genießen können. 
 
 **Ich biete Ihnen:** 
 - die Möglichkeit, sofort beginnen zu können.
 - evidenzbasierte und zugleich ganzheitliche Lösungswege.
 - mehrjährige Erfahrung. 
-- einen sicheren Raum mitten in Berlin.
+- einen sicheren Praxisraum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez).
 - kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur Selbstzahler:innen möglich).
 - kostenfreies unverbindliches Erstgespräch per zoom (oder telefonisch) à 20 min zum Kennenlernen.     
 
@@ -29,41 +28,43 @@ layout: default
 Oder Sie wenden sich per 
 - **Email**: info@alicewindolf.de oder
 - **Tel**: 0160 704 7080
-  
 direkt an mich.
 
+Sie wollen **erst genauer wissen**, was es mit einer dieser Therapieform auf sich hat? Dann können Sie hier weiterlesen:
 
-Sie wollen **erst genauer wissen**, was es mit einer dieser Therapieform auf sich hat?
+### Wann ist eine Traumatherapie hilfreich? 
+Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie eine oder mehrere **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrung oder Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
 
-Dann können Sie hier weiterlesen:
-  
+Ob Sie sich an die konkreten Gegebenheiten erinnern können oder nicht, ist für eine traumatherapeutische Unterstützung nicht von Bedeutung. 
 
-## Wann ist eine Traumatherapie hilfreich? 
-Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
+Manchmal 
+- weiß man ganz genau, was los war.
+- schützt unser Gehirn uns mit (teilweiser) Amnesie.
+- manchmal ist es nur ein ungutes Gefühl, dass da mal war (oft, wenn die Erfahrungen vor dem dritten Lebensjahr stattfanden).
 
-Klassisch unterstützt diese Therapieform bei einer **Posttraumatischen Belastungsstörung** (PTBS). Manchmal bemerkt man aber gar nicht, dass man diese Symptome hat, beispielsweise dass das Nervensystem immer in Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für normal hält. Das ist v.a. bei [komplexer Traumafolgestörungen](https://psylife.de/magazin/icd-11-was-bringt-uns-die-neue-diagnose-komplexe-ptbs) möglich. (Luise Reddemann zu der Problematik der Diagnose von komplexen Traumafolgestörungen.)
+Klassisch unterstützt diese Therapieform, wenn die Belastungserfahrung zu einer **Posttraumatischen Belastungsstörung** (PTBS) geführt hat. 
 
-Daher vertrauen Sie sich. Sie sind die Expertin, der Experte Ihres Lebens. Aus einer Meta-Perspektive kann man sagen:    
-1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
-2. **Haben Sie den Verdacht**, dass diese Symptome aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit (Entwicklungstrauma) oder Mobbing handeln. 
+Jedoch entwickelt nicht jeder, der mit einer belastenden Vergangenheit kämpft, eine PTBS. Es können alle möglichen Symptome auftreten. "Nur" eine depressive Verstimmung, Selbstabwertungsspiralen oder alles persönlich nehmen, was sehr belastend beim Aufbau einer liebevollen Beziehung sein kann. Die Wirkung von unverarbeiteten Belastungserfahrungen können sehr unterschiedlich je nach Person sein - in jedem Falle leidet die Lebensqualität.  
 
---> Manchmal erinnert man sich die Belastungserfahrungen, es kann aber genauso gut ein **unbestimmtes Gefühl** sein, dass da mal was war. Denn unser psychisches System ist zu unserem eigenen **Schutz** in der Lage, Erinnerungen tief in uns zu verstecken (verdrängen), sodass wir keinen oder nur bruchstückhaften Zugang mehr dazu haben. Ob Sie konkrete Erinnerungen haben oder nicht, ist für den Erfolg einer Traumatherapie nicht ausschlaggebend.      
+Ganz typisch ist es, dass man **schlecht zur Ruhe kommt**, und die eigenen Gefühle nicht so leicht zu managen sind; sei es, dass man sie nicht wahrnehmen kann und dadurch ein inneres Loch entsteht oder umgekehrt, weil die eigenen Gefühle unkontrollierbar auf einen einstürzen, wobei das von Angst, Trauer, Wut, Ekel alles sein kann. 
+
+Manchmal bemerkt man nicht, dass man Symptome hat, beispielsweise dass das Nervensystem immer in Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für komplett normal hält. Das ist v.a. bei [komplexer Traumafolgestörungen](https://psylife.de/magazin/icd-11-was-bringt-uns-die-neue-diagnose-komplexe-ptbs) möglich. (Luise Reddemann zu der Problematik der Diagnose von komplexen Traumafolgestörungen.) Dann merkt man es eher an äußeren Kriterien, wie z.B. ich hätte gerne eine Beziehung, aber irgendwie funktioniert es nicht, oder ich würde gerne etwas anderes beruflich tun, aber ich traue mich einfach nicht. 
+
+Letztlich gilt: Vertrauen Sie sich. Sie sind die Expertin, der Experte Ihres Lebens. Sie sind nicht "aus Versehen" bis hierher beim Lesen gekommen.     
+1. Haben Sie Symptome, die Ihre **Lebensqualität einschränken** oder ist etwas, dass Sie gerne erreichen würden, nie in Ihrer Reichweite?
+2. **Haben Sie den Verdacht**, dass diese Symptome/das Nichterreichen aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit (Entwicklungstrauma) oder Mobbing handeln. 
 
 Gerade bei unklaren Ursachen benötigt es für eine belastbare Diagnose ein ausführliches **persönliches Gespräch** mit einer Therapeutin oder Therapeutin (Anamnese). Teilweise wird man sich der seelischen Folgen von Belastungserfahrungen sogar erst im Rahmen einer Therapie bewusst, wenn mehr Vertrauen zum Therapeuten oder zur Therapeutin aufgebaut werden konnte. Die Psyche braucht dann den Schutzmechanismus der Verdrängung nicht mehr so intensiv.  
 
-Bei Beschwerden, die sich auch körperlich zeigen, insb. **psychosomatischen Beschwerden**, aber Migräne, Übelkeit, Schmerzen ist unbedingt angeraten, ärztlich klären zu lassen, dass **keine organische Ursachen** vorliegen. (Gerade im Bereich Traumatherapie beginnen Betroffene sich allerdings dann für dieses Thema zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten, auf der Suche, ob die Ursachen mehr in seelischen als in organischen Vorgängen liegen.)  
-
-Für ein 20 minütiges unverbindliches und kostenfreies Kennenlerngespräch. 
+Bei Beschwerden, die sich auch körperlich zeigen, insb. **psychosomatischen Beschwerden**, aber auch Migräne, Übelkeit, Schmerzen ist unbedingt angeraten, ärztlich klären zu lassen, dass **keine organische Ursachen** vorliegen. Gerade im Bereich Traumatherapie beginnen Betroffene sich für diese Therapie zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Terminbuchung für ein Zoom-Meeting](https://traumatherapie.youcanbook.me)
+[Terminbuchung für ein erstes Zoom-Meeting](https://traumatherapie.youcanbook.me)
 </span>
 
+Wenn Sie sich unsicher sind: 
 
-### Anhaltspunke für Sie
-Entwickelt wurde Traumatherapie v.a. für den Klassiker: die **Posttraumatische Belastungsstörung** (PTBS). 
-
-Es können jedoch auch andere Symptomen nach unverarbeiteten Belastungserfahrungen auftreten. 
+### Mehr Anhaltspunke für Sie
 - Sie haben Probleme, Ihre Gefühle zu regulieren? Sei es, dass Sie nichts so richtig fühlen (womit zugleich positive Gefühle abgeschnitten sind), oder heftige, unangenehme Gefühle nicht in den Griff bekommen? (Bei Entwicklungstraumata hat man möglicherweise nie gelernt, Gefühle angemessen zu regulieren.)
 - Nehmen Sie sich oft als **ausgebrannt** oder überfordert in Ihrem Leben wahr, haben aber den Eindruck, dass Sie lieber nicht weniger arbeiten, weil sonst vielleicht unangenehme Gefühle hochkommen könnten?
 - Helfen Ihnen allgemein als sinnvoll angesehene Tipps für eine bessere Stressbewältigung nicht, obwohl Sie schon einiges ausprobiert haben? Sie sind fast immer in einem **inneren Spannungszustand**, den Sie vielleicht sogar in selbstschädigendem Verhalten abbauen?
