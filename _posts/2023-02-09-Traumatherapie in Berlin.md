@@ -6,10 +6,8 @@ layout: default
 
 <header>
 	<h2>Traumatherapie</h2>
-	<p>Es ist erstaunlich, wie viel Menschen vermögen, wenn man es ihnen nur zutraut. (Luise Reddemann)</p>
+	<p>Mit sich in Balance kommen. Wohlfühlen, ohne dass sich die Vergangenheit meldet</p>
 </header>
-
-Mit sich in Balance kommen. Sich in den eigenen vier Wänden wohlfühlen, ohne dass sich die Vergangenheit meldet. 
 
 Tief durchatmen können und Vertrauen ins Leben haben. Mit Ihren Gefühlen in Harmonie leben. 
 
