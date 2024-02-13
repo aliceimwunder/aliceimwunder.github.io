@@ -2,7 +2,7 @@
 title: Kostenfreier online-Workshop - Lebe Dein bestes Leben! 5. Dimension im Alltag
 ---
 
-<img src="a/assets/2024-02-13-Das Leben ist gut Tasse.jpg" alt="" style="max-width:100%"/>
+![Leben ist gut Tasse](/assets/2024-02-13-Das Leben ist gut Tasse.jpg)
 
 Foto von <a href="https://unsplash.com/de/@dominikhofbauer?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">dominik hofbauer</a> auf <a href="https://unsplash.com/de/fotos/brauner-keramikbecher-auf-blau-weisser-keramikplatte-nzus-1oiN0A?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
   
