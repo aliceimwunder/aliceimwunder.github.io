@@ -18,14 +18,11 @@ layout: default
 - die Möglichkeit, sofort beginnen zu können.
 - evidenzbasierte und zugleich ganzheitliche Lösungswege. 
 - einen sicheren Raum mitten in Berlin.
-- kostengünstig zu 80,-€/Sitzung.   
-
-Ich bin Heilpraktikerin für Psychotherapie. Das bedeutet, dass Sie ohne langwierige Beantragung sofort beginnen können. Leider bedeutet es zugleich, dass diese Therapieform nur Selbstzahler:innen offen steht. 
-
-Buchen Sie sich gerne vorab ein kostenfreies, unverbindliches Erstgespräch per zoom oder telefonisch von ca. 20 min. 
+- kostengünstig zu 80,-€/Sitzung (berücksichtigen bitte: nur Selbstzahler:innen).
+- kostenfreies unverbindliches Erstgespräch per zoom (oder telefonisch) à 20 min zum Kennenlernen.     
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Termin buchen](https://traumatherapie.youcanbook.me)
+[unverbindlichen Gesprächs-Termin buchen](https://traumatherapie.youcanbook.me)
 </span>
 
 Oder Sie wenden sich per 
