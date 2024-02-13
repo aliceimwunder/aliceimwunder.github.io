@@ -1,5 +1,5 @@
 ---
-title: Kostenfreier online-Workshop - Lebe Dein bestes Leben! 5. Dimension im Alltag
+title: Ich lebe die 5. Dimension im Alltag, und Du? (kostenlose Masterclass)
 ---
 
 ![Leben ist gut Tasse](/assets/2024-02-13-Das Leben ist gut Tasse.jpg)
