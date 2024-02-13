@@ -41,7 +41,7 @@ Dann können Sie hier weiterlesen:
 ## Wann ist eine Traumatherapie hilfreich? 
 Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
 
-Klassisch unterstützt diese Therapieform bei einer **Posttraumatischen Belastungsstörung** (PTBS) entwickelt hat. Manchmal bemerkt man aber gar nicht, dass man diese Symptome hat, beispielsweise dass das Nervensystem immer in Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für normal hält. Das ist v.a. bei [komplexer Traumafolgestörungen](https://psylife.de/magazin/icd-11-was-bringt-uns-die-neue-diagnose-komplexe-ptbs) möglich. (Luise Reddemann zu der Problematik der Diagnose von komplexen Traumafolgestörungen.)
+Klassisch unterstützt diese Therapieform bei einer **Posttraumatischen Belastungsstörung** (PTBS). Manchmal bemerkt man aber gar nicht, dass man diese Symptome hat, beispielsweise dass das Nervensystem immer in Alarmbereitschaft ist (sog. Hyperarousal oder Übererregung), weil man den Zustand für normal hält. Das ist v.a. bei [komplexer Traumafolgestörungen](https://psylife.de/magazin/icd-11-was-bringt-uns-die-neue-diagnose-komplexe-ptbs) möglich. (Luise Reddemann zu der Problematik der Diagnose von komplexen Traumafolgestörungen.)
 
 Daher vertrauen Sie sich. Sie sind die Expertin, der Experte Ihres Lebens. Aus einer Meta-Perspektive kann man sagen:    
 1. Haben Sie psychologische Symptome, die Sie in Ihrer **Lebensqualität einschränken**?
