@@ -10,7 +10,7 @@ Foto von <a href="https://unsplash.com/de/@dominikhofbauer?utm_content=creditCop
 - innere Balance,
 - Harmonie in Dir,
 - zur Ruhe kommen,
-- inneren Frieden und damit mehr 
+- inneren Frieden und damit 
 - einen tieferen Zugang zu Deiner seelische Weisheit.
 
 Wie kommst Du da hin?**
