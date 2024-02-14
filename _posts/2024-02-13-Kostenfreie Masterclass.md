@@ -1,25 +1,28 @@
 ---
-title: Ich lebe die 5. Dimension im Alltag, und Du? - Kostenfreie Masterclass
+title: Ich lebe meinen Alltag dauerhaft in Freude, und Du? - Kostenfreie Masterclass
 ---
 
 ![Leben ist gut Tasse](/assets/2024-02-13-Das Leben ist gut Tasse.jpg)
 
 Foto von <a href="https://unsplash.com/de/@dominikhofbauer?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">dominik hofbauer</a> auf <a href="https://unsplash.com/de/fotos/brauner-keramikbecher-auf-blau-weisser-keramikplatte-nzus-1oiN0A?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
 
-**Die 5. Dimensionsschwingung bietet Dir mehr**
+Erfahre in 3 Schritten, wie Du mit einfachsten Mitteln Deine Schwingung im Alltag auf liebevoll und fröhlich umstellst.   
+
+Damit Du Dich in Deinen Alltag verlieben kannst statt mit ihm zu kämpfen. 
+
+**Liebe Deinen Alltag. Das bedeutet**
 - innere Balance,
 - Harmonie in Dir,
+- ausgeglichen mit Deinen Liebsten leben,
 - zur Ruhe kommen,
 - inneren Frieden und damit 
-- einen tieferen Zugang zu Deiner seelische Weisheit.
+- einen tieferen Zugang zu Deiner seelische Weisheit wahrnehmen.
 
 **Wie kommst Du da hin?**
 
-Auf mehrfache Nachfrage gibt es in diesem kostenlosen Workshop ein Mehr an Infos zur 5. Dimension. Im Grunde ist es ganz einfach: Mit der 5. bzw. 3 Dimension wird die Schwingung von **bewusstem Sein** angegeben. 
+Wenn das Leben grundsätzlich jeden Tag leichter, geradezu fluffiger wird, dann würde man von der 5. Dimension sprechen. Im Grunde ist es ganz einfach: Mit der 5. Dimension wird die Schwingung von **bewusstem Sein** angegeben. 
 
-Gerade leben wir in der 3. Dimension auf der Erde und das macht das Leben schwerfällig. Vorgesehen ist spätestens seit 2012 die 5. Dimension. Leider bewegt sich unser Gesellschaftssystem eher in die entgegengesetzte Richtung. Es hängt sogar Kriegsangst in der Luft. Das einzig Effektive, was wir alle tun können, ist bei uns anzufangen: **unsere Schwingung erhöhen**.
-
-Mit „Dimensionen“ sind hier also keine mathematischen Fachbegriffe gemeint. In diesem Workshop geht es nur um Deine Bewusstseinsentfaltung und die des gesamten Erdmatrixfeldes. Mit der 5. Dimension fühlt sich durch die höhere Schwingung automatisch das Leben leichter und **freundlicher** an. Ein Grundgefühl von: Das Leben ist gut.  
+Mit „Dimension“ ist hier also kein mathematischer Fachbegriff gemeint. In diesem Workshop geht es nur um Deine Bewusstseinsentfaltung und die des gesamten Erdmatrixfeldes. Mit der 5. Dimension fühlt sich durch die höhere Schwingung automatisch das Leben leichter und **freundlicher** an. Ein Grundgefühl von: Das Leben ist gut.  
 
 ## Wie funktioniert das nun mit dem Wechsel in die 5. Dimension? 
 Wie kannst Du Dich Dich damit leichter, klarer und **wohler in Deiner Haut** fühlen? 
