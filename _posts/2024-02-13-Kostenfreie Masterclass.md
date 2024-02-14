@@ -1,11 +1,19 @@
 ---
-title: Ich lebe die 5. Dimension im Alltag, und Du? (kostenlose Masterclass)
+title: Ich lebe die 5. Dimension im Alltag, und Du? - Kostenfreie Masterclass
 ---
 
 ![Leben ist gut Tasse](/assets/2024-02-13-Das Leben ist gut Tasse.jpg)
 
 Foto von <a href="https://unsplash.com/de/@dominikhofbauer?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">dominik hofbauer</a> auf <a href="https://unsplash.com/de/fotos/brauner-keramikbecher-auf-blau-weisser-keramikplatte-nzus-1oiN0A?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
-  
+
+**Die 5. Dimensionsschwingung bietet Dir mehr**
+- innere Balance,
+- Harmonie in Dir,
+- zur Ruhe kommen,
+- inneren Frieden und damit mehr Zzu
+- einen tieferen Zugang zu Deiner seelische Weisheit.
+
+
 Auf mehrfache Nachfrage gibt es in diesem kostenlosen Workshop ein Mehr an Infos zur 5. Dimension. Im Grunde ist es ganz einfach: Mit der 5. bzw. 3 Dimension wird die Schwingung von **bewusstem Sein** angegeben. 
 
 Gerade leben wir in der 3. Dimension auf der Erde und das macht das Leben schwerfällig. Vorgesehen ist spätestens seit 2012 die 5. Dimension. Leider bewegt sich unser Gesellschaftssystem eher in die entgegengesetzte Richtung. Es hängt sogar Kriegsangst in der Luft. Das einzig Effektive, was wir alle tun können, ist bei uns anzufangen: **unsere Schwingung erhöhen**.
