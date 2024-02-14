@@ -10,10 +10,10 @@ Foto von <a href="https://unsplash.com/de/@dominikhofbauer?utm_content=creditCop
 - innere Balance,
 - Harmonie in Dir,
 - zur Ruhe kommen,
-- inneren Frieden und damit mehr Zzu
+- inneren Frieden und damit mehr 
 - einen tieferen Zugang zu Deiner seelische Weisheit.
 
-
+Wie kommst Du da hin?**
 Auf mehrfache Nachfrage gibt es in diesem kostenlosen Workshop ein Mehr an Infos zur 5. Dimension. Im Grunde ist es ganz einfach: Mit der 5. bzw. 3 Dimension wird die Schwingung von **bewusstem Sein** angegeben. 
 
 Gerade leben wir in der 3. Dimension auf der Erde und das macht das Leben schwerfällig. Vorgesehen ist spätestens seit 2012 die 5. Dimension. Leider bewegt sich unser Gesellschaftssystem eher in die entgegengesetzte Richtung. Es hängt sogar Kriegsangst in der Luft. Das einzig Effektive, was wir alle tun können, ist bei uns anzufangen: **unsere Schwingung erhöhen**.
