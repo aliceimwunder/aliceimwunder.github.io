@@ -10,7 +10,7 @@ Erfahre in 3 Schritten, wie Du mit einfachsten Mitteln Deine Schwingung im Allta
 
 Damit Du Dich in Deinen Alltag verlieben kannst statt mit ihm zu kämpfen. 
 
-**Was brauchst Du, um Dich in Deinen Deinen Alltag zu verlieben?**
+**Was brauchst Du, um Dich in Deinen Alltag zu verlieben?**
 - innere Balance?
 - Harmonie in Dir?
 - ausgeglichen mit Deinen Liebsten leben?
