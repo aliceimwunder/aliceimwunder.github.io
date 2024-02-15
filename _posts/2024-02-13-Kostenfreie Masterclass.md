@@ -18,8 +18,7 @@ Damit Du Dich in Deinen Alltag verlieben kannst statt mit ihm zu kämpfen.
 - inneren Frieden und damit 
 - einen tieferen Zugang zu Deiner seelische Weisheit wahrnehmen?
 
-**Wie kommst Du da hin?**
-
+### Wie kommst Du da hin?
 Wenn das Leben jeden Tag leichter, geradezu fluffiger wird, dann würde man von der **5. Dimension**sprechen. Im Grunde ist es ganz einfach: Mit der 5. bzw. 3. Dimension wird die Schwingung von **bewusstem Sein** angegeben. Mit „Dimension“ ist hier kein mathematischer Fachbegriff gemeint. Die Schwingung des 5. Dimension ist das, was eigentlich seit 2012 für uns alle - für das gesamte Erdmatrixfeld - vorgesehen ist. Leider schwingen unsere Familien- und Gesellschaftssysteme nach wie vor in der 3. Dimension. 
 
 Dabei darf es so viel leichter und liebevoller in unserem Leben sein, als das, was uns da draußen angeboten wird. In diesem Workshop geht es daher um Deine Bewusstseinsentfaltung im Alltag. Durch die höhere Schwingung der 5. Dimension fühlt sich das Leben automatisch leichter und **freundlicher** an. Ein Grundgefühl von: Das Leben macht einfach **Spaß**.  
@@ -32,21 +31,21 @@ In Meditationsretreats, auf dem Jakobsweg, beim Après-Ski oder im Urlaub an ein
 ### Diese besonderen Momente im Leben 
 Sich vielleicht ein bisschen wie ein Einhorn im Glitzerwald vorkommen oder sich gelassen wie ein erleuchteter Buddha zu fühlen: Steht übrigens jedem offen - jederzeit - nicht nur als Superreicher auf einer Weltreise oder an einem Privatstand! 
 
-Die meiste Zeit verbringen wir nicht im Zen-Kloster oder auf einem Jakobsweg oder auf einer rasanten Abwärtsfahrt auf der Lieblingspiste in den Alpen. 
+Die meiste Zeit verbringen wir nicht im Zen-Kloster oder auf einem Jakobsweg oder auf einer rasanten Abwärtsfahrt auf der Lieblingspiste in den Alpen. Was übrigens all diese "**besonderen" Momente gemeinsam** haben: man fühlt sich mit etwas eins. Man ist nicht allein und einsam: man fühlt sich verbunden mit der Ski-Piste, dem Universum, seinen Liebsten, der eigenen Seele, dem Wald, der Meditationsgruppe, den Bergen oder sogar mit allem, was ist. 
 
-Daher geht es in dieser Masterclass darum, dass Du Dich **zu Hause rundum wohl** in Deiner Haut fühlst, genau da, wo du bist: Dich in Deinem Alltag selbst zu lieben, statt Stress und Sorgen im Gedankenkarussell. 
+Daher geht es in dieser Masterclass darum, dass Du Dich **zu Hause rundum wohl** in Deiner Haut fühlst, genau da, wo du bist: Dich in Deinem Alltag selbst zu lieben, statt Stress und Sorgen im Gedankenkarussell. Und zwar gemeinsam in einer Gruppe. Es ist so viel einfacher, eine hohe gemeinsam Schwingung für uns aufzubauen, wenn wir zusammenkommen. 
 
 ## Was Dir dieser Workshop bietet: 
-Stell Dir vor, Du begibst Dich auf eine spannende Reise – ganz entspannt von Deinem Sofa aus. Eine Reise zu Dir selbst und Deinen Träumen. Du kannst runterkommen vom stressigen Alltag und Deine Reise führt Dich direkt im Hier und Jetzt in die Entspannung. 
+Stell Dir vor, Du begibst Dich auf eine spannende Reise – ganz entspannt von Deinem Sofa aus. Eine Reise zu Dir selbst und Deinen Träumen. Du kannst runterkommen vom stressigen Alltag und Deine Reise führt Dich direkt im Hier und Jetzt in die Entspannung. Auch wenn andere in der Gruppe nicht mit Dir auf Deinem Sofa sitzen, für die Schwingung der 5. Dimension gibt es weder Raum- noch Zeitbegrenzung. Du begibst Dich individuell auf Deine Reise zu Dir und zugleich gemeinsam in einer geschützten Gruppe als Wegbegleiter.  
 
-An diesem Abend findest Du heraus, wie Du in **Einklang** mit Dir und Deinem Leben kommst. 
+An diesem Abend findest Du heraus, wie Du in **Einklang** mit Dir und Deinem Leben kommst - in und mit Deinem Alltag - gemeinsam in einer Gruppe. 
 
 Wenn Dich das anspricht, dann zeige ich Dir in diesem **kostenfreien online-Workshop**, 
 1. wie Du einen Frischekick für Deine Energie bekommst und jederzeit darauf zurückgreifen kannst? (energetisches Anti-Stress nach Donna Eden)
 2. im Alltag konstant Deine Schwingung hochhältst, dadurch Stress und Fremdenergien leichter abperlen und Du damit zugleich Heilung für Deine Seele erzeugst (Tipps zur 5. Dimension). 
 3. wie Du in Deine Träume und Wünsche eintauchst und Deine Gedanken – statt auf all das, was nicht geht – darauf ausrichtest, was geht. (Dein seelisches Warum)
 
-Außerdem kannst Du Dich zurücklehnen und genießen: **Klarheit für Deinen Alltag** - eine tiefgehende **Aurareinigung** für Deinen Energiekörper  (mit Channeling der Energie von Avatar Babaji).
+Außerdem kannst Du Dich zurücklehnen und genießen: Die Energie der 5. Dimension und **Klarheit für Deinen Alltag** - eine tiefgehende **Aurareinigung** für Deinen Energiekörper (mit Channeling der Energie von Avatar Babaji).
 
 Sei mit Dir im Einklang. Liebe Dein Leben, gleich da, wo Du bist, in Deinem Alltag, auf dem Sofa.  
 
