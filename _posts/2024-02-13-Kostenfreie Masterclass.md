@@ -52,7 +52,7 @@ Sei mit Dir im Einklang. Liebe Dein Leben, gleich da, wo Du bist, in Deinem Allt
 
 ## Kostenfreier Online-Workshop auf zoom: 
 Am Mittwoch Abend, den 21.2.2024, 19:00 bis 20:30 Uhr.
-Melde Dich gleich an: ([info@alicewindolf.de](url))  
+Melde Dich gleich an: [info@alicewindolf.de](url)
 Du bekommst von mir die Zugangsdaten. 
 
 Es gibt auch eine **Überaschungsverlosung** an diesem Abend zu diesem Thema, sei gespannt, wer bis zum Schluss bleibt, kann teilnehmen. 
