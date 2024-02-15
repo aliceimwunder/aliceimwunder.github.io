@@ -6,7 +6,7 @@ title: Energetische Soforthilfe für Deinen Alltag - Kostenfreie Masterclass
 
 Foto von <a href="https://unsplash.com/de/@dominikhofbauer?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">dominik hofbauer</a> auf <a href="https://unsplash.com/de/fotos/brauner-keramikbecher-auf-blau-weisser-keramikplatte-nzus-1oiN0A?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
 
-Erfahre in 3 Schritten, wie Du mit einfachsten Mitteln Deine Schwingung im Alltag auf **liebevoll** und fröhlich umstellst.   
+Erfahre in 3 Schritten, wie Du mit einfachsten Mitteln Deine Schwingung im Alltag auf **liebevoll** und konstant fröhlich umstellst.   
 
 Damit Du Dich in Deinen Alltag verlieben kannst statt mit ihm zu kämpfen. 
 
