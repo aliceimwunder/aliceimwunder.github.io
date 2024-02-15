@@ -48,8 +48,7 @@ Wenn Dich das anspricht, dann zeige ich Dir in diesem **kostenfreien online-Work
 
 Außerdem kannst Du Dich zurücklehnen und genießen: **Klarheit für Deinen Alltag** - eine tiefgehende **Aurareinigung** für Deinen Energiekörper  (mit Channeling der Energie von Avatar Babaji).
 
-
-Sei mit Dir im Einklang. Liebe Dein Leben, gleich da, wo Du bist, in Deinem Alltag, auf dem Sofa. 
+Sei mit Dir im Einklang. Liebe Dein Leben, gleich da, wo Du bist, in Deinem Alltag, auf dem Sofa.  
 
 ## Kostenfreier Online-Workshop auf zoom: 
 Am Mittwoch Abend, den 21.2.2024, 19:00 bis 20:30 Uhr.
@@ -59,6 +58,6 @@ Du bekommst von mir die Zugangsdaten.
 Es gibt auch eine **Überaschungsverlosung** an diesem Abend zu diesem Thema, sei gespannt, wer bis zum Schluss bleibt, kann teilnehmen. 
 
 ## Die Reise darf danach weitergehen
-Lass Dich begleiten: wie Du Dir **regelmäßig Impulse** holen kannst, damit Du voll in Deine Kraft und Vitalität kommst, um Deinen Alltag so zu gestalten, dass Du später zurückblicken kannst: also das war eine geile (... ähm ich meine natürlich) besondere Zeit für mich. ;-) 
+Lass Dich begleiten: wie Du Dir **regelmäßig Impulse** holen kannst, damit Du voll in Deine Kraft und Vitalität kommst, um Deinen Alltag so zu gestalten, dass Du später zurückblicken kannst: also das war eine geile (... ähm ich meine natürlich) besondere Zeit für mich. ;-) Hol die Schwingung der 5. Dimension in Deinen Alltag. 
 
  
