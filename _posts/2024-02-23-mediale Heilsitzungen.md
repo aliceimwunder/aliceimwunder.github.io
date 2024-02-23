@@ -1,6 +1,10 @@
 ---
 title: Selbstheilungskräfte aktivieren - mediales Coaching
 ---
+!(Diamant)[/assets/2024-02-23-Mediale Heilsitzung.jpg]
+
+Foto von <a href="https://unsplash.com/de/@basvde?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Bas van den Eijkhof</a> auf <a href="https://unsplash.com/de/fotos/ein-diamant-der-auf-einem-steinhaufen-sitzt-ypk__5RJOBM?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
+  
 
 ### Willst Du Dich wohlfühlen und Deine Selbstheilungskräfte entfachen? 
 Mehr Magie in Dein Leben lassen? 
