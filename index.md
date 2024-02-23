@@ -11,7 +11,15 @@ layout: default
 
 
 ### Praxis für Traumatherapie und traumasensitives Coaching 
-Sie wollen mehr Ihre eigene **seelische Kraft** spüren und leben? Meine traumasensitive Begleitung ist einfühlsam, unterstützend und zielführend. Ich hole Sie genau da ab, wo Sie gerade stehen.  
+Bei mir ist jede Begleitung traumasensibel. Einfühlsam, unterstützend und zielführend. Ich hole Sie genau da ab, wo Sie gerade stehen.  
+
+- Sie wollen mehr Ihre eigene **seelische Kraft und Vitalität** spüren und leben?
+- Das Leben in vollen Zügen genießen?
+- Sich richtig wohl in der eigenen Haut fühlen?
+- Nährende Beziehungen aufnehmen und pflegen können? 
+
+--> Die Vergangenheit lässt sich nicht mehr ändern: völlig egal! Dann dürfen sich jetzt alle Ihre Erfahrungen in Weisheit und inneren Wachstum wandeln. 
+
 
 Haben Sie den Impuls, sich auf spiritueller Ebene bei Ihren Themen unterstützen zu lassen? 
 
