@@ -10,12 +10,12 @@ layout: default
 </header>
 
 
-### Praxis für Traumatherapie und spirituelles Coaching 
+### Praxis für Traumatherapie und traumasensitives Coaching 
 Sie wollen mehr Ihre eigene **seelische Kraft** spüren und leben? 
 
 Haben Sie den Impuls, sich auf spiritueller Ebene bei Ihren Themen unterstützen zu lassen? 
 
-Oder benötigen Sie eine längerfristige psychotherapeutische Begleitung? 
+oder benötigen Sie eine längerfristige psychotherapeutische Begleitung? 
 
 Dann sind Sie hier richtig. 
 
@@ -27,6 +27,20 @@ Dann sind Sie hier richtig.
  ![Jaymaleh](/assets/about-Portrait2.jpg)
 
 Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
+
+### Praxis für Traumatherapie (hp psych)
+Vertrauen ins Leben gewinnen - die Vergangenheit hinter sich lassen - sich wohl in der eigenen Haut fühlen. 
+
+Können wir Belastungserfahrungen nicht verarbeiten, kann unsere Lebensqualität leiden. Auch noch Jahrzehnte nach dem Vorfall (Vorfällen). Wenn das Leben wieder wundervoll werden soll, lassen Sie uns gemeinsam nach Lösungen für Ihre Themen suchen. 
+
+Jeder ist anders. Belastungserfahrungen können unterschiedlichste psychologischen Symptomen führen, wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer 
+
+Einfühlsam, klar und vertrauensvoll: Ich unterstütze Sie mit meinem therapeutischen Wissen längerfristig.  
+
+(Nur Selbstzahler. Ich empfehle, ärztlich klären zu lassen, dass keine organischen Ursachen für Ihre Symptome bestehen.)
+
+### Traumasensitives Coaching
+Nicht alles muss in Therapie. Erreichen Sie Ihre Ziele mit traumasensitivem Coaching. Ziele, die Ihnen seelisch entsprechen; die Ihnen ein tiefes Gefühl von Sinnhaftigkeit vermitteln und Sie mit Lebensfreude erfüllen.  
 
 
 ### Spirituell mediale Heilsitzungen:
@@ -44,17 +58,6 @@ Grundlage meiner medialen Sitzungen für Sie kann bspw. kosmische Chirurgie, Ene
 
 Meine spirituellen Heilsitzungen enthalten keine medizinsche Heilkunde und dienen nicht der Linderung konkreter Krankheiten.  
 
-### Innere Kindheilung - Coaching - Einzelaufstellungen
-**Innere Kindheilung** kann Sie unterstützen, sich Ziele zu setzen, die Ihnen seelisch entsprechen. Ziele, die ihnen ein tiefes Gefühl von Sinnhaftigkeit vermitteln und Sie mit Lebensfreude erfüllen können.  
-
-In unserem moderner Alltag verlieren wir manchmal die Übersicht und kan uns dann überfordern. Mit einer **Einzelaufstellung** bringen Sie schnell Klarheit in Ihre Gedanken. Das ist schon der erste Schritt, den Alltag wieder mit mehr Kraft zu bewältigen.       
-
-### Praxis für Traumatherapie (hp psych)
-Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer unterstütze ich Sie gerne mit meinem therapeutischen Wissen längerfristig.  
-
-(Nur Selbstzahler. Ich empfehle, ärztlich klären zu lassen, dass keine organischen Ursachen für Ihre Symptome bestehen.)
-
-
 
 ### Außerdem
  <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Informatives aus dem Bereich Persönlichkeitswachstum, Innere Kindheilung, Coaching und Spiritualität, für ein kraftvolles Leben, selbstbestimmt in Leichtigkeit und Freude. Von wissenschaftlich Interessantem über Naturheilkunde bis spirituell Erweiterndes.
@@ -64,7 +67,7 @@ Bei psychologischen Symptomen wie z.B. PTBS, kPTBS, psychosomatischen Beschwerde
 <p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Meinen Info-Letter </a></strong>  schicke ich ca. ein bis alle zwei Monate, um Sie über meine aktuellen Termine und Blog-Veröffentlichungen zu informieren. Ihre Emailadresse ist kostbar. Als kleines Dankeschön biete ich Ihnen regelmäßig eine Achtsamkeitspraxis ohne Zusatzkosten an (Wheel of Awareness). </p>
 	
 <p>
-<h4>Ein Feedback zu meiner Inneren Kindheilung - Coaching, von Maria W. aus Liechtenstein: </h4>
+<h4>Ein Feedback zu meinem Traumasensitiven Coaching - Innere Kindheilung, von Maria W. aus Liechtenstein: </h4>
 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
 Feedback geben.</p> 
