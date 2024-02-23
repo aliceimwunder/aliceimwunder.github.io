@@ -22,9 +22,9 @@ Bei mir ist jede Begleitung traumasensibel. Achtsam, einfühlsam, unterstützend
 
 oder alles zusammen? 
 
---> Die Vergangenheit lässt sich nicht mehr ändern: völlig egal! All Ihre Erfahrungen dürfen sich jetzt in Weisheit und inneren Wachstum wandeln. 
+--> Die Vergangenheit lässt sich nicht mehr ändern: völlig egal! All Ihre Erfahrungen können sich jetzt in Weisheit und inneren Wachstum wandeln. 
 
-Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. Von evidenzbasiert bis spirituell, das was Sie am effizientesten weiterbringt. 
+Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. Von evidenzbasiert bis spirituell, das was Sie am effizientesten weiterbringt. (Wie Luise Reddemann, die große Traumatherapeutin, dazu formulierte: Wir machen aus jedem Mist Dünger.)
 
 ### Nächste Termine
 - **Freitag, den 23.02.2024, 19:00 Uhr**, **Aurareinigung: [Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)** mit heilsamen Klängen" - Thema: Mit Fokus manifestieren. 
