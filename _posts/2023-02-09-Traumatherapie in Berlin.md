@@ -5,7 +5,7 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie1.jpg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2>Ein besseres Leben - Traumatherapie</h2>
+	<h2>Ein besseres Leben - Traumatherapie eine Chance geben</h2>
 	</header>
 
 **Hätten Sie gerne das in Ihrem Leben?**
@@ -14,15 +14,15 @@ layout: default
 - Mit sich in Balance kommen.
 - In der eigenen Haut wohlfühlen. Seelisch ausgeglichen sein.
 - Bindungen aufbauen und pflegen können; zu Ihren Liebsten, Familie, Freund:innen oder Kolleg:innen, ohne dass sich die Vergangenheit meldet.
-- Trauma (oder Traumata) hinter sich lassen und das Leben einfach genießen können. 
+- Trauma (oder Traumata) hinter sich lassen und das Leben einfach genießen können.
 
 **Ich biete Ihnen:** 
 - die Möglichkeit, sofort beginnen zu können.
-- evidenzbasierte und zugleich ganzheitliche Lösungswege.
+- evidenzbasierte und ganzheitliche Lösungswege.
 - mehrjährige Erfahrung. 
 - einen sicheren Raum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez) - wahlweise auch im Osten von Berlin in Briesen/Mark.
 - einfühlsame und vertrauensvolle Begleitung für Sie. 
-- kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur Selbstzahler:innen möglich).
+- kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur Selbstzahler:innen möglich, da ich keine Kassenzulassung habe).
 - kostenfreies unverbindliches Vorgespräch per zoom (oder telefonisch) à 20 min - für einen ersten Eindruck von mir und zum organisatorische Fragen klären.     
 
 Unverbindliches Online-Gespräch auf zoom buchen für einen ersten Eindruck:
@@ -37,7 +37,7 @@ Oder Sie wenden sich per
 
 direkt an mich.
 
-Sie wollen **erst genauer wissen**, was es mit einer dieser Therapieform auf sich hat? Dann können Sie hier weiterlesen:
+Sie wollen **erst genauer wissen**, was es mit dieser Therapieform auf sich hat? Dann können Sie hier weiterlesen:
 
 ### Wann ist eine Traumatherapie hilfreich? 
 Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie eine oder mehrere **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrung oder Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
