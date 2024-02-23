@@ -15,6 +15,7 @@ Bei mir ist jede Begleitung traumasensibel. Achtsam, einfühlsam, unterstützend
 
 - Sie wollen Ihre **seelische Kraft und Vitalität** spüren und leben? oder
 - Vertrauensvoll das Leben in vollen Zügen genießen? oder
+- Sich tief auf Ihrem Sofa entspannen können, ohne dass Gefühl, ständig etwas tun zu müssen?
 - Sich richtig **wohl in der eigenen Haut** fühlen? oder
 - Mit Ihren Gefühlen harmonisch leben? oder
 - Nährende Beziehungen aufnehmen und pflegen können? 
