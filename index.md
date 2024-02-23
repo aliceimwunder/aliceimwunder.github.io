@@ -11,7 +11,7 @@ layout: default
 
 
 ### Praxis für Traumatherapie und traumasensitives Coaching 
-Bei mir ist jede Begleitung traumasensibel. Einfühlsam, unterstützend und zielführend. Ich hole Sie genau da ab, wo Sie gerade stehen.  
+Bei mir ist jede Begleitung traumasensibel. Achtsam, einfühlsam, unterstützend und zielführend. Ich hole Sie genau da ab, wo Sie gerade stehen.  
 
 - Sie wollen mehr Ihre eigene **seelische Kraft und Vitalität** spüren und leben? oder
 - Vertrauensvoll Leben in vollen Zügen genießen? oder
