@@ -20,7 +20,7 @@ In einer medialen Heilsitzung kannst Du auf energetischer Ebene
 - Ursachen aufspüren.
 - Blockaden lösen.
 - Deine Erdung vertiefen.
-- Dir Freiraum und Klarheit verschaffen, für das was Du willst.
+- Dir Freiraum und Klarheit verschaffen, für das, was Du willst.
 - Deine Schwingung anheben und Deine Seelen-Essenz auf einer tiefen Ebene einfließen lassen.
 
 Die 5. Dimension kann für Dich zur Realität werden. 
