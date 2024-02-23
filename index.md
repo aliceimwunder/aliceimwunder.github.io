@@ -11,11 +11,11 @@ layout: default
 
 
 ### Praxis für Traumatherapie und traumasensitives Coaching 
-Sie wollen mehr Ihre eigene **seelische Kraft** spüren und leben? 
+Sie wollen mehr Ihre eigene **seelische Kraft** spüren und leben? Meine traumasensitive Begleitung ist einfühlsam, unterstützend und zielführend. Ich hole Sie genau da ab, wo Sie gerade stehen.  
 
 Haben Sie den Impuls, sich auf spiritueller Ebene bei Ihren Themen unterstützen zu lassen? 
 
-oder benötigen Sie eine längerfristige psychotherapeutische Begleitung? 
+oder sind Sie auf der Suche nach einer psychotherapeutischen Begleitung? 
 
 Dann sind Sie hier richtig. 
 
@@ -31,17 +31,21 @@ Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
 ### Praxis für Traumatherapie (hp psych)
 Vertrauen ins Leben gewinnen - die Vergangenheit hinter sich lassen - sich wohl in der eigenen Haut fühlen. 
 
-Können wir Belastungserfahrungen nicht verarbeiten, kann unsere Lebensqualität leiden. Auch noch Jahrzehnte nach dem Vorfall (Vorfällen). Wenn das Leben wieder wundervoll werden soll, lassen Sie uns gemeinsam nach Lösungen für Ihre Themen suchen. 
+Können wir Belastungserfahrungen nicht verarbeiten, kann unsere Lebensqualität leiden. Auch noch Jahrzehnte nach dem Vorfall (Vorfällen). Wenn das Leben wieder wundervoll und voller Genuss sein darf, lassen Sie uns [gemeinsam nach Lösungen für Ihre Themen suchen](/2023/02/09/Traumatherapie-in-Berlin.html). 
 
-Jeder ist anders. Belastungserfahrungen können unterschiedlichste psychologischen Symptomen führen, wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angstzuständen, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer 
+Jeder ist anders. Belastungserfahrungen können unterschiedlichste psychologischen Symptomen führen, wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angst, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer.  
 
 Einfühlsam, klar und vertrauensvoll: Ich unterstütze Sie mit meinem therapeutischen Wissen längerfristig.  
 
 (Nur Selbstzahler. Ich empfehle, ärztlich klären zu lassen, dass keine organischen Ursachen für Ihre Symptome bestehen.)
 
 ### Traumasensitives Coaching
-Nicht alles muss in Therapie. Erreichen Sie Ihre Ziele mit traumasensitivem Coaching. Ziele, die Ihnen seelisch entsprechen; die Ihnen ein tiefes Gefühl von Sinnhaftigkeit vermitteln und Sie mit Lebensfreude erfüllen.  
+Nicht alles muss in Therapie. Erreichen Sie Ihre Ziele mit traumasensitivem Coaching. Ziele, die Ihnen seelisch entsprechen; die Ihnen ein tiefes Gefühl von Sinnhaftigkeit vermitteln und Sie mit Lebensfreude erfüllen. 
 
+Themen gerade für traumasensitives Coaching 
+- Für Singles vom Trauma zur Traumbeziehung,
+- von Familienverstrickungen und ungelösten Ahnenmuster zu nie gekannter Freiheit,
+- endlich frei: wenn sich im wohlverdienten Ruhestand plötzlich die Vergangenheit einmischt, dann gilt - es ist nie zu spät, für ein großartiges Leben.
 
 ### Spirituell mediale Heilsitzungen:
 Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörpers wahr. 
