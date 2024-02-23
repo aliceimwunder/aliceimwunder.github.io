@@ -43,10 +43,10 @@ Können wir Belastungserfahrungen nicht verarbeiten, kann unsere Lebensqualität
 Nicht alles muss in Therapie. Erreichen Sie Ihre Ziele mit traumasensitivem Coaching. Ziele, die Ihnen seelisch entsprechen; die Ihnen ein tiefes Gefühl von Sinnhaftigkeit vermitteln und Sie mit Lebensfreude erfüllen. 
 
 Themen gerade für traumasensitives Coaching 
-- Aus medizinischen Krisen wie ein Phönix aus der Asche heraussteigen und volle seelische Selbstheilungskraft entfalten.  
+- Selbstheilungskraft entfachen: Aus medizinischen Krisen wie ein Phönix aus der Asche emporsteigen und mit Vitalität das Leben neustarten.  
 - Für Singles: vom Trauma zur Traumbeziehung.
-- von Familienverstrickungen und ungelösten Ahnenmuster zu nie gekannter Freiheit.
-- endlich frei: wenn sich ausgerechnet im wohlverdienten Ruhestand plötzlich die Vergangenheit einmischt, dann gilt - es ist nie zu spät für ein großartiges Leben, das endlich frei von täglichen gesellschaftlichen Anforderungen ist. 
+- von Familienverstrickungen und ungelösten Ahnenmuster zu nie gekannter innerer Freiheit.
+- es ist nie zu spät: wenn sich ausgerechnet im wohlverdienten Ruhestand plötzlich die Vergangenheit einmischt, vom für ein großartiges Leben, das endlich frei von täglichen gesellschaftlichen Anforderungen ist. 
 
 ### Spirituell mediale Heilsitzungen:
 Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörpers wahr. 
