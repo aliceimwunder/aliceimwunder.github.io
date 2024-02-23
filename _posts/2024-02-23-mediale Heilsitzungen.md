@@ -1,30 +1,36 @@
 ---
-title: Seelenbalsam - mediale Heilsitzung
+title: Selbstheilungskräfte aktivieren - mediales Coaching
 ---
 
-### Willst Du Dich wohlfühlen und die Selbstheilungskräfte entfachen? 
-Mehr Magie in Dein Leben lassen? 
+### Willst Du Dich wohlfühlen und Deine Selbstheilungskräfte entfachen? 
+Mehr Magie in Dein Leben lassen? Dich fühlen, wie ein Einhorn im Glitzerwald? Oder doch lieber gelassen wie ein Buddha? 
 
-Mehr zu Dir kommen und Deine Schwingung erhöhen?
+--> Mehr zu Dir kommen und Deine Schwingung erhöhen? Was genau soll in Deinem Leben geschehen?
 
 In einer medialen Heilsitzung kannst Du auf energetischer Ebene
 
 - Ursachen aufspüren.
 - Blockaden lösen.
 - Deine Erdung vertiefen.
-- Dir Freiraum verschaffen.
-- Deine Schwingung anheben und Deine Essenz leben.
+- Dir Freiraum und Klarheit verschaffen, für das was Du willst.
+- Deine Schwingung anheben und Deine Seelen-Essenz auf einer tiefen Ebene einfließen lassen.
 
+### Mein Weckruf vom Universum
+Hellfühlig war ich seit meiner Kindheit. Oft wusste ich mehr über jemanden vor mir, als mir recht wahr. Wirklich genutzt habe ich diese Fähigkeiten nie. Was soll man damit? Es gab auch niemanden in meiner Kindheit, mit dem ich über meine Wahrnehmungen hätte sprechen können. 
 
-### Meine Ressourcen
-Hellfühlig bin ich seit meiner Kindheit. Oft wusste ich mehr über jemanden vor mir, als mir recht wahr. Wirklich genutzt habe ich diese Fähigkeiten nie. Stattdessen habe ich einen ganz klassischen Beruf gewählt: Juristin 
+Also habe ich einen ganz klassischen Beruf gewählt: Juristin mit allem, was dazu gehört. Rechtswissenschaften in Berlin und Paris studiert, zwei Staatsexamina mit Prädikat erworben, Staats- und Grundrechte an einer Universität unterrichtet, Hochschulen zum Thema Zugang und Zulassung beraten, Beschwerden gegen die Berliner Landesverwaltung für den Petitionsausschuss nachgegangen.  
 
-Bis ich einen Weckruf vom Universum bekam: Was macht man, wenn man ohne Vorwarnung gefühlt an 100 Schläuchen angeschlossen sich plötzlich auf einer kardiologischen Intensivstation wiederfindet und der Chefarzt einem kaum Aussicht auf ein Leben nach dem Krankenhaus gibt. 
+Bis ich einen Weckruf vom Universum bekam: Was macht man, wenn man ohne Vorwarnung gefühlt an 100 Schläuchen angeschlossen sich plötzlich auf einer kardiologischen Intensivstation wiederfindet und der Chefarzt einem kaum Aussicht auf ein Leben nach dem Krankenhaus gibt? 
 
-Damals habe ich zum ersten Mal ernsthaft meine intuitiven Fähigkeiten, mit dem Körper und den Energiebahnen zu kommunizieren, die ihn durchdringen und um ihne herum fließen. Als ich entgegen aller Wahrscheinlichkeiten mit all meinen Organen wieder aus dem Krankenhaus nach 16 Tagen ging, suchte ich mir Hilfe beim Heilen. 
-Dazu kam eine intensive Ausbildung bei Chamuel Schaffert, einer spirituellen Lehrerin in der Schweiz zur spirituell medialen ganzheitlichen Beraterin.
+### Was ich mit diesem Weckruf gemacht habe
+Damals habe ich zum ersten Mal ernsthaft meine intuitiven Fähigkeiten genutzt, mit dem Körper und den Energiebahnen zu kommunizieren, die ihn durchdringen und um ihne herum fließen. Als ich entgegen aller Wahrscheinlichkeiten mit all meinen Organen auf meinen eigenen zwei Beinen das Krankenhaus nach nur 16 Tagen verließ, suchte ich mir spirituelle Hilfe beim Heilen. 
+Dazu kam eine intensive mehrjährige Ausbildung bei Chamuel Schauffert, einer spirituellen Lehrerin in der Schweiz, zur spirituell medialen ganzheitlichen Beraterin.
 
-Heute kann ich auf vielen Wegen Dich unterstützen: 
+Im Krankenhaus galt ich als Wunderheilung. An Wunderheilungen glaube ich persönlich immer noch nicht. Daran, dass eine Diagnose keine Prognose ist, und wir mehr tun können, als wir denken, das schon. Ich bin den Ärzten zutiefst dankbar, dass sie mich bei kaum noch vorhandenen Überlebenschancen gerettet haben. Ohne Herzkatheter, Stent und Unmengen Blutverdünner gäbe es mich nicht mehr. Gereicht hätte es allerdings nicht, um wieder gesund zu werden. Die klassische Medizin kann unser Leben retten - heilen müssen wir selbst. 
+
+Ich harmonisiere Deinen Energiekörper und zeige Dir, was Du tun kannst, um das Leben in vollen Zügen genießen zu können.  
+
+### Heute kann ich auf vielen Wegen Dich unterstützen: 
 - Aura reinigen
 - Kosmische Chirurgie
 - Inkarnationsreisen
@@ -32,6 +38,13 @@ Heute kann ich auf vielen Wegen Dich unterstützen:
 - Heilenergien channeln
 - Lemurische Heilkristallenergien fließen lassen
 
+Entfache auch Du Deine Selbstheilungskräfte. Finde Dein seelisches Warum. Lass Dich von mir begleiten. 
 
+### Kosten
+Erstsitzung zum Ausprobieren: 80,- €
+- Einzelsitzung: 120,-
+- 6 Sitzungen: 540,-
+- 3 Sitzungen: 299,-
+- Begleitung für mind. drei Monate: 960,- (80,- € je Sitzung) 
 
 
