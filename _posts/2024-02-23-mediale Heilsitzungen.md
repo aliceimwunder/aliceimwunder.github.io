@@ -3,17 +3,23 @@ title: Selbstheilungskräfte aktivieren - mediales Coaching
 ---
 
 ### Willst Du Dich wohlfühlen und Deine Selbstheilungskräfte entfachen? 
-Mehr Magie in Dein Leben lassen? Dich fühlen, wie ein Einhorn im Glitzerwald? Oder doch lieber gelassen wie ein Buddha? 
+Mehr Magie in Dein Leben lassen? 
 
---> Mehr zu Dir kommen und Deine Schwingung erhöhen? Was genau soll in Deinem Leben geschehen?
+Dich fühlen, wie ein Einhorn im Glitzerwald? 
+
+Oder doch lieber gelassen wie ein Buddha? 
+
+### Was genau soll in Deinem Leben geschehen?
+Worauf Du Deinen Fokus legst, geschieht in Deinem Leben. 
 
 In einer medialen Heilsitzung kannst Du auf energetischer Ebene
-
 - Ursachen aufspüren.
 - Blockaden lösen.
 - Deine Erdung vertiefen.
 - Dir Freiraum und Klarheit verschaffen, für das was Du willst.
 - Deine Schwingung anheben und Deine Seelen-Essenz auf einer tiefen Ebene einfließen lassen.
+
+Die 5. Dimension kann für Dich zur Realität werden. 
 
 ### Mein Weckruf vom Universum
 Hellfühlig war ich seit meiner Kindheit. Oft wusste ich mehr über jemanden vor mir, als mir recht wahr. Wirklich genutzt habe ich diese Fähigkeiten nie. Was soll man damit? Es gab auch niemanden in meiner Kindheit, mit dem ich über meine Wahrnehmungen hätte sprechen können. 
