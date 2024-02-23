@@ -1,8 +1,8 @@
 # Site settings
 title: Alice Windolf
-subtitle: "Traumatherapie (hp psych) - Innere Kindheilung - SoulCoaching"
+subtitle: "Traumatherapie (hp psych) - Traumasensitives Coaching"
 email: info@alicewindolf.de
-description: Im eigenen Leben ankommen. Das Leben aus der eigenen Seelenkraft gestalten.  
+description: Das Leben aus der eigenen Seelenkraft frei gestalten.   
 baseurl: "/" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site
 author: Alice Windolf
