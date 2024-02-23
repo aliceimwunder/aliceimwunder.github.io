@@ -36,9 +36,9 @@ Bis ich einen Weckruf vom Universum bekam: Was macht man, wenn man ohne Vorwarnu
 Damals habe ich zum ersten Mal ernsthaft meine intuitiven Fähigkeiten genutzt, mit dem Körper und den Energiebahnen zu kommunizieren, die ihn durchdringen und um ihne herum fließen. Als ich entgegen aller Wahrscheinlichkeiten mit all meinen Organen auf meinen eigenen zwei Beinen das Krankenhaus nach nur 16 Tagen verließ, suchte ich mir spirituelle Hilfe beim Heilen. 
 
 
-Dazu kam eine intensive mehrjährige Ausbildung bei Chamuel Schauffert, einer spirituellen Lehrerin in der Schweiz, zur spirituell medialen ganzheitlichen Beraterin. Im Krankenhaus galt ich als Wunderheilung. An Wunderheilungen glaube ich persönlich immer noch nicht. Daran, dass eine Diagnose keine Prognose ist, und wir mehr tun können, als wir denken, das schon. Ich bin den Ärzten zutiefst dankbar, dass sie mich bei kaum noch vorhandenen Überlebenschancen gerettet haben. Ohne Herzkatheter, Stent und Unmengen Blutverdünner gäbe es mich nicht mehr. 
+Dazu kam eine intensive mehrjährige Ausbildung bei Chamuel Schauffert, einer spirituellen Lehrerin in der Schweiz, zur spirituell medialen ganzheitlichen Beraterin. Im Krankenhaus galt ich als Wunderheilung. An Wunderheilungen glaube ich persönlich immer noch nicht. Daran, dass eine Diagnose keine Prognose ist, und wir mehr tun können, als wir denken, das schon. 
 
-Gereicht hätte es allerdings nicht, um wieder gesund zu werden. Die klassische Medizin kann unser Leben retten - heilen müssen wir selbst. 
+Ich bin den Ärzten zutiefst dankbar, dass sie mich bei kaum noch vorhandenen Überlebenschancen gerettet haben. Ohne Herzkatheter, Stent und Unmengen Blutverdünner gäbe es mich nicht mehr. Gereicht hätte es allerdings nicht, um wieder gesund zu werden. Die klassische Medizin kann unser Leben retten - heilen müssen wir selbst. 
 
 ### Heute kann ich auf vielen Wegen Dich unterstützen: 
 Ich harmonisiere Deinen Energiekörper und zeige Dir, was Du tun kannst, um das Leben in vollen Zügen genießen zu können.  
