@@ -13,20 +13,16 @@ layout: default
 ### Praxis für Traumatherapie und traumasensitives Coaching 
 Bei mir ist jede Begleitung traumasensibel. Einfühlsam, unterstützend und zielführend. Ich hole Sie genau da ab, wo Sie gerade stehen.  
 
-- Sie wollen mehr Ihre eigene **seelische Kraft und Vitalität** spüren und leben?
-- Das Leben in vollen Zügen genießen?
-- Sich richtig wohl in der eigenen Haut fühlen?
+- Sie wollen mehr Ihre eigene **seelische Kraft und Vitalität** spüren und leben? oder
+- Das Leben in vollen Zügen genießen? oder
+- Sich richtig **wohl in der eigenen Haut** fühlen? oder
 - Nährende Beziehungen aufnehmen und pflegen können? 
 
---> Die Vergangenheit lässt sich nicht mehr ändern: völlig egal! Dann dürfen sich jetzt alle Ihre Erfahrungen in Weisheit und inneren Wachstum wandeln. 
+oder alles zusammen? 
 
+--> Die Vergangenheit lässt sich nicht mehr ändern: völlig egal! All Ihre Erfahrungen dürfen sich jetzt in Weisheit und inneren Wachstum wandeln. 
 
-Haben Sie den Impuls, sich auf spiritueller Ebene bei Ihren Themen unterstützen zu lassen? 
-
-oder sind Sie auf der Suche nach einer psychotherapeutischen Begleitung? 
-
-Dann sind Sie hier richtig. 
-
+Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. Von evidenzbasiert bis spirituell, das was Sie am effizientesten weiterbringt. 
 
 ### Nächste Termine
 - **Freitag, den 23.02.2024, 19:00 Uhr**, **Aurareinigung: [Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)** mit heilsamen Klängen" - Thema: Mit Fokus manifestieren. 
@@ -51,9 +47,10 @@ Einfühlsam, klar und vertrauensvoll: Ich unterstütze Sie mit meinem therapeuti
 Nicht alles muss in Therapie. Erreichen Sie Ihre Ziele mit traumasensitivem Coaching. Ziele, die Ihnen seelisch entsprechen; die Ihnen ein tiefes Gefühl von Sinnhaftigkeit vermitteln und Sie mit Lebensfreude erfüllen. 
 
 Themen gerade für traumasensitives Coaching 
-- Für Singles vom Trauma zur Traumbeziehung,
-- von Familienverstrickungen und ungelösten Ahnenmuster zu nie gekannter Freiheit,
-- endlich frei: wenn sich im wohlverdienten Ruhestand plötzlich die Vergangenheit einmischt, dann gilt - es ist nie zu spät, für ein großartiges Leben.
+- Aus medizinischen Krisen wie ein Phönix aus der Asche heraussteigen und volle seelische Selbstheilungskraft entfalten.  
+- Für Singles: vom Trauma zur Traumbeziehung.
+- von Familienverstrickungen und ungelösten Ahnenmuster zu nie gekannter Freiheit.
+- endlich frei: wenn sich ausgerechnet im wohlverdienten Ruhestand plötzlich die Vergangenheit einmischt, dann gilt - es ist nie zu spät für ein großartiges Leben, das endlich frei von täglichen gesellschaftlichen Anforderungen ist. 
 
 ### Spirituell mediale Heilsitzungen:
 Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörpers wahr. 
