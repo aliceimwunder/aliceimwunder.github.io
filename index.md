@@ -37,12 +37,6 @@ Vertrauen ins Leben gewinnen - die Vergangenheit hinter sich lassen - sich wohl 
 
 Können wir Belastungserfahrungen nicht verarbeiten, kann unsere Lebensqualität leiden. Auch noch Jahrzehnte nach dem Vorfall (Vorfällen). Wenn das Leben wieder wundervoll und voller Genuss sein darf, lassen Sie uns [gemeinsam nach Lösungen für Ihre Themen suchen](/2023/02/09/Traumatherapie-in-Berlin.html). 
 
-Jeder ist anders. Belastungserfahrungen können unterschiedlichste psychologischen Symptomen führen, wie z.B. PTBS, kPTBS, psychosomatischen Beschwerden, Depression, Angst, Schlaf- oder Zwangsstörungen, Erschöpfung, Schmerzsyndrom, verlängerte Trauer.  
-
-Einfühlsam, klar und vertrauensvoll: Ich unterstütze Sie mit meinem therapeutischen Wissen längerfristig.  
-
-(Nur Selbstzahler. Ich empfehle, ärztlich klären zu lassen, dass keine organischen Ursachen für Ihre Symptome bestehen.)
-
 ### Traumasensitives Coaching
 Nicht alles muss in Therapie. Erreichen Sie Ihre Ziele mit traumasensitivem Coaching. Ziele, die Ihnen seelisch entsprechen; die Ihnen ein tiefes Gefühl von Sinnhaftigkeit vermitteln und Sie mit Lebensfreude erfüllen. 
 
