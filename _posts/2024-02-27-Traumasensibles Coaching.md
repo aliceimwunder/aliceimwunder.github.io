@@ -20,13 +20,36 @@ In den USA ist es schon lange üblich, sich professionele Unterstützung zu such
 - vielleicht sogar ganz neu ausrichten nach einer Krankheit?
 - wieder einen Einklang mit Ihrem Körper finden? 
 
-Dann sind Sie bei mir richtig. Ich bin Traumatherapeutin und Coach und begleite Sie in Ihr Leben, dass sich lohnt zu leben.
+Dann sind Sie bei mir richtig. Ich bin Traumatherapeutin und Coach und begleite Sie in Ihr Leben, dass sich lohnt zu leben. 
 
-Wie ich dazu gekommen bin?
-Ursprünglich wählte ich einen sehr klassischen Beruf: Juristin mit allem, was dazu gehört. Rechtswissenschaften in Berlin und Paris studiert, zwei Staatsexamina mit Prädikat erworben, Staats- und Grundrechte an einer Universität unterrichtet, Hochschulen zum Thema Zugang und Zulassung beraten, Beschwerden gegen die Berliner Landesverwaltung für den Petitionsausschuss nachgegangen.
+### Wie ich dazu gekommen bin?
+Ursprünglich wählte ich einen sehr klassischen Beruf: 
+
+Juristin mit allem, was dazu gehört. Rechtswissenschaften in Berlin und Paris studiert, zwei Staatsexamina mit Prädikat erworben, Staats- und Grundrechte an einer Universität unterrichtet, Hochschulen zum Thema Zugang und Zulassung beraten, Beschwerden gegen die Berliner Landesverwaltung für den Petitionsausschuss nachgegangen, Führungsverantwortung übernommen.
 
 Bis ich einen Weckruf vom Universum bekam: Ohne Vorwarnung fand ich mich mit Anfang 40 in der Charité, des Berliner Universitätsklinikums. Ich hatte eine 5 jährige Tochter, einen liebevollen Ehemann, eine ruhige Stadtwohnung mit Gärtchen und nicht die geringsten Absichten, das Zeitliche zu segnen. 
-Was macht man, wenn man ohne Vorwarnung gefühlt an 100 Schläuchen angeschlossen sich plötzlich auf einer kardiologischen Intensivstation wiederfindet und der Chefarzt einem kaum Aussicht auf ein Leben nach dem Krankenhaus gibt?
+
+Was macht man, wenn man ohne Vorwarnung gefühlt an 100 Schläuchen angeschlossen sich plötzlich auf einer kardiologischen Intensivstation wiederfindet und der Chefarzt einem kaum Aussicht auf ein Leben nach dem Krankenhaus gibt? Nach 16 Tagen verließ ich zum Erstaunen der Ärzte auf meinen eigenen zwei Beinen mit all meinen Organen das Klinikum. Dort gelte ich nun als Wunderheilung. 
+
+An Wunderheilungen glaube ich immer noch nicht so recht. Man kann aktiv etwas tun, damit man wieder auf die Beine kommt. Ja, das Leben an sich ist ein magisches Geschenk. Manchmal zerrinnt es einem durch die Finger. Doch ganz oft hat man sehr großen Einfluss darauf, dass man sich regeneriert. 
+
+### Entfachen auch Sie Ihre Selbstheilungskräfte
+Das erste, was ich damals tat, war, jemanden anzurufen, der mich begleitete, da wieder rauszukommen. Auf meinem langen Heilungsweg danach habe ich alles ausprobiert, was sich mir anbot und irgendwie sinnvoll klang. Von Traumatherapie über Coaching bis hin zu spirituellen Techniken. 
+
+Aus diesem breiten Wissensfundus heraus hole ich Sie da ab, wo Sie stehen und wir finden gemeinsam Lösungen, damit Sie Ihre Selbstheilungskräfte ebenso entfachen. Ein solches Coaching läuft über mind. 3 Monate. Auch Sie können Ihre Selbstheilungskräfte hochfahren und Ihr Leben in ein Wunder verwandeln. 
+
+1:1 Sitzung zum Ausprobieren: 120,- €
+Dreimonatige Begleitung in 1:1 Coaching: 990,- € 
+
+
+
+
+
+
+
+
+
+
 
   
 
