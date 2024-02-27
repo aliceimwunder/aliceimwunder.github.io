@@ -11,7 +11,7 @@ layout: default
 
 
 ### Praxis für Traumatherapie und traumasensitives Coaching 
-Hier finden Sie traumasensibele Begleitung. Achtsam, einfühlsam, unterstützend und immer zielführend. Ich hole Sie genau da ab, wo Sie gerade stehen.  
+Hier finden Sie traumasensibele Begleitung, um Ihre Selbstheilung zu entfachen. Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.  
 
 --> Die Vergangenheit lässt sich nicht mehr ändern: völlig egal! All Ihre Erfahrungen können sich in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
 
