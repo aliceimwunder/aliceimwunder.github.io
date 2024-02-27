@@ -17,9 +17,9 @@ Hier finden Sie traumasensibele Begleitung. Achtsam, einfühlsam, unterstützend
 
 Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. Von evidenzbasiert bis spirituell, das was Sie am effizientesten weiterbringt. 
 
-Sie haben die Wahl zwischen **Traumatherapie** (hp psych) oder **traumasensbilem Coaching** für Menschen, die ihre Selbstheilungskräfte entfachen wollen.  
-
 ![Jaymaleh](/assets/about-Portrait2.jpg)
+
+Sie haben die Wahl zwischen **Traumatherapie** (hp psych) oder **traumasensbilem Coaching** für Menschen, die ihre Selbstheilungskräfte entfachen wollen.  
 
 Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
 
