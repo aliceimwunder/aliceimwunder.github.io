@@ -6,7 +6,7 @@ layout: default
 
 <header>
 	<h1>Willkommen</h1>
-	<p>Ein Ort für Achtsamkeit</p>
+	<p>Ein Ort für Achtsamkeit - Entfachen Sie Ihre Selbstheilung</p>
 </header>
 
 
