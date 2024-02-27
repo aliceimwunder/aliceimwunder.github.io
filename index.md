@@ -19,7 +19,7 @@ Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Lebe
 
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
-Sie haben die Wahl zwischen **[Traumatherapie]/2023/02/09/Traumatherapie-in-Berlin.html** (hp psych), **traumasensbilem Coaching** und [medialen Heilsitzungen](/2024/02/23/mediales-Coaching.html) für Menschen, die ihre Selbstheilungskräfte entfachen wollen.  
+Sie haben die Wahl zwischen **[Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html)** (hp psych), **traumasensbilem Coaching** und [medialen Heilsitzungen](/2024/02/23/mediales-Coaching.html) für Menschen, die ihre Selbstheilungskräfte entfachen wollen.  
 
 Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
 
