@@ -28,7 +28,9 @@ Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
 - **Freitag, den 26.04.2024, 19:00 Uhr**, **Geführte Meditation: [Das sanfte darf Raum haben](/2023/02/10/Gruppenabende-Meditationsreisen)** mit Aurareinigung und heilsamen Klängen". 
 
 ### Praxis für Traumatherapie (hp psych)
-Vertrauen ins Leben gewinnen - die Vergangenheit hinter sich lassen - sich wohl in der eigenen Haut fühlen: Eine Therapie ist sinnvoll, wenn man weiß, dass man schon einige Jahre bis gar Jahrzehnten auf tiefsitzenden Themen sitzt, die einen an der eigenen Stärke und inneren Freiheit hindern, oder wenn man konkrete psychische Symptome hat. Denn können wir Belastungserfahrungen nicht verarbeiten, kann unsere Lebensqualität leiden. Auch noch Jahrzehnte nach dem Vorfall (bzw. Vorfällen). 
+Vertrauen ins Leben gewinnen - die Vergangenheit hinter sich lassen - sich wohl in der eigenen Haut fühlen: Eine Therapie ist sinnvoll, wenn man weiß, dass man schon einige Jahre bis gar Jahrzehnten auf tiefsitzenden Themen sitzt, die einen an der eigenen Stärke und inneren Freiheit hindern, oder wenn man konkrete psychische Symptome hat. 
+
+Denn können wir Belastungserfahrungen nicht verarbeiten, kann unsere Lebensqualität leiden. Auch noch Jahrzehnte nach dem Vorfall (bzw. Vorfällen). Das muss nicht so bleiben! 
 
 Wenn das **Leben wundervoll** und voller Genuss werden darf, lassen Sie uns [gemeinsam nach Lösungen für Ihre Themen suchen](/2023/02/09/Traumatherapie-in-Berlin.html). 
 
