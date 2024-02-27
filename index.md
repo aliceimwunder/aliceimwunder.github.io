@@ -11,44 +11,40 @@ layout: default
 
 
 ### Praxis für Traumatherapie und traumasensitives Coaching 
-Bei mir ist jede Begleitung traumasensibel. Achtsam, einfühlsam, unterstützend und zielführend. Ich hole Sie genau da ab, wo Sie gerade stehen.  
+Hier finden Sie traumasensibele Begleitung. Achtsam, einfühlsam, unterstützend und immer zielführend. Ich hole Sie genau da ab, wo Sie gerade stehen.  
 
-- Sie wollen Ihre **seelische Kraft und Vitalität** spüren und leben? oder
-- Vertrauensvoll das Leben in vollen Zügen genießen? oder
-- tiefenentspannt auf Ihrem Sofa sitzen (ohne das ständige Gefühl, etwas tun zu müssen)? oder
-- Sich richtig **wohl in der eigenen Haut** fühlen? oder
-- Mit Ihren Gefühlen harmonisch leben? oder
-- Nährende Beziehungen aufnehmen und pflegen können? 
-
-oder alles zusammen? 
-
---> Die Vergangenheit lässt sich nicht mehr ändern: völlig egal! All Ihre Erfahrungen können sich jetzt in Weisheit und inneren Wachstum wandeln. (Wie Luise Reddemann, die große Traumatherapeutin, dazu formulierte: Wir machen aus jedem Mist Dünger.)
+--> Die Vergangenheit lässt sich nicht mehr ändern: völlig egal! All Ihre Erfahrungen können sich in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
 
 Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. Von evidenzbasiert bis spirituell, das was Sie am effizientesten weiterbringt. 
 
-### Nächste Termine
-- **Freitag, den 23.02.2024, 19:00 Uhr**, **Aurareinigung: [Frische für den Energiekörper](/2023/02/10/Gruppenabende-Meditationsreisen)** mit heilsamen Klängen" - Thema: Mit Fokus manifestieren. 
-- **Freitag, den 15.03.2024, 18:30 Uhr. Wheel of Awareness:** [Ein Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+Sie haben die Wahl zwischen **Traumatherapie** (hp psych) oder **traumasensbilem Coaching** für Menschen, die ihre Selbstheilungskräfte entfachen wollen.  
 
- ![Jaymaleh](/assets/about-Portrait2.jpg)
+![Jaymaleh](/assets/about-Portrait2.jpg)
 
 Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
 
-### Praxis für Traumatherapie (hp psych)
-Vertrauen ins Leben gewinnen - die Vergangenheit hinter sich lassen - sich wohl in der eigenen Haut fühlen. 
+### Nächste Termine
+- **Freitag, den 15.03.2024, und 19:4., 18:30 Uhr. Wheel of Awareness:** [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+- **Freitag, den 26.04.2024, 19:00 Uhr**, **Geführte Meditation: [Das sanfte darf Raum haben](/2023/02/10/Gruppenabende-Meditationsreisen)** mit Aurareinigung und heilsamen Klängen". 
 
-Können wir Belastungserfahrungen nicht verarbeiten, kann unsere Lebensqualität leiden. Auch noch Jahrzehnte nach dem Vorfall (Vorfällen). Wenn das Leben wieder wundervoll und voller Genuss sein darf, lassen Sie uns [gemeinsam nach Lösungen für Ihre Themen suchen](/2023/02/09/Traumatherapie-in-Berlin.html). 
+### Praxis für Traumatherapie (hp psych)
+Vertrauen ins Leben gewinnen - die Vergangenheit hinter sich lassen - sich wohl in der eigenen Haut fühlen: Eine Therapie ist sinnvoll, wenn man weiß, dass man schon einige Jahre bis gar Jahrzehnten auf tiefsitzenden Themen sitzt, die einen an der eigenen Stärke und inneren Freiheit hindern, oder wenn man konkrete psychische Symptome hat. Denn können wir Belastungserfahrungen nicht verarbeiten, kann unsere Lebensqualität leiden. Auch noch Jahrzehnte nach dem Vorfall (bzw. Vorfällen). 
+
+Wenn das **Leben wundervoll** und voller Genuss werden darf, lassen Sie uns [gemeinsam nach Lösungen für Ihre Themen suchen](/2023/02/09/Traumatherapie-in-Berlin.html). 
 
 ### Traumasensitives Coaching
-Nicht alles muss in Therapie. Erreichen Sie Ihre Ziele mit traumasensitivem Coaching. Ziele, die Ihnen seelisch entsprechen; die Ihnen ein tiefes Gefühl von Sinnhaftigkeit vermitteln und Sie mit Lebensfreude erfüllen. 
+Nicht alles muss in Therapie. (Manches schon, lassen Sie uns darüber sprechen, was Sie brauchen.)
 
-Themen gerade für traumasensitives Coaching 
-- Selbstheilungskraft entfachen: Aus medizinischen Krisen wie ein Phönix aus der Asche emporsteigen und mit Vitalität das Leben neustarten.  
+Bei mir sind Sie richtig, wenn Sie Ihre **Selbstheilungskräfte entfachen** wollen. Eine Diagnose mag ein Schlag sein, ist aber nur sehr bedingt eine Prognose. Ich begleite Menschen, die sich von Diagnosen nicht einschüchtern lassen wollen, die wissen, dass ein klares inneres Warum für das Leben und ein innerer Sinn für eine Genesung extrem unterstützend sein können. 
+
+--> Aus medizinischen Krisen wie ein Phönix aus der Asche emporsteigen und mit Vitalität das Leben neustarten. Ich begeite mit traumasensbsiblem Coaching, weil ich aus eigener Erfahrung weiß, wie wichtig es ist, sich auf das auszurichten, was einem wichtig ist. 
+
+Mögliche weitere Themen für traumasensibles Coaching können sein: 
 - Für Singles: vom Trauma zur Traumbeziehung.
 - von Familienverstrickungen und ungelösten Ahnenmuster zu nie gekannter innerer Freiheit.
 - es ist nie zu spät: wenn sich ausgerechnet im wohlverdienten Ruhestand plötzlich die Vergangenheit einmischt, vom für ein großartiges Leben, das endlich frei von täglichen gesellschaftlichen Anforderungen ist. 
 
-### Spirituell mediale Heilsitzungen:
+### Spirituell mediale Heilsitzungen
 Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörpers wahr. 
 
 Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will. 
@@ -59,8 +55,6 @@ Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will.
 - Bewusstsein entfalten. Frieden leben. 
 - Verbundenheit wahrnehmen.
   
-Grundlage meiner medialen Sitzungen für Sie kann bspw. kosmische Chirurgie, Energiearbeit, Reinkarnationsreisen, Akasha-Chronik lesen, Ahnenergien ausgleichen oder Aurareinigung sein. 
-
 Meine spirituellen Heilsitzungen enthalten keine medizinsche Heilkunde und dienen nicht der Linderung konkreter Krankheiten.  
 
 
