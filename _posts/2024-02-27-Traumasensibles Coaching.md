@@ -17,7 +17,7 @@ In den USA ist es schon lange üblich, sich professionelle Unterstützung zu suc
 
 **Sie wollen** 
 - so schnell wie möglich wieder auf die Beine kommen?
-- Ihre Selbstheilungskraft entfachen, damit Sie die Kraft und Vitalität für ein lebendiges Leben haben, ein Leben, dass sich lohnt zu genießen?
+- Ihre Selbstheilungskraft entfachen, damit Sie die Kraft und Vitalität für ein lebendiges Leben haben, ein Leben, das sich lohnt zu genießen?
 - sich nicht nur auf unsere Apparatemedizin und pharmakologische Behandlung verlassen (so wichtig sie auch sein mag) sondern aktiv selbst etwas für sich tun?
 - ein tragendes Warum für Ihr Leben finden? Das, was für Sie wie ein Kompass wirkt, wohin die Reise gehen darf?  
 - die gesundheitliche Krise nutzen und sich klar ausrichten, was Ihrem Leben einen tiefen Sinn gibt?
