@@ -13,7 +13,7 @@ Doch ganz wichtig: Diagnosen sind keine Prognosen. Auch wenn wir das in schwieri
 Was wäre, wenn sich Ihr **Leben ganz neu entfalten** würde? Sie wieder die **Magie** und die **Kraft** und die **Lebendigkeit** in Ihrem Leben spüren? Eine noch nie gekannte Klarheit aus der Krise ziehen - laserscharfer Fokus auf das, was Ihnen wichtig ist?
 
 ### Traumasensbiles Coaching für Menschen in Regeneration
-In den USA ist es schon lange üblich, sich professionele Unterstützung zu suchen. Denn damit steigt die Wahrscheinlichkeit enorm auf eine gute Regeneration. 
+In den USA ist es schon lange üblich, sich professionelle Unterstützung zu suchen. Denn damit steigt die Wahrscheinlichkeit enorm auf eine gute Regeneration. 
 
 **Sie wollen** 
 - so schnell wie möglich wieder auf die Beine kommen?
