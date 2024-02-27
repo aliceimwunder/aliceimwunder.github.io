@@ -47,7 +47,7 @@ Mögliche weitere Themen für traumasensibles Coaching können sein:
 - es ist nie zu spät: wenn sich ausgerechnet im wohlverdienten Ruhestand plötzlich die Vergangenheit einmischt, vom für ein großartiges Leben, das endlich frei von täglichen gesellschaftlichen Anforderungen ist. 
 
 ### Spirituell mediale Heilsitzungen
-Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörpers wahr. 
+Buchen Sie sich mehr [Einklang mit sich](/2024/02/23/mediales-Coaching.html). Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörpers wahr. 
 
 Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will. 
 
