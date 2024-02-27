@@ -8,7 +8,7 @@ Viele von uns kennen das: Diagnosen und medizinische Behandlungen sind in bestim
 
 Medizinische Behandlungen können extrem schlauchen, sind potentiell traumatisierend. Manchmal haben Schulmediziner keinen Rat und auch damit muss man umgehen. 
 
-Doch ganz wichtig: Diagnosen keine Prognosen. Auch wenn wir das oft von Ärzten verlangen. Jetzt sagen Sie schon, wie wahrscheinlich ist es...? Dann bekommt man genau das: eine statistische Wahrscheinlichkeit. 
+Doch ganz wichtig: Diagnosen sind keine Prognosen. Auch wenn wir das in schwierigen Lagen oft von Ärzten verlangen. Jetzt sagen Sie schon, wie wahrscheinlich ist es...? Das habe ich damals, als es mich betraf, auch gemacht. Dann bekommt man genau das: eine statistische Wahrscheinlichkeit. 
 
 Was wäre, wenn sich Ihr **Leben ganz neu entfalten** würde? Sie wieder die **Magie** und die **Kraft** und die **Lebendigkeit** in Ihrem Leben spüren? Eine noch nie gekannte Klarheit aus der Krise ziehe - laserscharfer Fokus auf das, was Ihnen wichtig ist?
 
