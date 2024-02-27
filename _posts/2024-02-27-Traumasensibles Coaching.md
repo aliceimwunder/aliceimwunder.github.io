@@ -2,13 +2,17 @@
 title: Traumasensibles Coaching
 ---
 
-Für Menschen in/nach medizinischen Behandlungen. Diagnosen und medizinische Behandlungen sind manchmal notwendig. 
+Für Menschen in/nach medizinischen Behandlungen. 
 
-Doch medizinische Behandlungen können extrem schlauchen, sind potentiell traumatisierend. Manchmal haben Schulmediziner keinen Rat und auch damit muss man umgehen. 
+Viele von uns kennen das: Diagnosen und medizinische Behandlungen sind in bestimmten Lebenslagen ein notwendiges Übel. Schön ist anders.  
 
-Ganz wichtig: Diagnosen keine Prognosen. Auch wenn wir das oft von Ärzten verlangen. Jetzt sagen Sie schon, wie wahrscheinlich ist es...? Dann bekommt man genau das: eine statistische Wahrscheinlichkeit. 
+Medizinische Behandlungen können extrem schlauchen, sind potentiell traumatisierend. Manchmal haben Schulmediziner keinen Rat und auch damit muss man umgehen. 
 
-### Traumasensbiles Coaching 
+Doch ganz wichtig: Diagnosen keine Prognosen. Auch wenn wir das oft von Ärzten verlangen. Jetzt sagen Sie schon, wie wahrscheinlich ist es...? Dann bekommt man genau das: eine statistische Wahrscheinlichkeit. 
+
+Was wäre, wenn sich Ihr **Leben ganz neu entfalten** würde? Sie wieder die **Magie** und die **Kraft** und die **Lebendigkeit** in Ihrem Leben spüren? Eine noch nie gekannte Klarheit aus der Krise ziehe - laserscharfer Fokus auf das, was Ihnen wichtig ist?
+
+### Traumasensbiles Coaching für Menschen in Regeneration
 In den USA ist es schon lange üblich, sich professionele Unterstützung zu suchen. Denn damit steigt die Wahrscheinlichkeit enorm auf eine gute Regeneration. 
 
 **Sie wollen** 
