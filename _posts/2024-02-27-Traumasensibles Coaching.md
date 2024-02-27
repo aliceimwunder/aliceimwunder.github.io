@@ -10,7 +10,7 @@ Medizinische Behandlungen können extrem schlauchen, sind potentiell traumatisie
 
 Doch ganz wichtig: Diagnosen sind keine Prognosen. Auch wenn wir das in schwierigen Lagen oft von Ärzten verlangen. Jetzt sagen Sie schon, wie wahrscheinlich ist es...? Das habe ich damals, als es mich betraf, auch gemacht. Dann bekommt man genau das: eine statistische Wahrscheinlichkeit. 
 
-Was wäre, wenn sich Ihr **Leben ganz neu entfalten** würde? Sie wieder die **Magie** und die **Kraft** und die **Lebendigkeit** in Ihrem Leben spüren? Eine noch nie gekannte Klarheit aus der Krise ziehe - laserscharfer Fokus auf das, was Ihnen wichtig ist?
+Was wäre, wenn sich Ihr **Leben ganz neu entfalten** würde? Sie wieder die **Magie** und die **Kraft** und die **Lebendigkeit** in Ihrem Leben spüren? Eine noch nie gekannte Klarheit aus der Krise ziehen - laserscharfer Fokus auf das, was Ihnen wichtig ist?
 
 ### Traumasensbiles Coaching für Menschen in Regeneration
 In den USA ist es schon lange üblich, sich professionele Unterstützung zu suchen. Denn damit steigt die Wahrscheinlichkeit enorm auf eine gute Regeneration. 
