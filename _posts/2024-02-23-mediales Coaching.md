@@ -18,7 +18,7 @@ Mit medialem Coaching kannst Du auf energetischer Ebene
 
 Die 5. Dimension kann für Dich mehr und mehr zur Realität werden. 
 
-### Mein Weckruf vom Universum
+### Wie bin dazu gekommen, Medialität in meine Coachings einfließen zu lassen - Mein Weckruf vom Universum
 Hellfühlig war ich seit meiner Kindheit. Oft wusste ich mehr über jemanden vor mir, als mir recht wahr. Wirklich genutzt habe ich diese Fähigkeiten nie. Was soll man damit? Es gab auch niemanden in meiner Kindheit, mit dem ich über meine Wahrnehmungen hätte sprechen können. 
 
 Also habe ich einen ganz klassischen Beruf gewählt: Juristin mit allem, was dazu gehört. Rechtswissenschaften in Berlin und Paris studiert, zwei Staatsexamina mit Prädikat erworben, Staats- und Grundrechte an einer Universität unterrichtet, Hochschulen zum Thema Zugang und Zulassung beraten, Beschwerden gegen die Berliner Landesverwaltung für den Petitionsausschuss nachgegangen.  
