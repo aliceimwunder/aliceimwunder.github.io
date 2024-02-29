@@ -48,8 +48,8 @@ Unverbindliches Online-Gespräch auf zoom von 10 bis 20 min buchen:
 [Termin buchen](https://traumatherapie.youcanbook.me)
 </span>
 
-- Ein solches Coaching läuft über mind. 3 Monate. 
-- 1:1 Sitzung zum Ausprobieren: 120,- €
+Sei Dir bewusst: ein solches Coaching bringt Dir nur etwas, wenn Du Dich über mind. drei Monate begleiten lässt. 
+- 1:1 Sitzung ohne Risiko zum Ausprobieren: 120,- €
 - Dreimonatige Begleitung in 1:1 Coaching: 990,- € 
 
 
