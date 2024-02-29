@@ -18,23 +18,24 @@ Mit medialem Coaching kannst Du auf energetischer Ebene
 
 Die 5. Dimension kann für Dich mehr und mehr zur Realität werden. 
 
-### Wie bin ich dazu gekommen, Medialität in meine Coachings einfließen zu lassen? Mein Weckruf vom Universum
-Hellfühlig war ich seit meiner Kindheit. Oft wusste ich mehr über jemanden vor mir, als mir recht wahr. Wirklich genutzt habe ich diese Fähigkeiten nie. Was soll man damit? Es gab auch niemanden in meiner Kindheit, mit dem ich über meine Wahrnehmungen hätte sprechen können. 
+### Wie bin ich dazu gekommen, Medialität in meine Coachings einfließen zu lassen? 
+**Hellfühlig** war ich seit meiner Kindheit. Oft wusste ich mehr über jemanden vor mir, als mir recht wahr. Wirklich genutzt habe ich diese Fähigkeiten nie. Was soll man damit? Es gab auch niemanden in meiner Kindheit, mit dem ich über meine Wahrnehmungen hätte sprechen können. 
 
-Also habe ich einen ganz klassischen Beruf gewählt: Juristin mit allem, was dazu gehört. Rechtswissenschaften in Berlin und Paris studiert, zwei Staatsexamina mit Prädikat erworben, Staats- und Grundrechte an einer Universität unterrichtet, Hochschulen zum Thema Zugang und Zulassung beraten, Beschwerden gegen die Berliner Landesverwaltung für den Petitionsausschuss nachgegangen.  
+Also habe ich einen ganz klassischen Beruf gewählt: **Juristin** mit allem, was dazu gehört. Rechtswissenschaften in Berlin und Paris studiert, zwei Staatsexamina mit Prädikat erworben, Staats- und Grundrechte an einer Universität unterrichtet, Hochschulen zum Thema Zugang und Zulassung beraten, Beschwerden gegen die Berliner Landesverwaltung für den Petitionsausschuss nachgegangen. Führungsverantwortung in einem zehnköpfigen Team wahrgenommen.
 
-Bis ich einen Weckruf vom Universum bekam: Was macht man, wenn man ohne Vorwarnung gefühlt an 100 Schläuchen angeschlossen sich plötzlich auf einer kardiologischen Intensivstation wiederfindet und der Chefarzt einem kaum Aussicht auf ein Leben nach dem Krankenhaus gibt? 
+Bis ich einen **Weckruf vom Universum** bekam: Was macht man, wenn man ohne Vorwarnung gefühlt an 100 Schläuchen angeschlossen sich plötzlich auf einer kardiologischen Intensivstation wiederfindet und der Chefarzt einem kaum Aussicht auf ein Leben nach dem Krankenhaus gibt? Hallo? So hatte ich das Leben nicht gebucht. 
 
 ### Was ich mit diesem Weckruf gemacht habe
-Damals habe ich zum ersten Mal ernsthaft meine intuitiven Fähigkeiten genutzt, mit dem Körper und den Energiebahnen zu kommunizieren, die ihn durchdringen und um ihne herum fließen. Als ich entgegen aller Wahrscheinlichkeiten mit all meinen Organen auf meinen eigenen zwei Beinen das Krankenhaus nach nur 16 Tagen verließ, suchte ich mir spirituelle Hilfe beim Heilen. 
+Damals habe ich zum ersten Mal ernsthaft meine **intuitiven Fähigkeiten** genutzt, mit dem Körper und den Energiebahnen zu kommunizieren, die ihn durchdringen und um ihne herum fließen. Als ich entgegen aller Wahrscheinlichkeiten mit all meinen Organen auf meinen eigenen zwei Beinen das Krankenhaus nach nur 16 Tagen verließ, suchte ich mir traumatherapeutische und spirituelle Hilfe beim Heilen. 
 
+In der Klinik galt ich als Wunderheilung. Doch das war nicht meine Wahrnehmung. Ich hatte **aktiv in mir Energien verändert**, ohne genau zu verstehen, was ich da getan habe. Daher suchte ich mir zu dieser Fähigkeit eine Ausbildung, damit ich die Energieebene auf einer tieferen Ebene verstehen lernte. Ich suchte mir eine intensive mehrjährige Ausbildung zur spirituell medialen ganzheitlichen Beraterin bei Chamuel Schauffert, einer spirituellen Lehrerin und Buchautorin aus der Schweiz.
 
-Dazu kam eine intensive mehrjährige Ausbildung bei Chamuel Schauffert, einer spirituellen Lehrerin in der Schweiz, zur spirituell medialen ganzheitlichen Beraterin. Im Krankenhaus galt ich als Wunderheilung. An Wunderheilungen glaube ich persönlich immer noch nicht. Daran, dass eine Diagnose keine Prognose ist, und wir mehr tun können, als wir denken, das schon. 
-
-Ich bin den Ärzten zutiefst dankbar, dass sie mich bei kaum noch vorhandenen Überlebenschancen gerettet haben. Ohne Herzkatheter, Stent und Unmengen Blutverdünner gäbe es mich nicht mehr. Gereicht hätte es allerdings nicht, um wieder gesund zu werden. Die klassische Medizin kann unser Leben retten - heilen müssen wir selbst. 
+Ich bin den Ärzten zutiefst dankbar, dass sie meinen Körper bei kaum noch vorhandenen Überlebenschancen gerettet haben. Ohne Herzkatheter, Stent und Unmengen Blutverdünner gäbe es mich nicht mehr. Gereicht hätte es allerdings nicht, um auch wieder gesund zu werden. Die Schulmedizin kann unser Leben retten - heilen müssen wir selbst. 
 
 ### Heute kann ich auf vielen Wegen Dich unterstützen: 
-Ich harmonisiere Deinen Energiekörper und zeige Dir, was Du tun kannst, um das Leben in vollen Zügen genießen zu können.  
+Ich harmonisiere Deinen Energiekörper und wir finden gemeinsam Lösungen, was Du tun kannst, um das Leben in vollen Zügen genießen zu können.
+
+**Beispielsweise mit**
 - Aura reinigen
 - Kosmische Chirurgie
 - Inkarnationsreisen
