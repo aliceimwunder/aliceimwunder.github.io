@@ -42,7 +42,7 @@ Jedenfalls das erste, was ich damals tat, war, jemanden anzurufen, der mich begl
 
 Aus diesem breiten Wissensfundus heraus hole ich Sie da ab, wo Sie stehen und wir finden gemeinsam Lösungen, damit Sie Ihre Selbstheilungskräfte ebenso entfachen. Auch Sie können Ihre Selbstheilungskräfte hochfahren und Ihr Leben in ein Wunder verwandeln. 
 
-Passen wir zusammen? Lass es uns klären in einem unverbindliches Online-Gespräch auf zoom von 10 bis 20 min. 
+Passen wir zusammen? Das einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom von 10 bis 20 min. 
 
 Buch Dir einen
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
