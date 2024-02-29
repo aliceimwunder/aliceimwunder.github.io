@@ -2,7 +2,7 @@
 title: Traumasensibles Coaching
 ---
 
-## Für Menschen in/nach medizinischen Behandlungen.  
+## Für Menschen in/nach medizinischen Behandlungen  
 
 Viele von uns kennen das: Diagnosen und medizinische Behandlungen sind in bestimmten Lebenslagen ein notwendiges Übel. Schön ist anders. Erschreckend viele geben dann auf und richten sich in reduzierter Lebensqualität ein. Das muss nicht so sein!   
 
