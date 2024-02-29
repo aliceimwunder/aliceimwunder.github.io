@@ -9,8 +9,8 @@ Foto von <a href="https://unsplash.com/de/@basvde?utm_content=creditCopyText&utm
 Worauf Du Deinen Fokus legst, geschieht in Deinem Leben. 
 
 Mit medialem Coaching kannst Du auf energetischer Ebene
-- Ursachen aufspüren und Themen beenden.
-- Blockaden lösen und endlich loslegen.
+- Ursachen aufspüren und überlebte Themen endlich beenden.
+- Blockaden lösen und aktiv in Deinem Leben loslegen.
 - Selbstheilungskräfte aktivieren und Kraft und Vitalität leben.
 - Deine Erdung vertiefen und damit schlagkräftig in Deinem Lebem sein.
 - Dir Freiraum und Klarheit verschaffen, für das, was Du wirklich willst.
