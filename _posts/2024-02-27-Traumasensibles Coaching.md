@@ -2,13 +2,15 @@
 title: Traumasensibles Coaching
 ---
 
-## Für Menschen in/nach medizinischen Behandlungen  
+## Für Menschen in/nach medizinischen Behandlungen - Die Krise in einen inneren Wandel ungeahnten Ausmaßes wandeln
+Viele von uns kennen das: Diagnosen und/oder medizinische Behandlungen treffen uns wie ein Hammer. Manchmal kommt uns moderne Apparatemedizin oder Big-Pharma näher als erwünscht. Nebenwirkungen machen uns zu schaffen. Medizinische Behandlungen können extrem schlauchen, sind potentiell traumatisierend. Manchmal haben Schulmediziner schlicht keinen Rat und auch damit muss man umgehen. 
 
-Viele von uns kennen das: Diagnosen und medizinische Behandlungen sind in bestimmten Lebenslagen ein notwendiges Übel. Schön ist anders. Erschreckend viele geben dann auf und richten sich in reduzierter Lebensqualität ein. Das muss nicht so sein!   
+Klar ist: Schön ist anders. Auch wenn gilt, medizinische Behandlungen sind in bestimmten Lebenslagen lebensrettend. 
 
-Medizinische Behandlungen können extrem schlauchen, sind potentiell traumatisierend. Manchmal haben Schulmediziner keinen Rat und auch damit muss man umgehen. 
+Aber was kein notwendiges Übel ist: Sich damit einrichten im Leben. Erschreckend viele richten sich in reduzierter Lebensqualität ein. Das muss nicht so sein!   
 
-Das absolut wichtigste: **Diagnosen sind keine Prognosen**. Auch wenn wir das in schwierigen Lagen oft von Ärzten verlangen. Jetzt sagen Sie schon, wie wahrscheinlich ist es...? Das habe ich damals, als es mich betraf, auch gemacht. Dann bekommt man genau das: eine statistische Wahrscheinlichkeit. 
+Diagnosen sind KEINE Prognosen
+Das absolut wichtigste: Auch wenn wir das in schwierigen Lagen oft von Ärzten verlangen. "Jetzt sagen Sie schon, wie wahrscheinlich ist es...?" Das habe ich damals, als es mich betraf, auch gemacht. Dann bekommt man genau das: eine statistische Wahrscheinlichkeit. 
 
 Was wäre, wenn sich Ihr **Leben ganz neu entfalten** würde? Sie wieder die **Magie** und die **Kraft** und die **Lebendigkeit** in Ihrem Leben spüren? Eine noch nie gekannte Klarheit aus der Krise ziehen - laserscharfer Fokus auf das, was Ihnen wichtig ist?
 
