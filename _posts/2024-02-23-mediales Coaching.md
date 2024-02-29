@@ -5,25 +5,18 @@ title: Selbstheilungskräfte aktivieren - mediales Coaching
 
 Foto von <a href="https://unsplash.com/de/@basvde?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Bas van den Eijkhof</a> auf <a href="https://unsplash.com/de/fotos/ein-diamant-der-auf-einem-steinhaufen-sitzt-ypk__5RJOBM?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
   
-
-### Willst Du Dich wohlfühlen und Deine Selbstheilungskräfte entfachen? 
-Mehr Magie in Dein Leben lassen? 
-
-Dich fühlen, wie ein Einhorn im Glitzerwald? 
-
-Oder doch lieber gelassen wie ein Buddha? 
-
 ### Was genau soll in Deinem Leben geschehen?
 Worauf Du Deinen Fokus legst, geschieht in Deinem Leben. 
 
-In einer medialen Heilsitzung kannst Du auf energetischer Ebene
-- Ursachen aufspüren.
-- Blockaden lösen.
-- Deine Erdung vertiefen.
-- Dir Freiraum und Klarheit verschaffen, für das, was Du willst.
-- Deine Schwingung anheben und Deine Seelen-Essenz auf einer tiefen Ebene einfließen lassen.
+Mit medialem Coaching kannst Du auf energetischer Ebene
+- Ursachen aufspüren und Themen beenden.
+- Blockaden lösen und endlich loslegen.
+- Selbstheilungskräfte aktivieren und Kraft und Vitalität leben.
+- Deine Erdung vertiefen und damit schlagkräftig in Deinem Lebem sein.
+- Dir Freiraum und Klarheit verschaffen, für das, was Du wirklich willst.
+- Deine Schwingung anheben und Deine Seelen-Essenz auf einer tiefen Ebene einfließen lassen und damit Sinn erfahren.
 
-Die 5. Dimension kann für Dich zur Realität werden. 
+Die 5. Dimension kann für Dich mehr und mehr zur Realität werden. 
 
 ### Mein Weckruf vom Universum
 Hellfühlig war ich seit meiner Kindheit. Oft wusste ich mehr über jemanden vor mir, als mir recht wahr. Wirklich genutzt habe ich diese Fähigkeiten nie. Was soll man damit? Es gab auch niemanden in meiner Kindheit, mit dem ich über meine Wahrnehmungen hätte sprechen können. 
