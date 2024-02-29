@@ -46,7 +46,7 @@ Passen wir zusammen? Lass es uns klären in einem unverbindliches Online-Gesprä
 
 Buch Dir einen
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Termin buchen](https://traumatherapie.youcanbook.me)
+[Termin](https://traumatherapie.youcanbook.me)
 </span>
 
 - 1:1 Sitzung ohne Risiko zum Ausprobieren: 120,- €
