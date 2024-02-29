@@ -42,10 +42,15 @@ Jedenfalls das erste, was ich damals tat, war, jemanden anzurufen, der mich begl
 
 Aus diesem breiten Wissensfundus heraus hole ich Sie da ab, wo Sie stehen und wir finden gemeinsam Lösungen, damit Sie Ihre Selbstheilungskräfte ebenso entfachen. Auch Sie können Ihre Selbstheilungskräfte hochfahren und Ihr Leben in ein Wunder verwandeln. 
 
+Unverbindliches Online-Gespräch auf zoom von 10 bis 20 min buchen:
+
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Termin buchen](https://traumatherapie.youcanbook.me)
+</span>
+
 Ein solches Coaching läuft über mind. 3 Monate. 
 1:1 Sitzung zum Ausprobieren: 120,- €
 Dreimonatige Begleitung in 1:1 Coaching: 990,- € 
-
 
 
 
