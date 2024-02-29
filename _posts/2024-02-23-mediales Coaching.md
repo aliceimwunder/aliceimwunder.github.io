@@ -14,7 +14,7 @@ Mit medialem Coaching kannst Du auf energetischer Ebene
 - Selbstheilungskräfte aktivieren und Kraft und Vitalität leben.
 - Deine Erdung vertiefen und damit schlagkräftig in Deinem Lebem sein.
 - Dir Freiraum und Klarheit verschaffen, für das, was Du wirklich willst.
-- Deine Schwingung anheben und Deine Seelen-Essenz auf einer tiefen Ebene einfließen lassen und damit Sinn erfahren.
+- Deine Seelen-Essenz in Deine Handlungen einfließen lassen und damit Sinn erfahren.
 
 Die 5. Dimension kann für Dich mehr und mehr zur Realität werden. 
 
