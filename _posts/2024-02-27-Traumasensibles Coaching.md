@@ -2,13 +2,13 @@
 title: Traumasensibles Coaching
 ---
 
-Für Menschen in/nach medizinischen Behandlungen. 
+Für Menschen in/nach medizinischen Behandlungen. Du willst Dich auf gar keinen Fall in Krankheit einrichten? 
 
-Viele von uns kennen das: Diagnosen und medizinische Behandlungen sind in bestimmten Lebenslagen ein notwendiges Übel. Schön ist anders.  
+Viele von uns kennen das: Diagnosen und medizinische Behandlungen sind in bestimmten Lebenslagen ein notwendiges Übel. Schön ist anders. Erschreckend viele geben dann auf und richten sich in reduzierter Lebensqualität ein. Das muss nicht so sein!   
 
 Medizinische Behandlungen können extrem schlauchen, sind potentiell traumatisierend. Manchmal haben Schulmediziner keinen Rat und auch damit muss man umgehen. 
 
-Doch ganz wichtig: Diagnosen sind keine Prognosen. Auch wenn wir das in schwierigen Lagen oft von Ärzten verlangen. Jetzt sagen Sie schon, wie wahrscheinlich ist es...? Das habe ich damals, als es mich betraf, auch gemacht. Dann bekommt man genau das: eine statistische Wahrscheinlichkeit. 
+Das absolut wichtigste: **Diagnosen sind keine Prognosen**. Auch wenn wir das in schwierigen Lagen oft von Ärzten verlangen. Jetzt sagen Sie schon, wie wahrscheinlich ist es...? Das habe ich damals, als es mich betraf, auch gemacht. Dann bekommt man genau das: eine statistische Wahrscheinlichkeit. 
 
 Was wäre, wenn sich Ihr **Leben ganz neu entfalten** würde? Sie wieder die **Magie** und die **Kraft** und die **Lebendigkeit** in Ihrem Leben spüren? Eine noch nie gekannte Klarheit aus der Krise ziehen - laserscharfer Fokus auf das, was Ihnen wichtig ist?
 
