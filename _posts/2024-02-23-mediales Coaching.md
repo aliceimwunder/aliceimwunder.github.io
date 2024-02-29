@@ -12,7 +12,7 @@ Mit medialem Coaching kannst Du auf energetischer Ebene
 - Ursachen aufspüren und überlebte Themen endlich beenden.
 - Blockaden lösen und aktiv in Deinem Leben loslegen.
 - Selbstheilungskräfte aktivieren und Kraft und Vitalität leben.
-- Deine Erdung vertiefen und damit schlagkräftig in Deinem Lebem sein.
+- Deine Erdung vertiefen und damit echte Durchsetzungskraft aufbauen.
 - Dir Freiraum und Klarheit verschaffen, für das, was Du wirklich willst.
 - Deine Seelen-Essenz in Deine Handlungen einfließen lassen und damit Sinn erfahren.
 
