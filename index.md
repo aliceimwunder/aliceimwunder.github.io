@@ -3,22 +3,20 @@ layout: default
 ---
 <img src="assets/images/blog-banner-herbst-wald.png" alt="" style="max-width:100%"/>
 
-
 <header>
 	<h1>Willkommen</h1>
 	<p>Ein Ort für Achtsamkeit - Entfachen Sie Ihre Selbstheilung</p>
 </header>
 
-
 ### Praxis für Traumatherapie und traumasensitives Coaching 
 Hier finden Sie 
-- ganzheitliche Traumatherapie (hp psych),
-- traumasensibeles Coaching, um Ihre Selbstheilung zu entfachen.
+- [ganzheitliche Traumatherapie, hp psych](/2023/02/09/Traumatherapie-in-Berlin.html),
+- traumasensibles Coaching, um Ihre Selbstheilung zu entfachen.
 - ganzheitlich - von evidenzbasiert bis spirituell.
 
 Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.
 
-Kennenlern-Gespräch à 20min online buchen: 
+Am Leichtesten geht es so: Kennenlern-Gespräch à 20min online buchen, wir schauen gemeinsam, welches Angebot für Sie am besten passt. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Buchen](https://traumatherapie.youcanbook.me)
@@ -30,56 +28,22 @@ Oder Sie wenden sich per
 
 direkt an mich.
 
-
-
---> Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: All Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
-
-Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. 
-
-Ganzheitlich: Von evidenzbasiert bis spirituell, das was Sie am effizientesten weiterbringt. 
+Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
 
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
-Sie haben die Wahl zwischen **[Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html)** (hp psych), **traumasensbilem Coaching** und [medialen Heilsitzungen](/2024/02/23/mediales-Coaching.html) für Menschen, die ihre Selbstheilungskräfte entfachen wollen.  
+### Mein Angebot
+--> Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: All Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große deutsche Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
 
-Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
+Sie haben die Wahl zwischen **[Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html)** (hp psych), **[traumasensiblem Coaching](/2024/02/27/Traumasensibles-Coaching.html)**, **[medialem, ganzheitlichem Coaching](/2024/02/23/mediales-Coaching.html)** und **[Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html)** für Menschen, die ihre Selbstheilungskräfte entfachen wollen.  
+
+Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. 
+
+Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
 
 ### Nächste Termine
 - **Freitag, den 15.03.2024, und 19:4., 18:30 Uhr. Wheel of Awareness:** [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 - **Freitag, den 26.04.2024, 19:00 Uhr**, **Geführte Meditation: [Das sanfte darf Raum haben](/2023/02/10/Gruppenabende-Meditationsreisen)** mit Aurareinigung und heilsamen Klängen". 
-
-### Praxis für Traumatherapie (hp psych)
-Vertrauen ins Leben gewinnen - die Vergangenheit hinter sich lassen - sich wohl in der eigenen Haut fühlen: Eine Therapie ist sinnvoll, wenn man weiß, dass man schon einige Jahre bis gar Jahrzehnten auf tiefsitzenden Themen sitzt, die einen an der eigenen Stärke und inneren Freiheit hindern, oder wenn man konkrete psychische Symptome hat. 
-
-Denn können wir Belastungserfahrungen nicht verarbeiten, kann unsere Lebensqualität leiden. Auch noch Jahrzehnte nach dem Vorfall (bzw. Vorfällen). Das muss nicht so bleiben! 
-
-Wenn das **Leben wundervoll** und voller Genuss werden darf, lassen Sie uns [gemeinsam nach Lösungen für Ihre Themen suchen](/2023/02/09/Traumatherapie-in-Berlin.html). 
-
-### Traumasensitives Coaching
-Nicht alles muss in Therapie. (Manches schon, lassen Sie uns darüber sprechen, was Sie brauchen.)
-
-Bei mir sind Sie richtig, wenn Sie Ihre **Selbstheilungskräfte entfachen** wollen. Eine Diagnose mag ein Schlag sein, ist aber nur sehr bedingt eine Prognose. Ich begleite Menschen, die sich von Diagnosen nicht einschüchtern lassen wollen, die wissen, dass ein klares inneres Warum für das Leben und ein innerer Sinn für eine Genesung extrem unterstützend sein können. 
-
---> Aus medizinischen Krisen wie ein Phönix aus der Asche emporsteigen und mit Vitalität das Leben neustarten. Ich begeite mit traumasensbsiblem Coaching, weil ich aus eigener Erfahrung weiß, wie wichtig es ist, sich auf das auszurichten, was einem wichtig ist. 
-
-Mögliche weitere Themen für traumasensibles Coaching können sein: 
-- Für Singles: vom Trauma zur Traumbeziehung.
-- von Familienverstrickungen und ungelösten Ahnenmuster zu nie gekannter innerer Freiheit.
-- es ist nie zu spät: wenn sich ausgerechnet im wohlverdienten Ruhestand plötzlich die Vergangenheit einmischt, vom für ein großartiges Leben, das endlich frei von täglichen gesellschaftlichen Anforderungen ist. 
-
-### Spirituell mediale Heilsitzungen
-Buchen Sie sich mehr [Einklang mit sich](/2024/02/23/mediales-Coaching.html). Mit meiner Hellfühligkeit nehme ich den Schwingungszustand Ihres Energiekörpers wahr. 
-
-Ich arbeite dort, wo in Ihrem Energiefeld die Schwingung erhöht werden will. 
-
-- Energetische Ursachen aufspüren.
-- Blockaden lösen.
-- Inneren Raum öffnen. Kraft und Erdung aufbauen.
-- Bewusstsein entfalten. Frieden leben. 
-- Verbundenheit wahrnehmen.
-  
-Meine spirituellen Heilsitzungen enthalten keine medizinsche Heilkunde und dienen nicht der Linderung konkreter Krankheiten.  
-
 
 ### Außerdem
  <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Informatives aus dem Bereich Persönlichkeitswachstum, Innere Kindheilung, Coaching und Spiritualität, für ein kraftvolles Leben, selbstbestimmt in Leichtigkeit und Freude. Von wissenschaftlich Interessantem über Naturheilkunde bis spirituell Erweiterndes.
