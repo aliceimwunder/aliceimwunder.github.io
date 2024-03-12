@@ -11,9 +11,14 @@ layout: default
 
 
 ### Praxis für Traumatherapie und traumasensitives Coaching 
-Hier finden Sie traumasensibele Begleitung, um Ihre Selbstheilung zu entfachen. Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.  
+Hier finden Sie 
+- ganzheitliche Traumatherapie (hp psych),
+- traumasensibeles Coaching, um Ihre Selbstheilung zu entfachen.
+- von evidenzbasiert bis spirituell.
 
---> Die Vergangenheit lässt sich nicht mehr ändern: völlig egal! All Ihre Erfahrungen können sich in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
+Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.  
+
+--> Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: All Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
 
 Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. Von evidenzbasiert bis spirituell, das was Sie am effizientesten weiterbringt. 
 
