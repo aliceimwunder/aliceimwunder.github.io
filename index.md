@@ -34,7 +34,6 @@ direkt an mich.
 
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
-
 ### Den Schmerz hinter sich lassen - Neues erfahren
 --> Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: All Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große deutsche Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
 
