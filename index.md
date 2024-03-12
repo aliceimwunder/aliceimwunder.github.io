@@ -14,16 +14,16 @@ Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie ge
 Hier finden Sie 
 - Stressreduzierung mit effektiver [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
 - evidenzbasierter [Traumatherapie, hp psych](/2023/02/09/Traumatherapie-in-Berlin.html),
-- ganzheitliches traumasensibles Coaching, um Ihre Selbstheilung zu entfachen,
+- ganzheitliches [traumasensibles Coaching](/2024/02/27/Traumasensibles-Coaching.html), um Ihre Selbstheilung zu entfachen, 
 - [geführte Gruppenmeditationen](/2023/02/10/Gruppenabende-Meditationsreisen)
 - und ganzheitliches, [spirituelles Coaching](/2024/02/23/mediales-Coaching.html).
 
-<strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
+<strong>Lernen <a href="/about/">Sie mich näher kennen.</a></strong>.
 
-Am Leichtesten geht es so: Kennenlern-Gespräch à 20min online buchen, wir schauen gemeinsam, welches Angebot für Sie am besten passt. 
+Dazu lassen sich Fragen am leichtesten gemeinsam klären: ich biete Ihnen ein kostenfreies Kennenlern-Gespräch à 20min online an. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Buchen](https://traumatherapie.youcanbook.me)
+[Termin buchen](https://traumatherapie.youcanbook.me)
 </span>
 
 Oder Sie wenden sich per 
@@ -32,12 +32,14 @@ Oder Sie wenden sich per
 
 direkt an mich.
 
+Wir schauen gemeinsam, welches Angebot für Sie am besten passt. 
+
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
 ### Den Schmerz hinter sich lassen - Neues erfahren
---> Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: All Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große deutsche Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
+Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große deutsche Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.") 
 
-Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. 
+Was wünschen Sie sich Neues in Ihrem Leben? Vitalität? Lebenskraft? Ausgeglichenheit? Inneres Loslassen können? Mehr inneren Freiraum? Sich wertvoll fühlen? Emotionale Stabilität? Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. 
 
 Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
 
