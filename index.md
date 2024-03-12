@@ -39,7 +39,7 @@ Wir schauen gemeinsam, welches Angebot für Sie am besten passt.
 ### Den Schmerz hinter sich lassen - Neues erfahren
 Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große deutsche Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.") 
 
-Was wünschen Sie sich Neues in Ihrem Leben? Vitalität? Lebenskraft? Ausgeglichenheit? Inneres Loslassen können? Mehr inneren Freiraum? Sich wertvoll fühlen? Emotionale Stabilität? Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. 
+Was wünschen Sie sich Neues in Ihrem Leben? **Vitalität**? Lebenskraft? Ausgeglichenheit? Inneres Loslassen können? **Inneren Freiraum**? Sich wertvoll fühlen? **Emotionale Stabilität**? Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. 
 
 Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
 
