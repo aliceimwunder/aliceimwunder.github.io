@@ -47,7 +47,7 @@ Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten 
 - **Freitag, den 15.03.2024, und 19:4., 18:30 Uhr. Wheel of Awareness: [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 - **Freitag, den 26.04.2024, 19:00 Uhr**, **Geführte Meditation: [Das sanfte darf Raum haben](/2023/02/10/Gruppenabende-Meditationsreisen)** mit Aurareinigung und heilsamen Klängen". 
 
-### Außerdem
+### Außerdem gibt es auch einen Blog und Newsletter :-)
  <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Informatives aus dem Bereich Persönlichkeitswachstum, Innere Kindheilung, Coaching und Spiritualität, für ein kraftvolles Leben, selbstbestimmt in Leichtigkeit und Freude. Von wissenschaftlich Interessantem über Naturheilkunde bis spirituell Erweiterndes.
 	</p>
 	
@@ -55,7 +55,7 @@ Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten 
 <p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Meinen Info-Letter </a></strong>  schicke ich ca. ein bis alle zwei Monate, um Sie über meine aktuellen Termine und Blog-Veröffentlichungen zu informieren. Ihre Emailadresse ist kostbar. Als kleines Dankeschön biete ich Ihnen regelmäßig eine Achtsamkeitspraxis ohne Zusatzkosten an (Wheel of Awareness). </p>
 	
 <p>
-<h4>Ein Feedback zu meinem Traumasensitiven Coaching - Innere Kindheilung, von Maria W. aus Liechtenstein: </h4>
+<h3>Ein Feedback zu meinem Traumasensitiven Coaching - Innere Kindheilung, von Maria W. aus Liechtenstein: </h3>
 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
 Feedback geben.</p> 
