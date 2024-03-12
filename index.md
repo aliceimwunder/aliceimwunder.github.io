@@ -18,7 +18,7 @@ Hier finden Sie
 - [geführte Gruppenmeditationen](/2023/02/10/Gruppenabende-Meditationsreisen)
 - und ganzheitliches, [spirituelles Coaching](/2024/02/23/mediales-Coaching.html).
 
-<strong>Lernen <a href="/about/">Sie mich näher kennen.</a></strong>.
+<strong>Lernen <a href="/about/">Sie mich näher kennen</a></strong>.
 
 Dazu lassen sich Fragen am leichtesten gemeinsam klären: ich biete Ihnen ein kostenfreies Kennenlern-Gespräch à 20min online an. 
 
