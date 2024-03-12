@@ -35,16 +35,14 @@ direkt an mich.
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
 
-### Mein Angebot
+### Den Schmerz hinter sich lassen - Neues erfahren
 --> Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: All Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große deutsche Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
-
-Sie haben die Wahl zwischen **[Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html)** (hp psych), **[traumasensiblem Coaching](/2024/02/27/Traumasensibles-Coaching.html)**, **[medialem, ganzheitlichem Coaching](/2024/02/23/mediales-Coaching.html)** und **[Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html)** für Menschen, die ihre Selbstheilungskräfte entfachen wollen.  
 
 Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. 
 
 Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
 
-### Nächste Termine
+### Aktuelle Angebote meiner Praxis
 - **Freitag, den 15.03.2024, und 19:4., 18:30 Uhr. Wheel of Awareness:** [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 - **Freitag, den 26.04.2024, 19:00 Uhr**, **Geführte Meditation: [Das sanfte darf Raum haben](/2023/02/10/Gruppenabende-Meditationsreisen)** mit Aurareinigung und heilsamen Klängen". 
 
