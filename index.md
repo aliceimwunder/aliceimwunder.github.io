@@ -44,7 +44,7 @@ Was wünschen Sie sich Neues in Ihrem Leben? **Vitalität**? Lebenskraft? Ausgeg
 Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
 
 ### Aktuelle Angebote meiner Praxis
-- **Freitag, den 15.03.2024, und 19:4., 18:30 Uhr. Wheel of Awareness:** [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+- **Freitag, den 15.03.2024, und 19:4., 18:30 Uhr. Wheel of Awareness: [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 - **Freitag, den 26.04.2024, 19:00 Uhr**, **Geführte Meditation: [Das sanfte darf Raum haben](/2023/02/10/Gruppenabende-Meditationsreisen)** mit Aurareinigung und heilsamen Klängen". 
 
 ### Außerdem
