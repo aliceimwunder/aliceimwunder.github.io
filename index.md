@@ -20,7 +20,9 @@ Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie ge
 
 --> Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: All Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
 
-Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. Von evidenzbasiert bis spirituell, das was Sie am effizientesten weiterbringt. 
+Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. 
+
+Ganzheitlich: Von evidenzbasiert bis spirituell, das was Sie am effizientesten weiterbringt. 
 
 ![Jaymaleh](/assets/about-Portrait2.jpg)
 
