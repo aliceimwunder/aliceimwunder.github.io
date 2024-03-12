@@ -16,7 +16,21 @@ Hier finden Sie
 - traumasensibeles Coaching, um Ihre Selbstheilung zu entfachen.
 - ganzheitlich - von evidenzbasiert bis spirituell.
 
-Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.  
+Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.
+
+Kennenlern-Gespräch à 20min online buchen: 
+
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Buchen](https://traumatherapie.youcanbook.me)
+</span>
+
+Oder Sie wenden sich per 
+- **Email**: info@alicewindolf.de oder
+- **Tel**: 0160 704 7080
+
+direkt an mich.
+
+
 
 --> Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: All Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
 
