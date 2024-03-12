@@ -14,7 +14,7 @@ layout: default
 Hier finden Sie 
 - ganzheitliche Traumatherapie (hp psych),
 - traumasensibeles Coaching, um Ihre Selbstheilung zu entfachen.
-- von evidenzbasiert bis spirituell.
+- ganzheitlich - von evidenzbasiert bis spirituell.
 
 Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.  
 
