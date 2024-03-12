@@ -9,6 +9,8 @@ layout: default
 </header>
 
 ### Praxis für Traumatherapie und traumasensitives Coaching 
+Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.
+
 Hier finden Sie 
 - Stressreduzierung mit effektiver [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
 - evidenzbasierter [Traumatherapie, hp psych](/2023/02/09/Traumatherapie-in-Berlin.html),
@@ -16,7 +18,7 @@ Hier finden Sie
 - [geführte Gruppenmeditationen](/2023/02/10/Gruppenabende-Meditationsreisen)
 - und ganzheitliches, [spirituelles Coaching](/2024/02/23/mediales-Coaching.html).
 
-Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.
+<strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
 
 Am Leichtesten geht es so: Kennenlern-Gespräch à 20min online buchen, wir schauen gemeinsam, welches Angebot für Sie am besten passt. 
 
@@ -30,9 +32,8 @@ Oder Sie wenden sich per
 
 direkt an mich.
 
-Mehr über mich: <strong>Lernen <a href="/about/">Sie mich kennen</a></strong>.
-
 ![Jaymaleh](/assets/about-Portrait2.jpg)
+
 
 ### Mein Angebot
 --> Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: All Ihre belastenden Erfahrungen können Sie in Weisheit, innere Stärke und Wachstum Ihres Bewusstseins wandeln. (Wie Luise Reddemann, die große deutsche Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger.")
