@@ -24,15 +24,15 @@ Buchen Sie sich ein kostenfreies unverbindliches
 
 
 ### Die Krise in einen inneren Wandel ungeahnten Ausmaßes wandeln
-Klar ist: Schön ist anders, wenn uns unsere Gesundheit verlässt. Medizinische Diagnosen und Behandlungen selbst können potentiell traumatisierend wirken. So gibt es z.B. Untersuchungen, dass nach einer Krebsdiagnose die Werte für unser Immunsystem innerhalb von zwei Stunden um 80% absacken können. Da hat man überhaupt noch gar nichts gemacht, außer dass man versucht, die Diagnose psychisch zu verdauen. 
+Klar ist: Schön ist anders, wenn uns unsere **Gesundheit** verlässt. Medizinische Diagnosen und Behandlungen selbst können potentiell traumatisierend wirken. So gibt es z.B. Untersuchungen, dass nach einer Krebsdiagnose die Werte für unser Immunsystem innerhalb von zwei Stunden um 80% absacken können. Da hat man überhaupt noch gar nichts gemacht, außer dass man versucht, die Diagnose psychisch zu verdauen. 
 
-Rückblickend traf es mich wie aus heiteren Himmel, mit Anfang 40 einen Herzinfarkt zu bekommen, mit Organversagen konfrontiert zu sein und möglicherweise an schweren inneren Blutungen zu erliegen (ohne äußere Ursache). Als ich nach 16 Tagen damals das Krankenhaus mit meinen Organen auf meinen eigenen zwei Beinen verlassen habe, galt ich als Wunderheilung. 
+Rückblickend traf es mich wie aus heiteren Himmel, mit Anfang 40 einen Herzinfarkt zu bekommen, mit Organversagen konfrontiert zu sein und möglicherweise an schweren inneren Blutungen zu erliegen (ohne feststellbare Ursache). Als ich nach 16 Tagen damals das Krankenhaus mit meinen Organen auf meinen eigenen zwei Beinen verlassen habe, galt ich als Wunderheilung. 
 
-An Wunderheilung glaube ich eher weniger. Eins, was ich angesichts der Diagnose im Krankenhaus gemacht habe, war: mich absolut auf mein seelisches Ja zu diesem Leben auszurichten, dass ich mein Leben mit meiner Familie geießen kann. Mit meinem Körper reden. Und ich hatte schon jemanden, der mich begleitete, mich seelisch zu harmonisieren. Den habe ich umgehend angerufen und regelmäßig mit ihm gearbeitet. Heute gehe ich damit um, dass manches danach an meinem Körper nicht mehr so wie vorher belastbar ist und habe trotzdem ein großartiges Leben. 
+An Wunderheilung glaube ich eher weniger. Eins, was ich angesichts der Diagnose im Krankenhaus gemacht habe, war: mich absolut auf mein **seelisches Ja** zu diesem Leben auszurichten, dass ich mein Leben mit meiner Familie geießen kann. Heute habe ich ein großartiges Leben und gehe einfach damit um, dass manches an meinem Körper nicht mehr so belastbar wie vorher ist. 
 
 --> Diagnosen sind KEINE Prognosen. 
 
-#### Ich will mein Leben genießen. 
+### Ich will mein Leben genießen. 
 Ich will mein Leben umarmen. Ich habe keine Lust mehr auf halbherzige Vielleichts, Nebelkerzen werfen oder Verschieberitis. Alles Dinge, womit man sein Leben gut verplempern kann. 
 
 Ich will für meine Tochter da sein und mit ihr etwas Spannendes erleben. Ich will meine Partnerschaft mit meinem Mann in vollen Zügen auskosten. Ich will einem Beruf nachgehen, der für mich Sinn stiftend ist und nicht bloß: "man muss ja irgendwie für seinen Lebensunterhalt sorgen." Kein "Ich zähle Montags die Woche rückwärts, bis endlich Freitag ist."
