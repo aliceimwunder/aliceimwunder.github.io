@@ -19,7 +19,7 @@ Hier geht es nicht um Gesundheitscoaching. Ich zeige Ihnen, wie Sie sich seelisc
 
 Buchen Sie sich ein kostenfreies unverbindliches
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Gespräch](https://traumatherapie.youcanbook.me)
+[Gespräch](https://traumatherapie.youcanbook.me).
 </span>
 
 
@@ -73,9 +73,9 @@ Aus diesem **breiten Wissensfundus** heraus hole ich Sie da ab, wo Sie stehen un
 
 Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Ihnen ein Online-Gespräch auf zoom bis 20 min. Fragen klären 
 
-Buchen Sie sich ein kostenfreies unverbindliches
+Hier geht es zu einem ersten 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Gespräch](https://traumatherapie.youcanbook.me)
+[Kennelerngespräch.](https://traumatherapie.youcanbook.me)
 </span>
 
 - 1:1 Sitzung ohne Risiko zum Ausprobieren: 120,- €
