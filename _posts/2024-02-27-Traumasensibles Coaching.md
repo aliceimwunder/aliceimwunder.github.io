@@ -5,53 +5,67 @@ layout: default
 <img src="/assets/images/2024-02-27-Traumasensible Begleitung.jpg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2>Dein seelisches Warum - Traumasensibles Coaching</h2>
+	<h2>Dein seelisches Warum finden - Traumasensibles Coaching</h2>
 	</header>
 
+Viele von uns kennen das - und leider schon zu Zeiten, wo man so gar nicht damit gerechnet hat: 
+- Diagnosen und/oder medizinische Behandlungen treffen uns wie ein Hammer.
+- Die moderne Apparatemedizin und/oder Big-Pharma kommt uns näher als erwünscht.
+- Nebenwirkungen machen uns zu schaffen.
+- Für viele chronische Erkrankungen bietet die Schulmedizin nur Symptombehandlung. 
+- Vielleicht funktioniert etwas trotz umfassender Behandlung nicht mehr so wie vorher. 
 
-## Für Menschen in/nach medizinischen Behandlungen - Die Krise in einen inneren Wandel ungeahnten Ausmaßes wandeln
-Viele von uns kennen das: Diagnosen und/oder medizinische Behandlungen treffen uns wie ein Hammer. Manchmal kommt uns moderne Apparatemedizin oder Big-Pharma näher als erwünscht. Nebenwirkungen machen uns zu schaffen. Medizinische Behandlungen können extrem schlauchen, sind potentiell traumatisierend. Manchmal haben Schulmediziner schlicht keinen Rat und auch damit muss man umgehen. 
+Hier geht es nicht um Gesundheitscoaching. Ich zeige Ihnen, wie Sie sich seelisch so ausrichtest, dass Sie Ihre seelischen Selbstheilungskräfte auf ein neues Level heben können.
 
-Klar ist: Schön ist anders. Auch wenn gilt, medizinische Behandlungen sind in bestimmten Lebenslagen lebensrettend. 
+### Die Krise in einen inneren Wandel ungeahnten Ausmaßes wandeln
+Klar ist: Schön ist anders, wenn uns unsere Gesundheit verlässt. Medizinische Diagnosen und Behandlungen selbst können potentiell traumatisierend wirken. So gibt es z.B. Untersuchungen, dass nach einer Krebsdiagnose die Werte für unser Immunsystem innerhalb von zwei Stunden um 80% absacken können. Da hat man überhaupt noch gar nichts gemacht, außer dass man versucht, die Diagnose psychisch zu verdauen. 
 
-Aber was kein notwendiges Übel ist: Sich damit einrichten im Leben. Erschreckend viele richten sich in reduzierter Lebensqualität ein. Das muss nicht so sein!   
+Rückblickend traf es mich wie aus heiteren Himmel, mit Anfang 40 einen Herzinfarkt zu bekommen, mit Organversagen konfrontiert zu sein und möglicherweise an schweren inneren Blutungen zu erliegen (ohne äußere Ursache). Als ich nach 16 Tagen damals das Krankenhaus mit meinen Organen auf meinen eigenen zwei Beinen verlassen habe, galt ich als Wunderheilung. 
 
-Diagnosen sind KEINE Prognosen
-Das absolut wichtigste: Auch wenn wir das in schwierigen Lagen oft von Ärzten verlangen. "Jetzt sagen Sie schon, wie wahrscheinlich ist es...?" Das habe ich damals, als es mich betraf, auch gemacht. Dann bekommt man genau das: eine statistische Wahrscheinlichkeit. 
+An Wunderheilung glaube ich eher weniger. Eins, was ich angesichts der Diagnose im Krankenhaus gemacht habe, war: mich absolut auf mein seelisches Ja zu diesem Leben auszurichten, dass ich mein Leben mit meiner Familie geießen kann. Mit meinem Körper reden. Und ich hatte schon jemanden, der mich begleitete, mich seelisch zu harmonisieren. Den habe ich umgehend angerufen und regelmäßig mit ihm gearbeitet. Heute gehe ich damit um, dass manches danach an meinem Körper nicht mehr so wie vorher belastbar ist und habe trotzdem ein großartiges Leben. 
 
-Was wäre, wenn sich Ihr **Leben ganz neu entfalten** würde? Sie wieder die **Magie** und die **Kraft** und die **Lebendigkeit** in Ihrem Leben spüren? Eine noch nie gekannte Klarheit aus der Krise ziehen - laserscharfer Fokus auf das, was Ihnen wichtig ist?
+--> Diagnosen sind KEINE Prognosen. 
+
+#### Ich will mein Leben genießen. 
+Ich will mein Leben umarmen. Ich habe keine Lust mehr auf halbherzige Vielleichts, Nebelkerzen werfen oder Verschieberitis. Alles Dinge, womit man sein Leben gut verplempern kann. 
+
+Ich will für meine Tochter da sein und mit ihr etwas Spannendes erleben. Ich will meine Partnerschaft mit meinem Mann in vollen Zügen auskosten. Ich will einem Beruf nachgehen, der für mich Sinn stiftend ist und nicht bloß: "man muss ja irgendwie für seinen Lebensunterhalt sorgen." Kein "Ich zähle Montags die Woche rückwärts, bis endlich Freitag ist."
+
+Jeder Tag, den ich lebe, empfinde ich als großartiges Geschenk. Danke an das Leben. 
+
+Was wäre, wenn sich Ihr **Leben neu entfalten** würde? Sie wieder die **Magie** und die **Kraft** und die **Lebendigkeit** in Ihrem Leben spüren? Eine noch nie gekannte Klarheit aus der Krise ziehen - laserscharfer Fokus auf das, was Ihnen wichtig ist? Lebenszeit ist ein Geschenk, wofür wollen Sie Ihre Lebenszeit wirklich verwenden?
 
 ### Traumasensbiles Coaching für Menschen in Regeneration
-In den USA ist es schon lange üblich, sich professionelle Unterstützung zu suchen. Denn damit steigt die Wahrscheinlichkeit enorm auf eine gute Regeneration. 
+In den USA ist es schon lange üblich, sich professionelle Unterstützung zu suchen. Denn damit steigt die Wahrscheinlichkeit enorm auf eine gute Regeneration. Das war bei mir nicht anders. 
 
 **Sie wollen** 
 - so schnell wie möglich wieder auf die Beine kommen?
-- Ihre Selbstheilungskraft entfachen, damit Sie die Kraft und Vitalität für ein lebendiges Leben haben, ein Leben, das sich lohnt zu genießen?
-- sich nicht nur auf unsere Apparatemedizin und pharmakologische Behandlung verlassen (so wichtig sie auch sein mag) sondern aktiv selbst etwas für sich tun?
+- Ihre Selbstheilungskraft entfachen, damit Sie die Kraft und Vitalität für ein **lebendiges Leben** haben, ein Leben, das sich lohnt zu genießen?
+- sich nicht nur auf unsere Apparatemedizin und pharmakologische Behandlung verlassen (so lebenswichtig sie auch sein mag), sondern **aktiv selbst** etwas für sich tun?
 - ein tragendes Warum für Ihr Leben finden? Das, was für Sie wie ein Kompass wirkt, wohin die Reise gehen darf?  
-- die gesundheitliche Krise nutzen und sich klar ausrichten, was Ihrem Leben einen tiefen Sinn gibt?
+- die gesundheitliche Krise nutzen und sich klar ausrichten, was Ihrem Leben einen **tiefen Sinn** gibt?
 - vielleicht sogar ganz neu ausrichten nach einer Krankheit?
-- wieder einen Einklang mit Ihrem Körper finden? 
+- wieder einen **Einklang mit Ihrem Körper** finden? 
 
-Dann sind Sie bei mir richtig. Ich bin Traumatherapeutin und Coach und begleite Sie in Ihr Leben, dass sich lohnt zu leben. 
+Dann sind Sie bei mir richtig. Ich bin ganzheitlicher Coach und begleite Sie in Ihr Leben, dass sich lohnt zu leben. 
 
 ### Wie ich dazu gekommen bin?
-Ursprünglich wählte ich einen sehr klassischen Beruf: 
-
-Juristin mit allem, was dazu gehört. Rechtswissenschaften in Berlin und Paris studiert, zwei Staatsexamina mit Prädikat erworben, Staats- und Grundrechte an einer Universität unterrichtet, Hochschulen zum Thema Zugang und Zulassung beraten, Beschwerden gegen die Berliner Landesverwaltung für den Petitionsausschuss nachgegangen, Führungsverantwortung übernommen.
+Ursprünglich wählte ich einen sehr **klassischen Beruf**: Juristin mit allem, was dazu gehört. Rechtswissenschaften in Berlin und Paris studiert, zwei Staatsexamina mit Prädikat erworben, Staats- und Grundrechte an einer Universität unterrichtet, Hochschulen zum Thema Zugang und Zulassung beraten, Beschwerden gegen die Berliner Landesverwaltung für den Petitionsausschuss nachgegangen, Führungsverantwortung übernommen.
 
 Bis ich einen Weckruf vom Universum bekam: Ohne Vorwarnung fand ich mich mit Anfang 40 in der Charité, des Berliner Universitätsklinikums. Ich hatte eine 5 jährige Tochter, einen liebevollen Ehemann, eine ruhige Stadtwohnung mit Gärtchen und nicht die geringsten Absichten, das Zeitliche zu segnen. 
 
 Was macht man, wenn man ohne Vorwarnung gefühlt an 100 Schläuchen angeschlossen sich plötzlich auf einer kardiologischen Intensivstation wiederfindet und der Chefarzt einem kaum Aussicht auf ein Leben nach dem Krankenhaus gibt? Nach 16 Tagen verließ ich zum Erstaunen der Ärzte auf meinen eigenen zwei Beinen mit all meinen Organen das Klinikum. Dort gelte ich nun als Wunderheilung. 
 
-An Wunderheilungen glaube ich immer noch nicht so recht. Man kann aktiv etwas tun, damit man wieder auf die Beine kommt. Ja, das Leben an sich ist ein magisches Geschenk. Manchmal zerrinnt es einem durch die Finger. Doch ganz oft hat man enormen Einfluss darauf, dass Körper und Seele sich regenerieren und das Leben neu starten kann. 
+An Wunderheilungen glaube ich immer noch nicht so recht. Man kann aktiv etwas tun, damit man wieder auf die Beine kommt. Ja, das Leben an sich ist ein magisches Geschenk. Manchmal zerrinnt es einem durch die Finger. Doch ganz oft hat man großen Einfluss darauf, dass sich **Körper und Seele regenerieren** und das Leben neu starten kann. 
 
-### Entfachen auch Sie Ihre Selbstheilungskräfte
-Jedenfalls das erste, was ich damals tat, war, jemanden anzurufen, der mich begleitete, da wieder herauszukommen. Auf meinem langen Heilungsweg danach habe ich alles ausprobiert, was sich mir anbot und irgendwie sinnvoll klang. Von Traumatherapie, über Coaching bis hin zu Ernährung oder spirituellen Techniken. 
+### Entfachen auch Sie Ihr seelisches Warum und Ihre Selbstheilungskräfte
+Klar, ich bekam eine Menge Tabletten, als ich das Krankenhaus verließ. Doch das hätte auf keinen Fall gereicht, damit ich mich wieder das Leben genießen kann. 
 
-Aus diesem breiten Wissensfundus heraus hole ich Sie da ab, wo Sie stehen und wir finden gemeinsam Lösungen, damit Sie Ihre Selbstheilungskräfte ebenso entfachen. Auch Sie können Ihre Selbstheilungskräfte hochfahren und Ihr Leben in ein Wunder verwandeln. 
+Jedenfalls das erste, was ich damals tat, war, jemanden anzurufen, der mich begleitete, aus dem Schlamassel wieder herauszukommen. Auf meinem langen Heilungsweg danach habe ich alles ausprobiert, was sich mir anbot und irgendwie sinnvoll klang. Von Traumatherapie, über Coaching bis hin zu Ernährung oder spirituellen Techniken. 
 
-Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom von 10 bis 20 min. Fragen klären 
+Aus diesem **breiten Wissensfundus** heraus hole ich Sie da ab, wo Sie stehen und wir finden gemeinsam Lösungen, damit Sie Ihre Selbstheilungskräfte ebenso entfachen. Auch Sie können Ihre Selbstheilungskräfte hochfahren und Ihr Leben als das Wunder gestalten, das es ist. 
+
+Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom bis 20 min. Fragen klären 
 
 Buch Dir ein kostenfreies unverbindliches
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
@@ -59,7 +73,7 @@ Buch Dir ein kostenfreies unverbindliches
 </span>
 
 - 1:1 Sitzung ohne Risiko zum Ausprobieren: 120,- €
-- Dreimonatige Begleitung in 1:1 Coaching: 990,- € 
+- Dreimonatige Begleitung in 1:1 Coaching (10 Sitzungen): 990,- € 
 
 
 
