@@ -65,9 +65,9 @@ Jedenfalls das erste, was ich damals tat, war, jemanden anzurufen, der mich begl
 
 Aus diesem **breiten Wissensfundus** heraus hole ich Sie da ab, wo Sie stehen und wir finden gemeinsam Lösungen, damit Sie Ihre Selbstheilungskräfte ebenso entfachen. Auch Sie können Ihre Selbstheilungskräfte hochfahren und Ihr Leben als das Wunder gestalten, das es ist. 
 
-Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom bis 20 min. Fragen klären 
+Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Ihnen ein Online-Gespräch auf zoom bis 20 min. Fragen klären 
 
-Buch Dir ein kostenfreies unverbindliches
+Buchen Sie sich ein kostenfreies unverbindliches
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Gespräch](https://traumatherapie.youcanbook.me)
 </span>
