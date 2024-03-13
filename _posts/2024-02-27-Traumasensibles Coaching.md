@@ -75,7 +75,7 @@ Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz u
 
 Hier geht es zu einem ersten 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Kennelerngespräch.](https://traumatherapie.youcanbook.me)
+[Kennenlerngespräch.](https://traumatherapie.youcanbook.me)
 </span>
 
 - 1:1 Sitzung ohne Risiko zum Ausprobieren: 120,- €
