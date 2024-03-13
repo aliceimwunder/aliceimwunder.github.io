@@ -17,6 +17,12 @@ Viele von uns kennen das - und leider schon zu Zeiten, wo man so gar nicht damit
 
 Hier geht es nicht um Gesundheitscoaching. Ich zeige Ihnen, wie Sie sich seelisch so ausrichtest, dass Sie Ihre seelischen Selbstheilungskräfte auf ein neues Level heben können.
 
+Buchen Sie sich ein kostenfreies unverbindliches
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Gespräch](https://traumatherapie.youcanbook.me)
+</span>
+
+
 ### Die Krise in einen inneren Wandel ungeahnten Ausmaßes wandeln
 Klar ist: Schön ist anders, wenn uns unsere Gesundheit verlässt. Medizinische Diagnosen und Behandlungen selbst können potentiell traumatisierend wirken. So gibt es z.B. Untersuchungen, dass nach einer Krebsdiagnose die Werte für unser Immunsystem innerhalb von zwei Stunden um 80% absacken können. Da hat man überhaupt noch gar nichts gemacht, außer dass man versucht, die Diagnose psychisch zu verdauen. 
 
