@@ -1,6 +1,13 @@
 ---
-title: Traumasensibles Coaching
+layout: default
 ---
+<br/>
+<img src="/assets/images/2024-02-27-Traumasensible Begleitung.jpg" alt="" style="max-width:100%"/>
+
+<header>
+	<h2>Dein seelisches Warum - Traumasensibles Coaching</h2>
+	</header>
+
 
 ## Für Menschen in/nach medizinischen Behandlungen - Die Krise in einen inneren Wandel ungeahnten Ausmaßes wandeln
 Viele von uns kennen das: Diagnosen und/oder medizinische Behandlungen treffen uns wie ein Hammer. Manchmal kommt uns moderne Apparatemedizin oder Big-Pharma näher als erwünscht. Nebenwirkungen machen uns zu schaffen. Medizinische Behandlungen können extrem schlauchen, sind potentiell traumatisierend. Manchmal haben Schulmediziner schlicht keinen Rat und auch damit muss man umgehen. 
