@@ -11,8 +11,9 @@ layout: default
 Viele von uns kennen das - und leider schon zu Zeiten, wo man so gar nicht damit gerechnet hat: 
 - Diagnosen und/oder medizinische Behandlungen treffen uns wie ein Hammer.
 - Die moderne Apparatemedizin und/oder Big-Pharma kommt uns näher als erwünscht.
+- Medizinisches Personal gehen ruppig mit uns um, genau dann, wenn wir uns ohnehin schon geschwächt fühlen.  
 - Nebenwirkungen machen uns zu schaffen.
-- Für viele chronische Erkrankungen bietet die Schulmedizin nur Symptombehandlung. 
+- Für viele chronische Erkrankungen bietet die Schulmedizin nur Symptombehandlung - es hört nie auf. 
 - Vielleicht funktioniert etwas trotz umfassender Behandlung nicht mehr so wie vorher. 
 
 Hier geht es nicht um Gesundheitscoaching. Ich zeige Ihnen, wie Sie sich seelisch so ausrichtest, dass Sie Ihre seelischen Selbstheilungskräfte auf ein neues Level heben können.
