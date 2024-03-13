@@ -28,23 +28,23 @@ Klar ist: Schön ist anders, wenn uns unsere **Gesundheit** verlässt. Medizinis
 
 Rückblickend traf es mich wie aus heiteren Himmel, mit Anfang 40 einen Herzinfarkt zu bekommen, mit Organversagen konfrontiert zu sein und möglicherweise an schweren inneren Blutungen zu erliegen (ohne feststellbare Ursache). Als ich nach 16 Tagen damals das Krankenhaus mit meinen Organen auf meinen eigenen zwei Beinen verlassen habe, galt ich als Wunderheilung. 
 
-An Wunderheilung glaube ich eher weniger. Eins, was ich angesichts der Diagnose im Krankenhaus gemacht habe, war: mich absolut auf mein **seelisches Ja** zu diesem Leben auszurichten, dass ich mein Leben mit meiner Familie geießen kann. Heute habe ich ein großartiges Leben und gehe einfach damit um, dass manches an meinem Körper nicht mehr so belastbar wie vorher ist. 
+An Wunderheilung glaube ich eher weniger. Eins, was ich angesichts der Diagnose im Krankenhaus gemacht habe, war: mich absolut auf mein **seelisches Ja** zu diesem Leben auszurichten, dass ich mein Leben mit meiner Familie genießen kann. Heute habe ich ein großartiges Leben und gehe einfach damit um, dass manches an meinem Körper nicht mehr so belastbar wie vorher ist. 
 
 --> Diagnosen sind KEINE Prognosen. 
 
 ### Ich will mein Leben genießen. 
-Ich will mein Leben umarmen. Ich habe keine Lust mehr auf halbherzige Vielleichts, Nebelkerzen werfen oder Verschieberitis. Alles Dinge, womit man sein Leben gut verplempern kann. 
+Ich will mein Leben umarmen. Ich habe keine Lust mehr auf halbherzige Vielleichts, Nebelkerzen werfen oder Verschieberitis, Rücksicht auf die verdrehte Ansichten anderer nehmen. Alles Dinge, womit man sein Leben gut verplempern kann. 
 
-Ich will für meine Tochter da sein und mit ihr etwas Spannendes erleben. Ich will meine Partnerschaft mit meinem Mann in vollen Zügen auskosten. Ich will einem Beruf nachgehen, der für mich Sinn stiftend ist und nicht bloß: "man muss ja irgendwie für seinen Lebensunterhalt sorgen." Kein "Ich zähle Montags die Woche rückwärts, bis endlich Freitag ist."
+Ich will für meine Tochter da sein und mit ihr etwas **Spannendes** erleben. Ich will meine Partnerschaft mit meinem Mann in vollen Zügen **auskosten**. Ich will einem Beruf nachgehen, der für mich **Sinn stiftend** ist und nicht bloß: "man muss ja irgendwie für seinen Lebensunterhalt sorgen." Niemals wieder: "Ich zähle Montags die Woche rückwärts, bis endlich Freitag ist."
 
 Jeder Tag, den ich lebe, empfinde ich als großartiges Geschenk. Danke an das Leben. 
 
 Was wäre, wenn sich Ihr **Leben neu entfalten** würde? Sie wieder die **Magie** und die **Kraft** und die **Lebendigkeit** in Ihrem Leben spüren? Eine noch nie gekannte Klarheit aus der Krise ziehen - laserscharfer Fokus auf das, was Ihnen wichtig ist? Lebenszeit ist ein Geschenk, wofür wollen Sie Ihre Lebenszeit wirklich verwenden?
 
 ### Traumasensbiles Coaching für Menschen in Regeneration
-In den USA ist es schon lange üblich, sich professionelle Unterstützung zu suchen. Denn damit steigt die Wahrscheinlichkeit enorm auf eine gute Regeneration. Das war bei mir nicht anders. 
+In den USA ist es schon lange üblich, sich professionelle Coaching-Unterstützung zu suchen. Denn damit steigt die Wahrscheinlichkeit enorm, sich aus gesundheitlichen Krisen zu lösen und eine gute Regeneration zu erreichen. Das war bei mir nicht anders. Ich habe mit jemandem außerhalb des Gesundheitssystem gearbeitet, mich seelische zu harmonisieren. 
 
-**Sie wollen** 
+### Sie wollen 
 - so schnell wie möglich wieder auf die Beine kommen?
 - Ihre Selbstheilungskraft entfachen, damit Sie die Kraft und Vitalität für ein **lebendiges Leben** haben, ein Leben, das sich lohnt zu genießen?
 - sich nicht nur auf unsere Apparatemedizin und pharmakologische Behandlung verlassen (so lebenswichtig sie auch sein mag), sondern **aktiv selbst** etwas für sich tun?
@@ -58,11 +58,11 @@ Dann sind Sie bei mir richtig. Ich bin ganzheitlicher Coach und begleite Sie in 
 ### Wie ich dazu gekommen bin?
 Ursprünglich wählte ich einen sehr **klassischen Beruf**: Juristin mit allem, was dazu gehört. Rechtswissenschaften in Berlin und Paris studiert, zwei Staatsexamina mit Prädikat erworben, Staats- und Grundrechte an einer Universität unterrichtet, Hochschulen zum Thema Zugang und Zulassung beraten, Beschwerden gegen die Berliner Landesverwaltung für den Petitionsausschuss nachgegangen, Führungsverantwortung übernommen.
 
-Bis ich einen Weckruf vom Universum bekam: Ohne Vorwarnung fand ich mich mit Anfang 40 in der Charité, des Berliner Universitätsklinikums. Ich hatte eine 5 jährige Tochter, einen liebevollen Ehemann, eine ruhige Stadtwohnung mit Gärtchen und nicht die geringsten Absichten, das Zeitliche zu segnen. 
+Bis ich einen **Weckruf** vom Universum bekam: Ohne Vorwarnung fand ich mich mit Anfang 40 in der Charité, des Berliner Universitätsklinikums. Ich hatte eine 5 jährige Tochter, einen liebevollen Ehemann, eine ruhige Stadtwohnung mit Gärtchen und nicht die geringsten Absichten, das Zeitliche zu segnen. 
 
-Was macht man, wenn man ohne Vorwarnung gefühlt an 100 Schläuchen angeschlossen sich plötzlich auf einer kardiologischen Intensivstation wiederfindet und der Chefarzt einem kaum Aussicht auf ein Leben nach dem Krankenhaus gibt? Nach 16 Tagen verließ ich zum Erstaunen der Ärzte auf meinen eigenen zwei Beinen mit all meinen Organen das Klinikum. Dort gelte ich nun als Wunderheilung. 
+Was macht man, wenn man ohne Vorwarnung gefühlt an 100 Schläuchen angeschlossen sich plötzlich auf einer kardiologischen Intensivstation wiederfindet und der Chefarzt einem kaum Aussicht auf ein Leben nach dem Krankenhaus gibt? Nach 16 Tagen verließ ich zum Erstaunen der Ärzte auf meinen eigenen zwei Beinen mit all meinen Organen das Klinikum. 
 
-An Wunderheilungen glaube ich immer noch nicht so recht. Man kann aktiv etwas tun, damit man wieder auf die Beine kommt. Ja, das Leben an sich ist ein magisches Geschenk. Manchmal zerrinnt es einem durch die Finger. Doch ganz oft hat man großen Einfluss darauf, dass sich **Körper und Seele regenerieren** und das Leben neu starten kann. 
+An Wunderheilungen glaube ich Man kann aktiv etwas tun, damit man wieder auf die Beine kommt. Ja, das Leben an sich ist ein magisches Geschenk. Manchmal zerrinnt es einem durch die Finger. Doch ganz oft hat man großen Einfluss darauf, dass sich **Körper und Seele regenerieren** und das Leben neu starten kann. 
 
 ### Entfachen auch Sie Ihr seelisches Warum und Ihre Selbstheilungskräfte
 Klar, ich bekam eine Menge Tabletten, als ich das Krankenhaus verließ. Doch das hätte auf keinen Fall gereicht, damit ich mich wieder das Leben genießen kann. 
