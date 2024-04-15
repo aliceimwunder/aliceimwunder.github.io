@@ -3,7 +3,7 @@ title: Offene Aura-Reinigung - Gruppenmeditation
 ---
 
 **Nächster Termin:**  
-- Freitag, den **26.01.2023, 19:00 Uhr auf zoom**. Thema: **Mut zum Leben**. Anmeldung per Email an: info@alicewindolf.de
+- Freitag, den **26.04.2024, 19:00 Uhr auf zoom**. Thema: **Das Sanfte darf Raum haben.**. Anmeldung per Email an: info@alicewindolf.de
 
 ![Licht am Horizont](/assets/2023-02-10-Licht am Horizont.jpg)
 
@@ -30,11 +30,13 @@ Wenn Sie gerne tiefergehende Infos zu den einzelnen Themen haben wollen, können
 </span>
 
 **Termine 2024 per zoom:**
-- Freitag, den 26.01.2024, 19:00 Uhr, Thema: Lebensmut - Was braucht es, um Deine Träume wahr werden zu lassen? Einfach nur Mut.
-- Freitag, den 23.02.2024, 19:00 Uhr, Thema: Dein Fokus - Worauf Du Deinen Fokus richtest, kann sich manifestieren. 
-- Freitag, den 26.04.2024, 19:00 Uhr, Thema: Das Sanfte darf Raum haben.
-- Freitag, den 31.05.2024, 19:00 Uhr, Thema: Lebensfreude und 5. Dimension. 
+- Freitag, den 26.04.2024, 19:00 Uhr, Thema: Das Sanfte darf Raum haben. Was braucht es für Selbstliebe und Wohlbefinden? Die sanften Töne im Leben. 
+- Freitag, den 31.05.2024, 19:00 Uhr, Thema: Lebensfreude und 5. Dimension. Nur viel Freude werden wir auch die höheren Gefilden erklimmen.  
+- Freitag, den 12.07.2024, 19:00 Uhr, Thema: Lebensgenuss: Sommer heißt Fülle in vollen Zügen genießen. 
+- Freitag, den 25.10.2024, 19:00 Uhr, Thema: steht noch nicht fest.
+- Freitag, den 22.11.2024, 19:00 Uhr, Thema: steht noch nicht fest. 
 
+Du hast ein Thema, das Dich brennend interessieren würde? Schreibe mir: info@alicewindolf.de und ich schaue, ob es in meine Reihe integriert werden kann. 
 
 Sie wollen noch etwas über mich dazu wissen? [Infos finden Sie hier](/about/). 
 
