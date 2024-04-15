@@ -3,7 +3,7 @@ title: Ihre Basis - Man kann nur verändern, was man wahrnimmt
 ---
 ### Achtsamkeitspraxis - Wheel of Awareness - Nächste Termine  
 
-Termine in 2024: **15.3., 19.4., 17.5., 14.6.**
+Termine in 2024: **19.4., 17.5., 14.6., 13.9., 11.10., 8.11., 6.12.**
 
 immer freitags, 18:30 - 19:30 Uhr: im Aquariana-Berlin Kreuzberg, zeitgleich **online (zoom)**
 
