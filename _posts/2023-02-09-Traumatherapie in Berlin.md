@@ -40,5 +40,5 @@ direkt an mich.
 Sie wollen **erst genauer wissen**, was es mit dieser Therapieform auf sich hat? Dann können Sie [hier weiterlesen](/2024/05/02/Wann-ist-Traumatherapie-hilfreich.html).
 
 ----
-*Wenn man mich bucht, handelt es sich um eine Investition in sich selbst. Leider übernehmen gesetzliche Krankenkassen und Beihilfe keine Kosten von Heilpraktikern für Psychotherapie. Private (Zusatz)Kassen zahlen nur Zuschüsse, wenn Heilpraktiker *für Psychotherapie* ausdrücklich im Leistungekatalog aufgenommen sind. 
+*Wenn man mich bucht, handelt es sich um eine Investition in sich selbst. Leider übernehmen gesetzliche Krankenkassen und Beihilfe keine Kosten von Heilpraktikern für Psychotherapie. Private (Zusatz)Kassen zahlen nur Zuschüsse, wenn Heilpraktiker für Psychotherapie ausdrücklich im Leistungekatalog aufgenommen sind. 
 
