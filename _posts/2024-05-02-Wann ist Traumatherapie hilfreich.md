@@ -9,10 +9,11 @@ layout: default
 	</header>
 
 
-## Wann ist eine Traumatherapie hilfreich? 
 Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie eine oder mehrere **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrung oder Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
 
 Übrigens: eine traumatherapeutische Unterstützung ist auch dann möglich, wenn man sich (noch) nicht an konkrete Begebenheiten erinnern kann.  
+
+## Wann ist eine Traumatherapie hilfreich? 
 
 **Manchmal** 
 - weiß man ganz genau, was los war.
