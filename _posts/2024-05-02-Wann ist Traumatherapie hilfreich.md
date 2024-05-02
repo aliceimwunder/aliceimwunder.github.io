@@ -8,7 +8,6 @@ layout: default
 	<h2>Ein besseres Leben - Traumatherapie eine Chance geben</h2>
 	</header>
 
-
 Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie eine oder mehrere **seelische Belastungserfahrungen** in Ihrem Leben erfahren haben und diese Erfahrung oder Erfahrungen im Nachhinein psychisch nicht verarbeiten konnten. 
 
 Übrigens: eine traumatherapeutische Unterstützung ist auch dann möglich, wenn man sich (noch) nicht an konkrete Begebenheiten erinnern kann.  
@@ -22,16 +21,29 @@ Eine Traumatherapie kann immer dann Unterstützung bieten, wenn Sie eine oder me
 
 Klassisch unterstützt diese Therapieform, wenn die Belastungserfahrung zu einer **Posttraumatischen Belastungsstörung** (PTBS) geführt hat. 
 
-Jedoch entwickelt nicht jeder, der mit einer belastenden Vergangenheit kämpft, eine PTBS. Es können verschiedene Symptome auftreten. Vielleicht eine depressive Verstimmung, Alpträume, Zwänge, Angst, Selbstabwertungsspiralen oder alles persönlich nehmen, was sehr belastend beim Aufbau einer liebevollen Beziehung sein kann. Die Wirkung von unverarbeiteten Belastungserfahrungen können sehr unterschiedlich je nach Person sein. Weiterführendes zu dem Problem, dass es nicht das eine Symptom bei [komplexer Traumafolgestörungen](https://psylife.de/magazin/icd-11-was-bringt-uns-die-neue-diagnose-komplexe-ptbs) gibt. (Luise Reddemann zu der Problematik der Diagnose von komplexen Traumafolgestörungen.) 
+Jedoch entwickelt nicht jeder, der mit einer belastenden Vergangenheit kämpft, eine PTBS. Es können verschiedene Symptome auftreten. Vielleicht eine depressive Verstimmung, Alpträume, Zwänge, Angst, Selbstabwertungsspiralen oder alles persönlich nehmen, was sehr belastend beim Aufbau einer liebevollen Beziehung sein kann. Die Wirkung von unverarbeiteten Belastungserfahrungen können sehr unterschiedlich je nach Person sein. 
+
+Weiterführendes zu dem Problem, dass es nicht das *eine* Symptom bei [komplexer Traumafolgestörungen](https://psylife.de/magazin/icd-11-was-bringt-uns-die-neue-diagnose-komplexe-ptbs) gibt. (Luise Reddemann zu der Problematik der Diagnose von komplexen Traumafolgestörungen.) 
 
 --> In jedem Falle leidet die Lebensqualität.  
 
-Ganz typisch ist es, dass man **schlecht zur Ruhe kommt**, und die eigenen Gefühle nicht so leicht zu handhaben sind; sei es, dass man sie nicht wahrnehmen kann und dadurch ein inneres Loch entsteht oder umgekehrt, weil die eigenen Gefühle unkontrollierbar auf einen einstürzen, wobei das von Angst, Trauer, Wut, Ekel, etc. alles sein kann. 
+Hier geht es zu einem unverbindlichen kostenfreien Gespräch zum Kennenlernen: 
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+[Terminbuchung für Zoom](https://traumatherapie.youcanbook.me)
+</span>
+
+oder Sie wenden sich per 
+- **Email**: info@alicewindolf.de oder
+- **Tel**: 0160 704 7080
+  
+an mich.
 
 ### Vertrauen Sie sich
+Ganz typisch ist es, dass man **schlecht zur Ruhe kommt**, und die eigenen Gefühle nicht leicht zu handhaben sind; sei es, dass man sie nicht wahrnehmen kann und dadurch ein inneres Loch entsteht oder umgekehrt, weil die eigenen Gefühle unkontrollierbar auf einen einstürzen, wobei das von Angst, Trauer, Wut, Ekel, etc. alles sein kann. 
+
 Sie sind die Expertin, der Experte Ihres Lebens. Sie sind nicht "aus Versehen" bis hierher beim Lesen gekommen.     
 1. Haben Sie Symptome, die Ihre **Lebensqualität einschränken** oder ist etwas, dass Sie gerne erreichen würden, nie in Ihrer Reichweite?
-2. **Haben Sie den Verdacht**, dass diese Symptome/das Nichterreichen aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit (Entwicklungstrauma) oder Mobbing handeln. 
+2. **Haben Sie den Verdacht**, dass diese Symptome/das Nichterreichen aufgrund von Belastungserfahrungen aufgetreten sein könnten? Es kann sich dabei um einmalige plötzliche Erfahrungen (Schocktrauma), wie z.B. ein Sportunfall, oder um langfristige Belastungserfahrungen, wie Vernachlässigung in der Kindheit oder Mobbing (Entwicklungstrauma) handeln. 
 
 Bei Beschwerden, die sich körperlich zeigen, also **psychosomatischen Beschwerden**, z.B. Migräne, Übelkeit, Schmerzen: bitte ärztlich klären lassen, dass keine organische Ursachen vorliegen. Gerade im Bereich Traumatherapie beginnen Betroffene sich für diese Therapie zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten. 
 
@@ -90,11 +102,14 @@ dann ist man nicht nur schneller, auch sicherer und tiefgreifender **auf dem eig
 ## Kosten und Aufwand einer Traumatherapie
 Eine psychotherapeutische Sitzung umfasst 50 min. 
 
-Empfehlenswert ist ein wöchentlicher Rhythmus der Sitzungen. Je nach Ihrem Bedarf sind andere zeitliche Gestaltungsformen möglich, von einem zweiwöchentlichen Rhythmus bis zu mehrmals pro Woche. 
+Empfehlenswert ist ein wöchentlicher Rhythmus der Sitzungen. Je nach Ihrem Bedarf sind andere zeitliche Gestaltungsformen möglich, von einem zweiwöchentlichen Rhythmus bis zu mehrmals pro Woche. Wenn die Symptome gerade sehr akut sind und zusammengefasst "man leidet, wie ein Hund", ist z.B. 2x in der Woche für den Beginn absolut empfehlenswert. 
 
-Seelische Regeneration geschieht immer im eigenen Rhythmus eines Menschen. **Wie lange eine Traumatherapie dauert**, kann man vorher nicht sagen. Grobe Erfahrungswerte können sein. Bei einem Schocktrauma (ein einmaliges tief unter die Haut gehendes Belastungserlebnis), dass noch nicht Jahre zurückliegt, kann sich in 12-24h als behandelbar darstellen. Jahrelange Vernachlässigum in der Kindheit bedeutet, dass man viel an Selbstfürsorge nachholen darf. Hier reden wir eher von 170-200h, ohne eine Gewähr für diese Dauer geben zu können. 
+Seelische Regeneration geschieht immer im eigenen Rhythmus eines Menschen. **Wie lange eine Traumatherapie dauert**, kann man vorher nicht sagen. Grobe Erfahrungswerte können sein: 
+- Ein Schocktrauma (ein einmaliges tief unter die Haut gehendes Belastungserlebnis), das noch nicht Jahre zurückliegt, kann sich in 12-24h als behandelbar darstellen. 
+- Jahrelange Vernachlässigum in der Kindheit bedeutet, dass man viel an Selbstfürsorge nachholen darf. Hier reden wir eher von 170-200h, ohne eine Gewähr für diese Dauer geben zu können. 
 
-Als Heilpraktikerin für Psychotherapie kann ich eine Traumatherapie in der Regel nur für Selbstzahler anbieten. 
+Als Heilpraktikerin für Psychotherapie kann ich eine Traumatherapie in der Regel nur für Selbstzahler:innen* anbieten. 
+
 
 **Kosten: 80,-€**/Sitzung in einer fortlaufenden Therapie. 
 
@@ -115,3 +130,7 @@ oder Sie wenden sich per
 - **Tel**: 0160 704 7080
   
 an mich.
+
+----
+*Gesetzliche Krankenkassen und Beihilfe übernehmen keine Kosten von Heilpraktikern für Psychotherapie. Private (Zusatz)Kassen zahlen nur Zuschüsse, wenn Heilpraktiker *für Psychotherapie* ausdrücklich im Leistungekatalog aufgenommen sind. 
+
