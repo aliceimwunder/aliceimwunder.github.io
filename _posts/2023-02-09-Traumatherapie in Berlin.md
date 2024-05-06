@@ -38,9 +38,16 @@ Oder Sie wenden sich per
 
 direkt an mich.
 
-Meine Arbeit basiert auf: 
+**Mein Ansätze beruhen auf** 
+- psychodynamisch-imaginativer Traumatherapie nach Luise Reddemann.
+- enaktiver Traumatherapie nach Ellert Nijenhuis.
+- EMDR nach Francine Shapiro und weitere danach entwickelte bifokale Ansätze.
+- Hypnotherapie nach Gunther Schmidt.
+- CleanLanguage und CleanSpace nach Roger Grove.
+- Wheel of Awareness, traumasensible Achtsamkeitspraxis nach Dan Siegel.
+- TaumaCentered NeuroCoaching nach Mark Robert Waldman.
 
-Sie wollen **erst genauer wissen**, was es mit dieser Therapieform auf sich hat? Dann können Sie [hier weiterlesen](/2024/05/02/Wann-ist-Traumatherapie-hilfreich.html).
+Sie wollen **erst genauer wissen**, was es mit dieser Therapieform auf sich hat? Dann können Sie [hier weiterlesen](/2024/05/02/Wann-ist-Traumatherapie-hilfreich.html) und [hier](/2023/02/09/Traumatherapie-in-Berlin.html).
 
 ----
 *Wenn man mich bucht, handelt es sich um eine Investition in sich selbst. Leider übernehmen gesetzliche Krankenkassen und Beihilfe keine Kosten von Heilpraktikern für Psychotherapie. Private (Zusatz)Kassen zahlen nur Zuschüsse, wenn Heilpraktiker für Psychotherapie ausdrücklich im Leistungekatalog aufgenommen sind. 
