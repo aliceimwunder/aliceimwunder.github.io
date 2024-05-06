@@ -16,7 +16,7 @@ layout: default
 * Sie befreit von Versagensängste/Angst vor Fehlern Ihr Leben gestalten könnten? 
 * Sie Trauma (bzw. Traumata) hinter sich lassen und das Leben einfach genießen können?
 
-**Dann biete ich Ihnen in meiner Praxis Ihnen** 
+**Dann biete ich Ihnen in meiner Praxis** 
 - evidenzbasierte und ganzheitliche Lösungswege.
 - mehrjährige Erfahrung. 
 - einen sicheren Raum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez) - wahlweise auch östlich von Berlin in Briesen/Mark.
