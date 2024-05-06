@@ -5,16 +5,15 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie1.jpg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2>Ein besseres Leben - Traumatherapie eine Chance geben</h2>
+	<h2>Für ein glückliches Leben in Leichtigkeit - lassen Sie  die Vergangenheit hinter sich</h2>
 	</header>
 
-**Hätten Sie gerne das in Ihrem Leben?**
-- Tief durchatmen können und Vertrauen ins Leben haben. Seelische Schmerzen dürfen der Vergangenheit angehören?
-- Mit Ihren Gefühlen in Harmonie leben. 
-- Mit sich in Balance kommen.
-- In der eigenen Haut wohlfühlen. Seelisch ausgeglichen sein.
-- Bindungen aufbauen und pflegen können; zu Ihren Liebsten, Familie, Freund:innen oder Kolleg:innen, ohne dass sich die Vergangenheit meldet.
-- Trauma (oder Traumata) hinter sich lassen und das Leben einfach genießen können.
+**Was wäre, wenn ...**
+* Sie tief durchatmen könnten und wieder vertrauen ins Leben hätten?
+* seelische Schmerzen der Vergangenheit angehören würden?
+* wenn ihre Gefühle in Harmonie und Balance kämen? 
+* Sie sich in ihrer eigenen Haut wieder wohl fühlen und seelisch ausgeglichen sind?
+* Sie Trauma (bzw. Traumata) hinter sich lassen und das Leben einfach genießen können?
 
 **Ich biete Ihnen:** 
 - die Möglichkeit, sofort beginnen zu können. 
