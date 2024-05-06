@@ -2,7 +2,7 @@
 layout: default
 ---
 <br/>
-<img src="/assets/images/Landingpage Traumatherapie1.jpg" alt="" style="max-width:100%"/>
+<img src="/assets/images/Landingpage Traumatherapie2.jpg" alt="" style="max-width:100%"/>
 
 <header>
 	<h2>Für ein glückliches Leben in Leichtigkeit - lassen Sie  die Vergangenheit hinter sich</h2>
