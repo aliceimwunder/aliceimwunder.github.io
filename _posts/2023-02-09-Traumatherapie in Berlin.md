@@ -11,13 +11,13 @@ layout: default
 ## Kennen Sie das?
 Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
 
-Vielleicht sind Sie jemand, der die Flucht nach vorne ergreift und über Ihre Leistungsgrenze arbeitet, oder vielleicht sind Sie jemand, der innerlich erstarrt. Im Grunde bräuchten Sie ein Sofa eigentlich nicht, weil Sie nie wirklich zur Ruhe kommen? 
+Im Grunde bräuchten Sie ein Sofa eigentlich nicht, weil Sie nie wirklich zur Ruhe kommen? 
 
 Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen (zumindest in dieser Menge) nicht gut tut. Aber dieser Ersatz wirkt wie eine Oase der Glückseligkeit? 
 
 Altbekannte Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab? 
 
-Sie gelten als (oder halten sich vielleicht sogar selbst für) austherapiert? 
+Sie gelten als austherapiert? 
 
 ## Sie sind nicht alleine
 Es ist manchmal einfacher, mit einem offensichtlichen Schocktrauma, wie z.B. dem plötzlichen Tod eines Familienmitgliedes oder einem Arbeitsunfall, den Weg zur Traumatherapie zu finden. Man sollte übrigens Schocktrauma nicht unbehandelt lassen, weil es sich chronifizieren kann.   
