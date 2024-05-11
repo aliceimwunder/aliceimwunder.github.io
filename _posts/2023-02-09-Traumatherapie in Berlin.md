@@ -9,9 +9,7 @@ layout: default
 	</header>
 
 ## Kennen Sie das?
-Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. 
-
-Manche (oder sogar alle) Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
+Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
 
 Vielleicht sind Sie jemand, der die Flucht nach vorne ergreift und sich an/über Ihre Leistungsgrenze arbeitet, oder vielleicht sind Sie jemand, der innerlich erstarrt. 
 
