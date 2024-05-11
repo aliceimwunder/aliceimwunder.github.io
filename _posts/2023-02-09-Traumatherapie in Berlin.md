@@ -11,9 +11,9 @@ layout: default
 ## Kennen Sie das?
 Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
 
-Im Grunde bräuchten Sie ein Sofa eigentlich nicht, weil Sie nie wirklich zur Ruhe kommen? 
+Im Grunde bräuchten Sie ein Sofa eigentlich nicht, weil Sie nie wirklich zur Ruhe kommen. 
 
-Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen (zumindest in dieser Menge) nicht gut tut. Aber dieser Ersatz wirkt wie eine Oase der Glückseligkeit? 
+Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält? 
 
 Altbekannte Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab? 
 
