@@ -5,7 +5,7 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie2.jpeg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2>Für ein glückliches Leben in Leichtigkeit - lassen Sie  die Vergangenheit hinter sich</h2>
+	<h2>Mut zur Veränderung: Willkommen auf dem Weg zu einem glücklicheren Leben mit innerem Frieden sich</h2>
 	</header>
 
 ## Kennen Sie das?
@@ -17,14 +17,14 @@ Vielleicht sind Sie jemand, der die Flucht nach vorne ergreift und sich an/über
 
 Abends oder freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen (zumindest in dieser Menge) nicht gut tut. Aber dieser Ersatz wirkt wie eine Oase der Glückseligkeit? 
 
-Altbekannte Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab? Freundlicher Umgang mit KollegInnen oder FreundInnen, echte Nähe zu jemand Konkretem, das ist richtig schwierig?
+Altbekannte Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab? 
 
 Sie gelten als (oder halten sich vielleicht sogar selbst für) austherapiert? 
 
 ## Sie sind nicht alleine
-Es ist manchmal einfacher, mit einem offensichtlichen Schocktrauma, wie z.B. dem plötzlichen Tod eines Familienmitgliedes oder einem Arbeitsunfall, den Weg zur Traumatherapie zu finden. 
+Es ist manchmal einfacher, mit einem offensichtlichen Schocktrauma, wie z.B. dem plötzlichen Tod eines Familienmitgliedes oder einem Arbeitsunfall, den Weg zur Traumatherapie zu finden. Man sollte übrigens Schocktrauma nicht unbehandelt lassen, weil es sich chronifizieren kann.   
 
-Doch viele tragen alte Wunden aus der Kindheit, die vielleicht vergessen oder verdrängt wurden.  Sie dürfen sich vertrauen – Sie sind der Experte in Ihrem und für Ihr eigenes Leben. Fast alle halten eine Fassade hoch, dass bei ihnen alles okay sei. Wenn das Ihr Thema ist, dann sind Sie in Wirklichkeit nicht allein betroffen. Aus der Kindheit stammende Bindungs- und/oder Komplextraumata sind in Deutschland viel häufiger als Schocktraumata und viel schwieriger zu erklären.
+Viele tragen alte Wunden aus der Kindheit, die vielleicht vergessen oder verdrängt wurden.  Sie dürfen sich vertrauen – Sie sind der Experte in Ihrem und für Ihr eigenes Leben. Fast alle halten eine Fassade hoch, dass bei ihnen alles okay sei. IN Wirklichkeit sind Sie nicht allein betroffen. Aus der Kindheit stammende Bindungs- und/oder Komplextraumata sind in Deutschland viel häufiger als Schocktraumata und viel schwieriger zu erklären.
 
 Nur ein Beispiel unter vielen: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 gaben knapp 75% der Befragten im Alter zwischen 16 und 59 Jahren an, physische Gewalt durch ihre Eltern erlebt zu haben. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt). 
 
@@ -78,11 +78,11 @@ Heute, in meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube
 - TaumaCentered NeuroCoaching nach Mark Robert Waldman.
 
 ## Es ist Zeit für einen Wandel
-Bereit, den nächsten Schritt zu gehen? 
+Bereit, den nächsten Schritt zu gehen? Luise Reddemann, eine der bekanntesten deutschen Traumatherapeuten hat diesen wunderbaren Satz geprägt: "Wir machen jeden Mist zu Kompost."
 
-Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. Mit Unterstützung in einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. Vergangenheitsbewältigung ist möglich.  
+Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. Mit Unterstützung in einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. Vergangenheitsbewältigung ist möglich.  
 
-Buchen Sie jetzt Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zur Heilung unterstützen kann.
+Buchen Sie jetzt Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zu einem besseren Leben unterstützen kann.
   
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Ihren persönlichen Termin buchen](https://traumatherapie.youcanbook.me)
@@ -93,15 +93,6 @@ Oder Sie wenden sich per
 - **Tel**: 0160 704 7080
 
 direkt an mich.
-
-**Mein Ansätze beruhen auf** 
-- psychodynamisch-imaginativer Traumatherapie nach Luise Reddemann.
-- enaktiver Traumatherapie nach Ellert Nijenhuis.
-- EMDR nach Francine Shapiro und weitere danach entwickelte bifokale Ansätze.
-- Hypnotherapie nach Gunther Schmidt.
-- CleanLanguage und CleanSpace nach Roger Grove.
-- Wheel of Awareness, traumasensible Achtsamkeitspraxis nach Dan Siegel.
-- TaumaCentered NeuroCoaching nach Mark Robert Waldman.
 
 
 ----
