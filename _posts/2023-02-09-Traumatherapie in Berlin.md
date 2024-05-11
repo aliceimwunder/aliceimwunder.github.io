@@ -31,7 +31,7 @@ Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie 
 
 Es ist wie ein sanfter Regen nach einem langen Sturm – die Luft fühlt sich frisch an, und die Sonne beginnt wieder durch die Wolken zu brechen. Sie erkennen die unbändige Kraft in sich, die Sie überleben hat lassen und, die Sie jetzt frei nutzen können, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen. 
 
-Weniger prosaisch ausgedrückt: **Ziel einer guten Traumatherapie ist:** Sie können Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen. Selbstkritik, Scham- und Schuldgefühle  (o.ä.) rücken in weite Ferne. Sie eröffnen für sich neue Verhaltensweisen. Sie spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
+**Ziel einer guten Traumatherapie ist:** Sie können Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen. Selbstkritik, Scham- und Schuldgefühle  (o.ä.) rücken in weite Ferne. Sie eröffnen für sich neue Verhaltensweisen. Sie spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
 
 ## Dazu biete ich Ihnen in meiner Praxis 
 - evidenzbasierte und ganzheitliche Lösungswege.
