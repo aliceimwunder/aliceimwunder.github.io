@@ -5,7 +5,7 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie2.jpeg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2>Mut zur Veränderung: Willkommen auf dem Weg zu einem glücklicheren Leben mit innerem Frieden sich</h2>
+	<h2>Mut zur Veränderung: Willkommen auf dem Weg zu einem glücklicheren Leben und innerem Frieden</h2>
 	</header>
 
 ## Kennen Sie das?
