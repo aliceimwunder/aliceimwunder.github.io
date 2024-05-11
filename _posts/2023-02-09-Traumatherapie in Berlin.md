@@ -59,9 +59,9 @@ direkt an mich.
 ## Ein paar Worte über mich
 Als ich 2014 die Prüfung zur Heilpraktikerin für Psychotherapie ablegte, stieß ich erstmals auf die Möglichkeit einer Traumatherapie-Ausbildung. Mein erster Gedanke war damals, dass ich genug mit meiner eigenen Vergangenheit zu tun hatte. Nein danke.
 
-Doch ein Selbsterfahrungswochenende veränderte mich. Die Leiterin, eine aufmerksame Regisseurin und Schamanin, führte die Gruppe zwar sicher durch Meditationen und Atemübungen. Dann wechselte sie zu einer Übung, in der wir unsere bis dahin ungesagten Worte in einem einzigen Ton ausdrücken sollten. Die Wirkung konnte die Leiterin nicht mehr abfangen: es holte eine ungeahnte Welle von seelischem Schmerz in den Teilnehmerinnen hoch.
+Ein Selbsterfahrungswochenende sollte meine Einstellung ändern. Die Leiterin führte die Gruppe zwar sicher durch Meditationen und Atemübungen Doch wechselte sie zu einer Übung, in der wir unsere bis dahin ungesagten Worte in einem einzigen Ton ausdrücken sollten. Die Wirkung konnte die Leiterin nicht mehr abfangen: es holte eine ungeahnte Welle von seelischem Schmerz in den Teilnehmerinnen hoch.
 
-Inmitten dieses Chaos half ich einer hemmungslos schluchzenden Frau sich zu beruhigen. Für mich überraschend fragte sie etwas, das mich tief berührte: „Warum kannst Du in dieser Situation so ruhig bleiben?“ 
+Inmitten dieses Chaos half ich einer hemmungslos schluchzenden Frau sich zu beruhigen. Für mich überraschend fragte sie anschließend etwas, das mich tief berührte: „Warum kannst Du in dieser Situation so ruhig bleiben?“ 
 
 Plötzlich sah ich mich mit ihren Augen: das Chaos und meine empathische Ruhe. Ich konnte das Leid im Raum deutlich spüren, ohne darin zu versinken. Diese Erfahrung war der Startpunkt für meine Reise  zur Traumatherapie.
 
