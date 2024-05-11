@@ -17,23 +17,23 @@ Vielleicht sind Sie jemand, der die Flucht nach vorne ergreift und sich an/über
 
 Abends oder freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen (zumindest in dieser Menge) nicht gut tut. Aber dieser Ersatz wirkt wie eine Oase der Glückseligkeit? 
 
-Altbekannte Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab? Deswegen gestaltet sich sozialer Kontakt als schwierig?
+Altbekannte Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab? Freundlicher Umgang mit KollegInnen oder FreundInnen, echte Nähe zu jemand Konkretem, das ist richtig schwierig?
 
 Sie gelten als (oder halten sich vielleicht sogar selbst für) austherapiert? 
 
 ## Sie sind nicht alleine
 Es ist manchmal einfacher, mit einem offensichtlichen Schocktrauma, wie z.B. dem plötzlichen Tod eines Familienmitgliedes oder einem Arbeitsunfall, den Weg zur Traumatherapie zu finden. 
 
-Doch viele tragen alte Wunden aus der Kindheit, die vielleicht vergessen oder verdrängt wurden. Aus dieser Zeit stammende Bindungs- und/oder Komplextraumata sind Deutschland viel häufiger als Schocktraumata und viel schwieriger zu erklären. Sie dürfen sich vertrauen – Sie sind der Experte in Ihrem und für Ihr eigenes Leben. 
+Doch viele tragen alte Wunden aus der Kindheit, die vielleicht vergessen oder verdrängt wurden.  Sie dürfen sich vertrauen – Sie sind der Experte in Ihrem und für Ihr eigenes Leben. Fast alle halten eine Fassade hoch, dass bei ihnen alles okay sei. Wenn das Ihr Thema ist, dann sind Sie in Wirklichkeit nicht allein betroffen. Aus der Kindheit stammende Bindungs- und/oder Komplextraumata sind in Deutschland viel häufiger als Schocktraumata und viel schwieriger zu erklären.
 
-In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 gaben knapp 75% der Befragten im Alter zwischen 16 und 59 Jahren an, physische Gewalt durch ihre Eltern erlebt zu haben. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt).
+Nur ein Beispiel unter vielen: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 gaben knapp 75% der Befragten im Alter zwischen 16 und 59 Jahren an, physische Gewalt durch ihre Eltern erlebt zu haben. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt). 
 
 ## Licht am Ende des Tunnels: Eine befreiende Zukunft nach der Traumatherapie
-Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des Friedens und der Sicherheit in Ihrem Alltag, die vorher Ihr Bewusstsein erreichen konnten. 
+Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des Friedens und der Sicherheit in Ihrem Alltag, die vorher Ihr Bewusstsein nicht erreichen konnten. 
 
 Es ist wie ein sanfter Regen nach einem langen Sturm – die Luft fühlt sich frisch an, und die Sonne beginnt wieder durch die Wolken zu brechen. Sie erkennen die unbändige Kraft in sich, die Sie überleben hat lassen und, die Sie jetzt frei nutzen können, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen. 
 
-**Ziel einer guten Traumatherapie:** Sie können Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen können. Selbstkritik, Scham- und Schuldgefühle  (o.ä.) rücken in weite Ferne. Sie eröffnen für sich ganz neue Verhaltensweisen. Sie spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
+Weniger prosaisch ausgedrückt: **Ziel einer guten Traumatherapie ist:** Sie können Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen. Selbstkritik, Scham- und Schuldgefühle  (o.ä.) rücken in weite Ferne. Sie eröffnen für sich neue Verhaltensweisen. Sie spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
 
 ## Dazu biete ich Ihnen in meiner Praxis 
 - evidenzbasierte und ganzheitliche Lösungswege.
@@ -80,7 +80,7 @@ Heute, in meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube
 ## Es ist Zeit für einen Wandel
 Bereit, den nächsten Schritt zu gehen? 
 
-Vielleicht werden Sie sich nie wirklich bereit fühlen. Das macht nichts. Mit Unterstützung in einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. Vergangenheitsbewältigung ist möglich.  
+Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. Mit Unterstützung in einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. Vergangenheitsbewältigung ist möglich.  
 
 Buchen Sie jetzt Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zur Heilung unterstützen kann.
   
