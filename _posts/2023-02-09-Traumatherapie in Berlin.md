@@ -13,7 +13,7 @@ Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen s
 
 Vielleicht sind Sie jemand, der die Flucht nach vorne ergreift und über Ihre Leistungsgrenze arbeitet, oder vielleicht sind Sie jemand, der innerlich erstarrt. Im Grunde bräuchten Sie ein Sofa eigentlich nicht, weil Sie nie wirklich zur Ruhe kommen? 
 
-Abends oder freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen (zumindest in dieser Menge) nicht gut tut. Aber dieser Ersatz wirkt wie eine Oase der Glückseligkeit? 
+Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen (zumindest in dieser Menge) nicht gut tut. Aber dieser Ersatz wirkt wie eine Oase der Glückseligkeit? 
 
 Altbekannte Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab? 
 
