@@ -13,11 +13,11 @@ Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen s
 
 Im Grunde bräuchten Sie ein Sofa eigentlich nicht, weil Sie nie wirklich zur Ruhe kommen. 
 
-Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält? 
+Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält.
 
-Altbekannte Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab? 
+Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab.
 
-Sie gelten als austherapiert? 
+Sie gelten als austherapiert.
 
 ## Sie sind nicht alleine
 Es ist manchmal einfacher, mit einem offensichtlichen Schocktrauma, wie z.B. dem plötzlichen Tod eines Familienmitgliedes oder einem Arbeitsunfall, den Weg zur Traumatherapie zu finden. Man sollte übrigens Schocktrauma nicht unbehandelt lassen, weil es sich chronifizieren kann.   
