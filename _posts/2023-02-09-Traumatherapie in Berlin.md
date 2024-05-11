@@ -22,7 +22,7 @@ Sie gelten als austherapiert.
 ## Sie sind nicht alleine
 Es ist manchmal einfacher, mit einem offensichtlichen Schocktrauma, wie z.B. dem plötzlichen Tod eines Familienmitgliedes oder einem Arbeitsunfall, den Weg zur Traumatherapie zu finden. Man sollte übrigens Schocktrauma nicht unbehandelt lassen, weil es sich chronifizieren kann.   
 
-Was in Deutschland viel häufiger als Schocktraumata auftritt, sind Bindungs- und/oder Komplextraumata. Erschreckend viele tragen alte Wunden aus der Kindheit, die vielleicht vergessen oder verdrängt wurden. Fast alle Betroffenen halten eine Fassade hoch, dass bei ihnen alles okay sei oder wissen nicht, dass frühe Belastungserfahrungen Ursache für Symptome in der Gegenwart sein können. Sie sind nicht allein mit diesem Thema und Sie dürfen sich vertrauen – Sie sind der Experte in Ihrem Leben. 
+Was in Deutschland viel häufiger als Schocktraumata auftritt, sind Bindungs- und/oder Komplextraumata. Erschreckend viele tragen alte Wunden aus der Kindheit, die vielleicht vergessen oder verdrängt wurden. Fast alle Betroffenen halten eine Fassade hoch, dass bei ihnen alles in Ordnung sei oder wissen nicht, dass frühe Belastungserfahrungen Ursache für Symptome in der Gegenwart sein können. Sie sind nicht allein mit diesem Thema und Sie dürfen sich vertrauen – Sie sind der Experte in Ihrem Leben. 
 
 Nur ein Beispiel unter vielen: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 gaben knapp 75% der Befragten im Alter zwischen 16 und 59 Jahren an, physische Gewalt durch ihre Eltern erlebt zu haben. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt). 
 
