@@ -11,7 +11,7 @@ layout: default
 ## Kennen Sie das?
 Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
 
-Vielleicht sind Sie jemand, der die Flucht nach vorne ergreift und sich an/über Ihre Leistungsgrenze arbeitet, oder vielleicht sind Sie jemand, der innerlich erstarrt. 
+Vielleicht sind Sie jemand, der die Flucht nach vorne ergreift und über Ihre Leistungsgrenze arbeitet, oder vielleicht sind Sie jemand, der innerlich erstarrt. 
 
 Abends oder freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen (zumindest in dieser Menge) nicht gut tut. Aber dieser Ersatz wirkt wie eine Oase der Glückseligkeit? 
 
