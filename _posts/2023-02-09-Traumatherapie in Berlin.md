@@ -9,15 +9,11 @@ layout: default
 	</header>
 
 ## Kennen Sie das?
-Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
-
-Im Grunde bräuchten Sie ein Sofa eigentlich nicht, weil Sie nie wirklich zur Ruhe kommen. 
-
-Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält.
-
-Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab.
-
-Sie gelten als austherapiert.
+- Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
+- Im Grunde bräuchten Sie ein Sofa eigentlich nicht, weil Sie nie wirklich zur Ruhe kommen. 
+- Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält.
+- Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab.
+- Sie gelten als austherapiert.
 
 ## Sie sind nicht alleine
 Es ist manchmal einfacher, mit einem offensichtlichen Schocktrauma, wie z.B. dem plötzlichen Tod eines Familienmitgliedes oder einem Arbeitsunfall, den Weg zur Traumatherapie zu finden. Man sollte übrigens Schocktrauma nicht unbehandelt lassen, weil es sich chronifizieren kann.   
@@ -79,7 +75,9 @@ Heute, in meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube
 ## Es ist Zeit für einen Wandel
 Bereit, den nächsten Schritt zu gehen? Luise Reddemann, eine der bekanntesten deutschen Traumatherapeuten hat diesen wunderbaren Satz geprägt: "Wir machen jeden Mist zu Kompost." 
 
-Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. So dürfen auch alles so lassen, wie es ist. Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. Mit Unterstützung in einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. Vergangenheitsbewältigung ist möglich.  
+Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. Sie dürfen auch alles so lassen, wie es ist und wollen Sie das?
+
+Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. In einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. Vergangenheitsbewältigung ist möglich.  
 
 Buchen Sie für sich Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zu einem besseren Leben unterstützen kann.
   
