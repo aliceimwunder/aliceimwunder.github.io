@@ -76,11 +76,11 @@ Heute, in meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube
 - TaumaCentered NeuroCoaching nach Mark Robert Waldman.
 
 ## Es ist Zeit für einen Wandel
-Bereit, den nächsten Schritt zu gehen? Luise Reddemann, eine der bekanntesten deutschen Traumatherapeuten hat diesen wunderbaren Satz geprägt: "Wir machen jeden Mist zu Kompost."
+Bereit, den nächsten Schritt zu gehen? Luise Reddemann, eine der bekanntesten deutschen Traumatherapeuten hat diesen wunderbaren Satz geprägt: "Wir machen jeden Mist zu Kompost." 
 
-Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. Mit Unterstützung in einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. Vergangenheitsbewältigung ist möglich.  
+Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. So dürfen auch alles so lassen, wie es ist. Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. Mit Unterstützung in einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. Vergangenheitsbewältigung ist möglich.  
 
-Buchen Sie jetzt Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zu einem besseren Leben unterstützen kann.
+Buchen Sie für sich Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zu einem besseren Leben unterstützen kann.
   
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Ihren persönlichen Termin buchen](https://traumatherapie.youcanbook.me)
