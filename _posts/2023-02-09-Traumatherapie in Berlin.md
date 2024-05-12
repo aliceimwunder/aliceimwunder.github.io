@@ -14,7 +14,7 @@ layout: default
 - Verhasste Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab.
 - Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert.  
 
-Auch wenn dieser Zustände nicht exakt auf Sie zutreffen. Bei mir müssen Sie in kein vorgefertigtes Raster für Traumafolgestörungen passen. 
+Auch wenn dieser Zustände nicht exakt auf Sie zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. 
 
 ## Sie sind auch nicht alleine mit diesem Thema
 Oft ist es **einfacher**, den Weg zur Traumatherapie nach einem Schocktrauma wie einem Arbeitsunfall zu finden. Dennoch sollte man Schocktraumata nicht unbehandelt lassen, da sie chronifizieren können. Studien aus dem Bereich Kriegseinsätze zeigen, dass jeder nach einem negativen Ereignis Trauma-Symptome entwickeln kann, unabhängig von früheren Traumafolgen aus der Kindheit.
@@ -24,9 +24,9 @@ In Deutschland sind Bindungs- und Komplextraumata häufiger anzutreffen als Scho
 Ein **Beispiel**: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 berichteten knapp 75% der Befragten im Alter von 16 bis 59 Jahren von physischer Gewalt durch ihre Eltern. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt).
 
 ## Licht am Ende des Tunnels: Eine befreiende Zukunft nach der Traumatherapie
-Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des Friedens und der Sicherheit in Ihrem Alltag, die vorher Ihr Bewusstsein nicht erreichen konnten. 
+Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des Friedens und der **Sicherheit in Ihrem Alltag**, die vorher Ihr Bewusstsein nicht erreichen konnten. 
 
-Es ist wie ein sanfter Regen nach einem langen Sturm – die Luft fühlt sich frisch an, und die Sonne beginnt wieder durch die Wolken zu brechen. Sie erkennen die unbändige Kraft in sich, die Sie überleben hat lassen und, die Sie jetzt frei nutzen können, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen. 
+Es ist wie ein sanfter Regen nach einem langen Sturm – die Luft fühlt sich frisch an, und die Sonne beginnt wieder durch die Wolken zu brechen. Sie erkennen die unbändige **Kraft in sich**, die Sie überleben hat lassen und, die Sie jetzt frei nutzen können, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen. 
 
 <br/>
 <img src="/assets/2023-02-09-Wetter klart auf.jpg" alt="" style="max-width:100%"/>
@@ -52,7 +52,7 @@ Konkreter ausgedrückt: **Ziel einer guten Traumatherapie ist:** Sie können Ihr
   </a>
 </div>
 
-Buchen Sie sich ein unverbindliches Kennenlerngespräch. So können Sie mich persönlich kennenlernen. Wir klären offene Fragen, bevor Sie sich festlegen. 
+Buchen Sie sich ein unverbindliches Kennenlerngespräch. So können Sie mich **persönlich kennenlernen**. Wir klären offene Fragen, bevor Sie sich festlegen. 
 
 Das geht ganz leicht: 20 min auf zoom online. 
 
@@ -67,15 +67,15 @@ Oder Sie wenden sich per
 direkt an mich.
 
 ## Ein paar Worte über mich
-Als ich 2014 die Prüfung zur Heilpraktikerin für Psychotherapie ablegte, stieß ich erstmals auf die Möglichkeit einer Traumatherapie-Ausbildung. Mein erster Gedanke war damals, dass ich genug mit meiner eigenen Vergangenheit zu tun hatte. Nein danke.
+Als ich 2014 die Prüfung zur **Heilpraktikerin für Psychotherapie** ablegte, stieß ich erstmals auf die Möglichkeit einer Traumatherapie-Ausbildung. Mein erster Gedanke war damals, dass ich genug mit meiner eigenen Vergangenheit zu tun hatte. Nein danke.
 
 Ein Selbsterfahrungswochenende sollte meine Einstellung ändern. Die Leiterin führte die Gruppe zwar sicher durch Meditationen und Atemübungen Doch wechselte sie zu einer Übung, in der wir unsere bis dahin ungesagten Worte in einem einzigen Ton ausdrücken sollten. Die Wirkung konnte die Leiterin nicht mehr abfangen: es holte eine ungeahnte Welle von seelischem Schmerz in den Teilnehmerinnen hoch.
 
-Inmitten dieses Chaos half ich einer hemmungslos schluchzenden Frau sich zu beruhigen. Für mich überraschend fragte sie anschließend etwas, das mich tief berührte: „Warum kannst Du in dieser Situation so ruhig bleiben?“ 
+Inmitten dieses Chaos half ich einer hemmungslos schluchzenden Frau sich zu beruhigen. Für mich überraschend fragte sie anschließend etwas, das mich **tief berührte**: „Warum kannst Du in dieser Situation so ruhig bleiben?“ 
 
-Plötzlich sah ich mich mit ihren Augen: das Chaos um uns und meine empathische Ruhe. Ich konnte das Leid im Raum deutlich spüren, ohne darin zu versinken. Diese Erfahrung war der Startpunkt für meine Reise zur Traumatherapie.
+Plötzlich sah ich mich mit ihren Augen: das Chaos um uns und meine empathische Ruhe. Ich konnte das Leid im Raum deutlich spüren, ohne darin zu versinken. Diese Erfahrung war der **Startpunkt** für meine Reise zur Traumatherapie.
 
-Heute, in meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube daran, dass jeder Mensch individuelle Werkzeuge benötigt, um Heilung zu finden, zumal Schocktraumata aus der näheren Vergangenheit ein anderes Paar Schuhe ist als Verlust von Bindung im Säuglingsalter. Zusammen suchen wir nach dem, was für Sie den Wandel bringt, den Sie sich wünschen. 
+Heute, in meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube daran, dass jeder Mensch **individuelle Werkzeuge** benötigt, um Heilung zu finden, zumal Schocktraumata aus der näheren Vergangenheit ein anderes Paar Schuhe ist als Verlust von Bindung im Säuglingsalter. Zusammen suchen wir nach dem, was für Sie den Wandel bringt, den Sie sich wünschen. 
 
 **Meine Ausbildung basiert auf:** 
 - psychodynamisch-imaginativer Traumatherapie nach Luise Reddemann.
