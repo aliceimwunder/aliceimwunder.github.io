@@ -14,14 +14,14 @@ layout: default
 - Verhasste Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab.
 - Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert.  
 
-Auch wenn dieser Zustände nicht exakt auf Sie passt: Die Folgen von Trauma haben viele Gesichter. 
+Auch wenn dieser Zustände nicht exakt auf Sie zutreffen. Bei mir müssen Sie in kein vorgefertigtes Raster für Traumafolgestörungen passen. 
 
 ## Sie sind auch nicht alleine mit diesem Thema
-Es ist manchmal einfacher, mit einem offensichtlichen Schocktrauma, wie z.B. einem Arbeitsunfall, den Weg zur Traumatherapie zu finden. Man sollte Schocktrauma genauso wenig unbehandelt lassen, weil es sich chronifizieren kann. Aus der Forschung zu Kriegseinsätzen weiß man, dass jeder nach einem negativen Ereignis ein Symptome entwickeln kann, unabhängig davon, ob jemand schon vorher mit Traumafolgen aus der Kindheit zu kämpfen hatte.
+Oft ist es **einfacher**, den Weg zur Traumatherapie nach einem Schocktrauma wie einem Arbeitsunfall zu finden. Dennoch sollte man Schocktraumata nicht unbehandelt lassen, da sie chronifizieren können. Studien aus dem Bereich Kriegseinsätze zeigen, dass jeder nach einem negativen Ereignis Trauma-Symptome entwickeln kann, unabhängig von früheren Traumafolgen aus der Kindheit.
 
-Häufiger als Schocktraumata treten in Deutschland Bindungs- und/oder Komplextraumata auf. Viele tragen Wunden aus der Kindheit, die vielleicht vergessen oder verdrängt wurden. Fast alle Betroffenen halten eine Fassade hoch, dass bei ihnen alles in Ordnung war. Oft wissen sie auch nicht, dass frühe Belastungserfahrungen Ursache für Symptome in der Gegenwart sein können. Daher: Sie sind nicht allein mit diesem Thema und Sie dürfen sich vertrauen – Sie sind der Experte in Ihrem Leben. 
+In Deutschland sind Bindungs- und Komplextraumata häufiger anzutreffen als Schocktraumata. Viele Menschen tragen Wunden aus ihrer Kindheit, die möglicherweise verdrängt wurden. Oft halten Betroffene eine Fassade aufrecht, dass alles in Ordnung sei, oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen können. Sie sind nicht allein mit diesen Herausforderungen und dürfen sich selbst vertrauen – Sie sind der **Experte in Ihrem eigenen** Leben.
 
-Nur ein Beispiel unter vielen: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 gaben knapp 75% der Befragten im Alter zwischen 16 und 59 Jahren an, physische Gewalt durch ihre Eltern erlebt zu haben. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt). 
+Ein **Beispiel**: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 berichteten knapp 75% der Befragten im Alter von 16 bis 59 Jahren von physischer Gewalt durch ihre Eltern. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt).
 
 ## Licht am Ende des Tunnels: Eine befreiende Zukunft nach der Traumatherapie
 Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des Friedens und der Sicherheit in Ihrem Alltag, die vorher Ihr Bewusstsein nicht erreichen konnten. 
@@ -45,7 +45,7 @@ Konkreter ausgedrückt: **Ziel einer guten Traumatherapie ist:** Sie können Ihr
 
 ## Keine Katze im Sack
 <div class='video'>
-  <a class='glightbox' href='/assets/Selbstdarstellung.mp4'>
+  <a class='glightbox' href='/assets/Selbstdarstellung.mp4'" style="max-width:100%"/>
     <div class='title'>Lassen Sie mich in diesem Video vorstellen:</div>
     <img src='/assets/Selbstdarstellung_thumb.jpg'/>
     <img src="/assets/Selbstdarstellung.mp4" alt="" style="max-width:100%"/>
@@ -73,9 +73,9 @@ Ein Selbsterfahrungswochenende sollte meine Einstellung ändern. Die Leiterin f�
 
 Inmitten dieses Chaos half ich einer hemmungslos schluchzenden Frau sich zu beruhigen. Für mich überraschend fragte sie anschließend etwas, das mich tief berührte: „Warum kannst Du in dieser Situation so ruhig bleiben?“ 
 
-Plötzlich sah ich mich mit ihren Augen: das Chaos und meine empathische Ruhe. Ich konnte das Leid im Raum deutlich spüren, ohne darin zu versinken. Diese Erfahrung war der Startpunkt für meine Reise  zur Traumatherapie.
+Plötzlich sah ich mich mit ihren Augen: das Chaos um uns und meine empathische Ruhe. Ich konnte das Leid im Raum deutlich spüren, ohne darin zu versinken. Diese Erfahrung war der Startpunkt für meine Reise zur Traumatherapie.
 
-Heute, in meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube daran, dass jeder Mensch individuelle Werkzeuge benötigt, um Heilung zu finden. Zusammen suchen wir nach dem, was für Sie den Wandel bringt, den Sie sich wünschen. 
+Heute, in meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube daran, dass jeder Mensch individuelle Werkzeuge benötigt, um Heilung zu finden, zumal Schocktraumata aus der näheren Vergangenheit ein anderes Paar Schuhe ist als Verlust von Bindung im Säuglingsalter. Zusammen suchen wir nach dem, was für Sie den Wandel bringt, den Sie sich wünschen. 
 
 **Meine Ausbildung basiert auf:** 
 - psychodynamisch-imaginativer Traumatherapie nach Luise Reddemann.
