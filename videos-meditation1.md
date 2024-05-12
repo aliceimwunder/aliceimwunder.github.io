@@ -14,5 +14,10 @@ videos:
         youtube: Loi2N6tWYu8
 ---
 
-
-
+<div class='video'>
+  <a class='glightbox' href='/assets/Selbstdarstellung.mp4'>
+    <img src='/assets/Selbstdarstellung_thumb.jpg'/>
+    <div class='title'>Video Selbstdarstellung</div>
+    <div class='caption'>Eine Einführung</div>
+  </a>
+</div>
