@@ -1,5 +1,5 @@
 ---
-layout: default
+layout: videos
 ---
 <br/>
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
