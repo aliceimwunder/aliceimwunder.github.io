@@ -38,6 +38,7 @@ Konkreter ausgedrückt: **Ziel einer guten Traumatherapie ist:** Sie können Ihr
 - einfühlsame und vertrauensvolle Begleitung für Sie. 
 - kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur SelbstzahlerInnen*).
 - die Möglichkeit, sofort beginnen zu können.
+- Sitzungen auch auf Englisch möglich.
 
 ## Keine Katze im Sack
 <div class='video'>
