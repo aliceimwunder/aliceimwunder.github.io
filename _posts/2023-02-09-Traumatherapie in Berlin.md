@@ -2,7 +2,7 @@
 layout: default
 ---
 <br/>
-<img src="/assets/images/Landingpage Traumatherapie2.jpeg" alt="" style="max-width:100%"/>
+<img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
 
 <header>
 	<h2>Mut zur Veränderung: Willkommen auf dem Weg zu einem glücklicheren Leben und innerem Frieden</h2>
