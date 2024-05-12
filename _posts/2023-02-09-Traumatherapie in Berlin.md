@@ -24,15 +24,15 @@ In Deutschland sind Bindungs- und Komplextraumata häufiger anzutreffen als Scho
 Ein **Beispiel**: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 berichteten knapp 75% der Befragten im Alter von 16 bis 59 Jahren von physischer Gewalt durch ihre Eltern. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt).
 
 ## Licht am Ende des Tunnels: Eine befreiende Zukunft nach der Traumatherapie
-Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des Friedens und der **Sicherheit in Ihrem Alltag**, die vorher Ihr Bewusstsein nicht erreichen konnten. 
+Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des Friedens und der Sicherheit, die vorher Ihr Bewusstsein nicht erreichen konnten. Es ist wie ein sanfter Regen nach einem langen Sturm. 
 
-Es ist wie ein sanfter Regen nach einem langen Sturm – die Luft fühlt sich frisch an, und die Sonne beginnt wieder durch die Wolken zu brechen. Sie erkennen die unbändige **Kraft in sich**, die Sie überleben hat lassen und, die Sie jetzt frei nutzen können, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen. 
+Die Luft fühlt sich frisch an, und die Sonne beginnt wieder durch die Wolken zu brechen. Sie erkennen die **unbändige Kraft** in sich, die Sie überleben hat lassen und, die Sie jetzt frei nutzen können, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen.
 
 <br/>
 <img src="/assets/2023-02-09-Wetter klart auf.jpg" alt="" style="max-width:100%"/>
 
+Ziel einer guten Traumatherapie ist es, dass Sie Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen können. Selbstkritik, Scham- und Schuldgefühle rücken in weite Ferne. Sie eröffnen für sich neue Verhaltensweisen und spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
 
-Konkreter ausgedrückt: **Ziel einer guten Traumatherapie ist:** Sie können Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen. Selbstkritik, Scham- und Schuldgefühle  (o.ä.) rücken in weite Ferne. Sie eröffnen für sich neue Verhaltensweisen. Sie spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
 
 ## Dazu biete ich Ihnen in meiner Praxis 
 - evidenzbasierte und ganzheitliche Lösungswege.
@@ -91,7 +91,7 @@ Bereit, den nächsten Schritt zu gehen? Luise Reddemann, eine der bekanntesten d
 
 Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. Sie dürfen auch alles so lassen, wie es ist und wollen Sie das?
 
-Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. In einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. Vergangenheitsbewältigung ist möglich.  
+Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. In einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. **Vergangenheitsbewältigung ist möglich**.  
 
 Buchen Sie für sich Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zu einem besseren Leben unterstützen kann.
   
@@ -107,5 +107,6 @@ direkt an mich.
 
 
 ----
-*Wenn man mich bucht, handelt es sich um eine Investition in sich selbst. Leider übernehmen gesetzliche Krankenkassen und Beihilfe keine Kosten von Heilpraktikern für Psychotherapie. Private (Zusatz)Kassen zahlen nur Zuschüsse, wenn Heilpraktiker für Psychotherapie ausdrücklich im Leistungekatalog aufgenommen sind. 
+*Eine Buchung bei mir ist eine Investition in sich selbst. Gesetzliche Krankenkassen und Beihilfen übernehmen keine Kosten für Heilpraktiker für Psychotherapie. Private (Zusatz)Kassen bieten möglicherweise Zuschüsse an, wenn Heilpraktiker für Psychotherapie ausdrücklich in ihrem Leistungskatalog aufgeführt sind. Trotzdem lohnt es sich, meine Dienste in Anspruch zu nehmen, um Ihre persönliche Entwicklung und Heilung zu unterstützen."
+ 
 
