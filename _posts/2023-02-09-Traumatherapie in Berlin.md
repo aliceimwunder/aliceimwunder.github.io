@@ -40,6 +40,8 @@ Konkreter ausgedrückt . **Ziel einer guten Traumatherapie ist:** Sie können Ih
 ## Keine Katze im Sack
 <div class='video'>
   <a class='glightbox' href='/assets/Selbstdarstellung.mp4'>
+    <div class='title'>Lassen Sie mich in diesem Video vorstellen.</div>
+   
     <img src='/assets/Selbstdarstellung_thumb.jpg'/>
     <div class='title'>Video Selbstdarstellung</div>
     <div class='caption'>Eine Einführung</div>
