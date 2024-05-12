@@ -12,7 +12,7 @@ layout: default
 Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.
 
 Hier finden Sie 
-- Stressreduzierung mit effektiver [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
+- Stressreduzierung mit effektivem [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
 - evidenzbasierte [Traumatherapie, hp psych](/2023/02/09/Traumatherapie-in-Berlin.html),
 - ganzheitliches [traumasensibles Coaching](/2024/02/27/Traumasensibles-Coaching.html), um Ihre Selbstheilung zu entfachen, 
 - [geführte Gruppenmeditationen](/2023/02/10/Gruppenabende-Meditationsreisen) - ein Frischekick für Ihren Energiekörper
