@@ -38,6 +38,14 @@ Konkreter ausgedrückt . **Ziel einer guten Traumatherapie ist:** Sie können Ih
 - die Möglichkeit, sofort beginnen zu können.
 
 ## Keine Katze im Sack
+<div class='video'>
+  <a class='glightbox' href='/assets/Selbstdarstellung.mp4'>
+    <img src='/assets/Selbstdarstellung_thumb.jpg'/>
+    <div class='title'>Video Selbstdarstellung</div>
+    <div class='caption'>Eine Einführung</div>
+  </a>
+</div>
+
 Buchen Sie sich ein ganz unverbindliches Kennenlerngespräch. So können Sie mich und meine Stimme wahrnehmen. Wir klären offene Fragen, bevor Sie sich festlegen. 
 
 Das geht ganz leicht: 20 min auf zoom online. 
