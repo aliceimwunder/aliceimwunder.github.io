@@ -14,9 +14,9 @@ layout: default
 - Verhasste Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab.
 - Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert.  
 
-Auch wenn keine dieser Zustände exakt auf Sie passt: Trauma hat viele Gesichter. 
+Auch wenn keine dieser Zustände exakt auf Sie passt: Die Folgen von Trauma haben viele Gesichter. 
 
-## Sie sind nicht alleine
+## Sie sind auch nicht alleine
 Es ist manchmal einfacher, mit einem offensichtlichen Schocktrauma, wie z.B. einem Arbeitsunfall, den Weg zur Traumatherapie zu finden. Man sollte übrigens Schocktrauma nicht unbehandelt lassen, weil es sich chronifizieren kann.   
 
 Häufiger als Schocktraumata treten in Deutschland Bindungs- und/oder Komplextraumata auf. Viele tragen Wunden aus der Kindheit, die vielleicht vergessen oder verdrängt wurden. Fast alle Betroffenen halten eine Fassade hoch, dass bei ihnen alles in Ordnung war. Oft wissen sie auch nicht, dass frühe Belastungserfahrungen Ursache für Symptome in der Gegenwart sein können. Daher: Sie sind nicht allein mit diesem Thema und Sie dürfen sich vertrauen – Sie sind der Experte in Ihrem Leben. 
