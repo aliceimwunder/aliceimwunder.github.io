@@ -57,7 +57,7 @@ Buchen Sie sich ein unverbindliches Kennenlerngespräch. So können Sie mich **p
 Das geht ganz leicht: 20 min auf zoom online. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>a>
+	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
 
 Oder Sie wenden sich per 
