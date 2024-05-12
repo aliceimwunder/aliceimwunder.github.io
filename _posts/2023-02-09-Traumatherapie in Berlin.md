@@ -49,6 +49,7 @@ Ziel einer guten Traumatherapie ist es, dass Sie Ihre Gefühle wahrnehmen, regul
   <a class='glightbox' href='/assets/Selbstdarstellung.mp4'>
     <div class='title'>Lassen Sie mich in diesem Video vorstellen:</div>
     <img src='/assets/Selbstdarstellung_thumb.jpg' style='max-width:100%'/>
+    <span class="video-play-icon"></span>
   </a>
 </div>
 
