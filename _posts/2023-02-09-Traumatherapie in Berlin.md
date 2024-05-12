@@ -46,7 +46,7 @@ Konkreter ausgedrückt . **Ziel einer guten Traumatherapie ist:** Sie können Ih
   </a>
 </div>
 
-Buchen Sie sich ein ganz unverbindliches Kennenlerngespräch. So können Sie mich und meine Stimme wahrnehmen. Wir klären offene Fragen, bevor Sie sich festlegen. 
+Buchen Sie sich ein unverbindliches Kennenlerngespräch. So können Sie mich persönlich kennenlernen. Wir klären offene Fragen, bevor Sie sich festlegen. 
 
 Das geht ganz leicht: 20 min auf zoom online. 
 
