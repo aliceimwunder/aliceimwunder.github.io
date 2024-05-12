@@ -5,20 +5,21 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2>Kommt Ihnen das bekannt vor?</h2>
+	<h2>Kommt Ihnen das vielleicht bekannt vor?</h2>
 	</header>
 
 - Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
-- Im Grunde bräuchten Sie ein Sofa eigentlich nicht, weil Sie nie wirklich zur Ruhe kommen. 
-- Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…) . Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält.
-- Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab.
-- Sie gelten als austherapiert.
+- Im Grunde bräuchten Sie kein Sofa, weil Sie nie wirklich zur Ruhe kommen können. 
+- Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…). Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält.
+- Verhasste Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab.
+- Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert.  
 
+Auch wenn keine dieser Zustände exakt auf Sie passt: Trauma hat viele Gesichter. 
 
 ## Sie sind nicht alleine
 Es ist manchmal einfacher, mit einem offensichtlichen Schocktrauma, wie z.B. einem Arbeitsunfall, den Weg zur Traumatherapie zu finden. Man sollte übrigens Schocktrauma nicht unbehandelt lassen, weil es sich chronifizieren kann.   
 
-Was in Deutschland viel häufiger als Schocktraumata auftritt, sind Bindungs- und/oder Komplextraumata. Erschreckend viele tragen alte Wunden aus der Kindheit, die vielleicht vergessen oder verdrängt wurden. Fast alle Betroffenen halten eine Fassade hoch, dass bei ihnen alles in Ordnung sei oder wissen nicht, dass frühe Belastungserfahrungen Ursache für Symptome in der Gegenwart sein können. Sie sind nicht allein mit diesem Thema und Sie dürfen sich vertrauen – Sie sind der Experte in Ihrem Leben. 
+Häufiger als Schocktraumata treten in Deutschland Bindungs- und/oder Komplextraumata auf. Viele tragen Wunden aus der Kindheit, die vielleicht vergessen oder verdrängt wurden. Fast alle Betroffenen halten eine Fassade hoch, dass bei ihnen alles in Ordnung war. Oft wissen sie auch nicht, dass frühe Belastungserfahrungen Ursache für Symptome in der Gegenwart sein können. Daher: Sie sind nicht allein mit diesem Thema und Sie dürfen sich vertrauen – Sie sind der Experte in Ihrem Leben. 
 
 Nur ein Beispiel unter vielen: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 gaben knapp 75% der Befragten im Alter zwischen 16 und 59 Jahren an, physische Gewalt durch ihre Eltern erlebt zu haben. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt). 
 
@@ -47,7 +48,7 @@ Konkreter ausgedrückt: **Ziel einer guten Traumatherapie ist:** Sie können Ihr
   <a class='glightbox' href='/assets/Selbstdarstellung.mp4'>
     <div class='title'>Lassen Sie mich in diesem Video vorstellen:</div>
     <img src='/assets/Selbstdarstellung_thumb.jpg'/>
-   
+    <img src="/assets/Selbstdarstellung.mp4" alt="" style="max-width:100%"/>
   </a>
 </div>
 
