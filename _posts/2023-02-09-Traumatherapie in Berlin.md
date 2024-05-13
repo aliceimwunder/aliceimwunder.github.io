@@ -39,9 +39,10 @@ Ziel einer guten Traumatherapie ist es, dass Sie Ihre Gefühle wahrnehmen, regul
 - mehrjährige Erfahrung. 
 - einen sicheren Raum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez) - wahlweise auch östlich von Berlin in Briesen/Mark.
 - einfühlsame und vertrauensvolle Begleitung für Sie. 
-- kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur SelbstzahlerInnen*).
+- kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur SelbstzahlerInnen*). 
 - die Möglichkeit, sofort beginnen zu können.
 - Sitzungen auch auf Englisch möglich.
+- Sie können wöchtentlich oder alle zwei Wochen Therapie wahrnehmen, je nachdem, was zu Ihrem Alltag passt. (Sie haben auch die Möglichkeit, bei mir die Wartezeit auf einen kassenfinanzierten Therapieplatz zu überbrücken.)
 
 ### Keine Katze im Sack
 
@@ -105,5 +106,7 @@ Oder Sie wenden sich direkt an mich:
 
 ----
 *Eine Buchung bei mir ist eine Investition in Sie selbst. Gesetzliche Krankenkassen und Beihilfen übernehmen keine Kosten für Heilpraktiker für Psychotherapie. Private (Zusatz)Kassen bieten möglicherweise Zuschüsse an, wenn Heilpraktiker für Psychotherapie ausdrücklich in ihrem Leistungskatalog aufgeführt sind. Trotzdem lohnt es sich, meine Dienste in Anspruch zu nehmen, um Ihre persönliche Entwicklung und Heilung zu unterstützen.
- 
+
+Das Thema Vergangenheitsbewältigung mag mittlerweile offen diskutiert werden. Ein spezifisch traumatherapeutischer Ansatz gehört jedoch noch nicht zu den kassenärztlichen Standardleistungen. Wenn Sie nach einem von einer Kasse übernommene Therapieplatz suchen, so würde ich Ihnen ans Herz legen, sich zu erkundigen, ob der/die anvisierte PsychotherapeutIn fundierte Fortbildungen im Bereich Trauma besucht hat und das gewonnene Wissen in die Therapie mit einfließen lässt.
+
 
