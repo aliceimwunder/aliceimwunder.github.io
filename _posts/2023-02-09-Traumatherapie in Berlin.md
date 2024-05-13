@@ -14,7 +14,7 @@ layout: default
 * Verhasste Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen ( (fast) wie ferngesteuert ab.
 * Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert.
 
-Auch wenn dieser Zustände nicht exakt auf Sie zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. Stattdessen biete ich den Raum, in dem so viel Vertrauen ensteht, dass Mut zur Veränderung selbstverständlich wird.   
+Auch wenn dieser Beschreibungen nicht exakt auf Sie zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. Stattdessen biete ich den Raum, in dem so viel Vertrauen ensteht, dass Mut zur Veränderung selbstverständlich wird.   
 
 ### Sie sind auch nicht alleine mit diesem Thema
 Schocktraumata können jeden treffen. Das Leben wartet manchmal mit schockierenden Ereignissen auf und das ist behandelbar. In Deutschland sind allerdings Bindungs- und Komplextraumata häufiger anzutreffen als Schocktraumata. Viele Menschen tragen Wunden aus ihrer Kindheit, die möglicherweise verdrängt wurden. 
