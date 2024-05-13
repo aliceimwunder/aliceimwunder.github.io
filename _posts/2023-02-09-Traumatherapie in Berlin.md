@@ -7,11 +7,11 @@ layout: default
 <header>
 	<h3>Mut zur Veränderung wäre da. Aber da sieht es gerade so aus?</h3>
 	</header> <br/>
-- Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
-- Im Grunde bräuchten Sie kein Sofa, weil Sie nie wirklich zur Ruhe kommen können. 
-- Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…). Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält.
-- Verhasste Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen (fast) wie ferngesteuert ab.
-- Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert.  
+* Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
+* Im Grunde bräuchten Sie kein Sofa, weil Sie nie wirklich zur Ruhe kommen können. 
+* Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…). Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält.
+* Verhasste Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen ( (fast) wie ferngesteuert ab.
+* Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert.  
 
 Auch wenn dieser Zustände nicht exakt auf Sie zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. 
 
