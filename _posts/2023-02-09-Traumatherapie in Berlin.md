@@ -12,9 +12,8 @@ layout: default
 * Im Grunde bräuchten Sie kein Sofa, weil Sie nie wirklich zur Ruhe kommen können. 
 * Abends/an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…). Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält.
 * Verhasste Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen ( (fast) wie ferngesteuert ab.
-* Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert.  
-
-Auch wenn dieser Zustände nicht exakt auf Sie zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. 
+* Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert. <br/>
+Auch wenn dieser Zustände nicht exakt auf Sie zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. Stattdessen biete ich den Raum, in dem so viel Vertrauen ensteht, dass Mut zur Veränderung selbstverständlich wird.   
 
 ### Sie sind auch nicht alleine mit diesem Thema
 Oft ist es **einfacher**, den Weg zur Traumatherapie nach einem Schocktrauma wie einem Arbeitsunfall zu finden. Dennoch sollte man Schocktraumata nicht unbehandelt lassen, da sie chronifizieren können. Studien aus dem Bereich Kriegseinsätze zeigen, dass jeder nach einem negativen Ereignis Trauma-Symptome entwickeln kann, unabhängig von früheren Traumafolgen aus der Kindheit.
