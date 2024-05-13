@@ -16,6 +16,12 @@ layout: default
 
 Auch wenn dieser Beschreibungen nicht exakt auf Sie zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. Stattdessen biete ich den Raum, in dem so viel Vertrauen ensteht, dass Mut zur Veränderung selbstverständlich wird.   
 
+Sie sind fest entschlossen? Buchen Sie sich ein unverbindliches kostenfreies Vorgespräch auf zoom.
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
+</span>
+
+
 ### Sie sind auch nicht alleine mit diesem Thema
 Schocktraumata können jeden treffen. Das Leben wartet manchmal mit schockierenden Ereignissen auf und das ist behandelbar. In Deutschland sind allerdings Bindungs- und Komplextraumata häufiger anzutreffen als Schocktraumata. Viele Menschen tragen Wunden aus ihrer Kindheit, die möglicherweise verdrängt wurden. 
 
