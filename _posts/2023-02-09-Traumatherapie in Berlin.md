@@ -5,8 +5,8 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
 
 <header>
-	<h3>Mut zur Veränderung wäre da. Aber da sieht es gerade so aus?</h3>
-	</header> <br/>
+	<h3>Mut zur Veränderung schon. Aber da sieht es gerade so aus?</h3>
+	</header><p></p>
  
 * Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
 * Im Grunde bräuchten Sie kein Sofa, weil Sie nie wirklich zur Ruhe kommen können. 
