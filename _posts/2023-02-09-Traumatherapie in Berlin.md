@@ -104,6 +104,7 @@ Buchen Sie für sich Ihr unverbindliches Kennenlerngespräch und lassen Sie uns 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Ihren persönlichen Termin buchen](https://traumatherapie.youcanbook.me)
 </span>
+
 Oder Sie wenden sich direkt an mich: 
 - **Email**: info@alicewindolf.de oder
 - **Tel**: 0160 704 7080
