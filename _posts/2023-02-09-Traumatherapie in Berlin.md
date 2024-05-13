@@ -17,11 +17,11 @@ layout: default
 Auch wenn dieser Zustände nicht exakt auf Sie zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. Stattdessen biete ich den Raum, in dem so viel Vertrauen ensteht, dass Mut zur Veränderung selbstverständlich wird.   
 
 ### Sie sind auch nicht alleine mit diesem Thema
-Oft ist es **einfacher**, den Weg zur Traumatherapie nach einem Schocktrauma wie einem Arbeitsunfall zu finden. Dennoch sollte man Schocktraumata nicht unbehandelt lassen, da sie chronifizieren können. Studien aus dem Bereich Kriegseinsätze zeigen, dass jeder nach einem negativen Ereignis Trauma-Symptome entwickeln kann, unabhängig von früheren Traumafolgen aus der Kindheit.
+Schocktraumata können jeden treffen. Das Leben wartet manchmal mit schockierenden Ereignissen auf. In Deutschland sind allerdings Bindungs- und Komplextraumata häufiger anzutreffen als Schocktraumata. Viele Menschen tragen Wunden aus ihrer Kindheit, die möglicherweise verdrängt wurden. 
 
-In Deutschland sind Bindungs- und Komplextraumata häufiger anzutreffen als Schocktraumata. Viele Menschen tragen Wunden aus ihrer Kindheit, die möglicherweise verdrängt wurden. Oft halten Betroffene eine Fassade aufrecht, dass alles in Ordnung sei, oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen können. Sie sind nicht allein mit diesen Herausforderungen und dürfen sich selbst vertrauen – Sie sind der **Experte in Ihrem eigenen** Leben.
+Oft halten Betroffene eine Fassade aufrecht, dass alles in Ordnung sei, oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen können. Sie sind nicht allein mit diesen Herausforderungen und dürfen sich selbst vertrauen – Sie sind der **Experte in Ihrem eigenen** Leben.
 
-Ein **Beispiel**: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 berichteten knapp 75% der Befragten im Alter von 16 bis 59 Jahren von physischer Gewalt durch ihre Eltern. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt).
+Ein **Beispiel**: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 berichteten knapp 75% der Befragten im Alter von 16 bis 59 Jahren von physischer Gewalt durch ihre Eltern. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt). Das hinterlässt Furchen in der Seele, die sich nicht von alleine auflösen. Zugleich kann ich aus eigener Erfahrung sagen: die Furchen lassen sich glätten, egal wie lange ihre Entstehung her ist.  
 
 ### Licht am Ende des Tunnels: Eine befreiende Zukunft nach der Traumatherapie
 Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des Friedens und der Sicherheit, die vorher Ihr Bewusstsein nicht erreichen konnten. Es ist wie ein sanfter Regen nach einem langen Sturm. 
@@ -62,11 +62,9 @@ Das geht ganz leicht: 20 min auf zoom online.
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
 
-Oder Sie wenden sich per 
+Oder Sie wenden sich direkt an mich: 
 - **Email**: info@alicewindolf.de oder
 - **Tel**: 0160 704 7080
-
-direkt an mich.
 
 ### Ein paar Worte über mich
 Als ich 2014 die Prüfung zur **Heilpraktikerin für Psychotherapie** ablegte, stieß ich erstmals auf die Möglichkeit einer Traumatherapie-Ausbildung. Mein erster Gedanke war damals, dass ich genug mit meiner eigenen Vergangenheit zu tun hatte. Nein danke.
