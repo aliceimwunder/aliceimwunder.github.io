@@ -13,7 +13,7 @@ Ja, aber...
 * Verhasste Handlungsmuster, Gedanken und belastende Gefühle tauchen immer wieder auf, als wären sie ferngesteuert.
 * Trotz zahlreicher ärztlicher Untersuchungen leiden Sie weiterhin unter körperlichen Symptomen, für die keine klare Ursache gefunden werden kann. Die herkömmlichen Behandlungsansätze bringen kaum oder nur kurzfristige Erleichterung. 
 * Es fällt Ihnen schwer sich vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als **austherapiert.**
-* Sicher ist sicher: daher halten Sie lieber Abstand zu anderen Menschen. Vielleicht ziehen Sie sogar magisch **Beziehungen** an, die Ihnen nicht gut tun.    
+* Sicher ist sicher: daher halten Sie lieber Abstand zu anderen Menschen. Es kann sein, dass Sie toxische **Beziehungen** anziehen.    
 
 Auch wenn keine dieser Beschreibungen exakt auf Sie zutrifft, müssen Sie bei mir in kein vorgefertigtes Raster passen. Ich verfolge einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse und Erfahrungen zugeschnitten ist.
  
