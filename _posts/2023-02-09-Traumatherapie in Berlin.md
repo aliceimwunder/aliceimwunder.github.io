@@ -5,7 +5,7 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
 
 <header>
-	<h3>Mut zur Veränderung hätten Sie schon. Nur sieht es bei Ihnen eher so aus?</h3>
+	<h3>Mut zur Veränderung haben Sie? Nur sieht es bei Ihnen eher so aus?</h3>
 	</header><p></p>
  
 * Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können.
@@ -15,7 +15,7 @@ layout: default
 * Verzweifelt haben Sie schon viel medizischen Rat eingeholt, weil Sie unter handfesten, körperlichen Symptomen leiden. Aber die Untersuchungen konnten keine Hilfe bringen: keine körperliche Ursache feststellbar oder die üblichen Therapieangebote bringen kaum oder nur kurzfristig Erleichterung.   
 * Sie können sich kaum vorstellen, wie ein gutes Leben aussähe? Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert.
 
-Auch wenn keine dieser Beschreibungen auf Sie exakt zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. Nicht alle von Trauma Betroffenen entwickeln eine klassische Postbelastungsstörung. Stattdessen biete ich individuelle Lösungswege, mit denen Raum für inneres Gleichgewicht, **Vertrauen und Wandel** ensteht.   
+Auch wenn keine dieser Beschreibungen auf Sie exakt zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. Nicht alle von Trauma Betroffenen entwickeln eine klassische Posttraumatische Belastungsstörung. Stattdessen biete ich individuelle Lösungswege, mit denen Raum für inneres Gleichgewicht, **Vertrauen und Wandel** ensteht.   
 
 Sie sind fest entschlossen? Buchen Sie sich ein unverbindliches kostenfreies Vorgespräch auf zoom.
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
