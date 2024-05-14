@@ -26,7 +26,7 @@ Sie sind fest entschlossen? Buchen Sie sich ein unverbindliches kostenfreies Vor
 ### Sie sind auch nicht alleine mit diesem Thema
 Schocktraumata können jeden von uns treffen. Das Leben hält manchmal schockierende Ereignisse bereit, deren **seelische Folgen** nicht ignoriert werden sollten. Wie bei körperlichen Verletzungen ist es wichtig, auch die seelischen Wunden zu behandeln. 
 
-In Deutschland ist früher Bindungs- und Vertrauensverlust häufiger anzutreffen. Viele Menschen tragen alte Wunden aus ihrer Kindheit. Oft halten Betroffene eine Fassade aufrecht oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen. In einer kriminologischen Studie von 1997 berichteten knapp 75% der erwachsenen Befragten von physischer Gewalt durch ihre Eltern. 
+In Deutschland ist früher Bindungs- und Vertrauensverlust häufiger anzutreffen. Viele Menschen tragen alte Wunden aus ihrer Kindheit. Oft halten Betroffene eine Fassade aufrecht oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen. Nur als ein Beispiel unter vielen: In einer kriminologischen Studie von 1997 berichteten knapp 75% der erwachsenen Befragten von physischer Gewalt durch ihre Eltern. 
 
 Diese Erfahrungen hinterlassen Spuren in der Seele, die sich nicht von selbst auflösen. Doch solche Spuren können geglättet werden, unabhängig davon, wie lange sie zurückliegen.  Vertrauen Sie sich. Denn Sie sind der **Experte in Ihrem eigenen Leben**.
 
