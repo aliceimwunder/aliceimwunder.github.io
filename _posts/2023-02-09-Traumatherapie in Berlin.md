@@ -8,7 +8,7 @@ layout: default
 
 Ja, aber...
 * Ihr Tagesablauf: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an.
-* Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße** hochlegen finden. Entspannung und Genuss scheinen Ihnen fremd zu sein.
+* Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße hochlegen** finden. Entspannung und Genuss scheinen Ihnen fremd zu sein.
 * Es ist besser, wenig freie Zeit zu haben. Denn sonst flüchten Sie sich zu viel in Beschäftigungen wie Netflix, Romane oder Alkohol, obwohl Sie wissen, dass es Ihnen nicht guttut. 
 * Verhasste Handlungsmuster, Gedanken und belastende Gefühle tauchen immer wieder auf, als wären sie ferngesteuert.
 * Trotz zahlreicher ärztlicher Untersuchungen leiden Sie weiterhin unter körperlichen Symptomen, für die keine klare Ursache gefunden werden kann. Die herkömmlichen Behandlungsansätze bringen kaum oder nur kurzfristige Erleichterung. 
