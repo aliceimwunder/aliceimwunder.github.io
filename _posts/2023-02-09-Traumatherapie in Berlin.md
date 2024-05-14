@@ -7,6 +7,7 @@ layout: default
 <header>
 	<h3>Mut zur Veränderung</h3>
 	</header><p></p>
+
 Ja, aber...
 * Tagesablauf: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an.
 * Ihr Sofa ist fast überflüssig, weil Sie nicht die **Ruhe zum Füße** hochlegen haben. Entspannung und Genuss scheinen Ihnen fremd zu sein.
