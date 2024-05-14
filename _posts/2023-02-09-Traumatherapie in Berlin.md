@@ -97,9 +97,13 @@ Heute, in meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube
 ### Es ist Zeit für einen Wandel
 Bereit, den nächsten Schritt zu gehen? Luise Reddemann, eine der bekanntesten deutschen Traumatherapeuten hat diesen wunderbaren Satz geprägt: "Wir machen jeden Mist zu Kompost." 
 
-Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. Sie dürfen auch alles so lassen, wie es ist und wollen Sie das?
+Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. Sie dürfen auch alles so lassen, wie es ist. 
 
-Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. In einer Therapie können Sie sich die passende Unterstützung für Traumabewältigung holen, die Ihnen dient. **Vergangenheitsbewältigung ist möglich**.  
+Und wollen Sie das? 
+
+Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. In einer Traumatherapie können Sie sich die passende Unterstützung und Begleitung für Traumabewältigung holen, die Ihnen wirklich dient. **Vergangenheitsbewältigung ist möglich**.  
+
+Stellen Sie sich vor, wie ein Vogel, der nach Jahren im Käfig endlich seine Flügel ausbreitet und in die Freiheit fliegt. Mit einer Traumatherapie können wir Ihre inneren Flügel stärken und Ihnen helfen, das Gefühl von **Freiheit und Leichtigkeit** wiederzuerlangen.
 
 Buchen Sie für sich Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zu einem besseren Leben unterstützen kann.
   
@@ -110,6 +114,7 @@ Buchen Sie für sich Ihr unverbindliches Kennenlerngespräch und lassen Sie uns 
 Oder Sie wenden sich direkt an mich: 
 - **Email**: info@alicewindolf.de oder
 - **Tel**: 0160 704 7080
+
 
 ----
 *Eine Buchung bei mir ist eine Investition in Sie selbst. Gesetzliche Krankenkassen und Beihilfen übernehmen keine Kosten für Heilpraktiker für Psychotherapie. Private (Zusatz)Kassen bieten möglicherweise Zuschüsse an, wenn Heilpraktiker für Psychotherapie ausdrücklich in ihrem Leistungskatalog aufgeführt sind. Trotzdem lohnt es sich, meine Dienste in Anspruch zu nehmen, um Ihre persönliche Entwicklung und Heilung zu unterstützen.
