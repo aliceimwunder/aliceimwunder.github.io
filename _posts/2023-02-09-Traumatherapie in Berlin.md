@@ -52,6 +52,11 @@ Ziel einer guten Traumatherapie ist es, dass Sie Ihre Gefühle wahrnehmen, regul
 - Sitzungen auch auf Englisch möglich.
 - Sie können wöchtentlich oder alle zwei Wochen Therapie wahrnehmen, je nachdem, was zu Ihrem Alltag passt. (Sie haben auch die Möglichkeit, bei mir die Wartezeit auf einen kassenfinanzierten Therapieplatz zu überbrücken.)
 
+### Für wen ist mein Angebot geeignet?
+Ich unterstütze Menschen, die harte Zeiten überstanden haben und unter den Folgen seelisch leiden. Da ist noch der Funke des Willens zur Veränderung. Sie sind daher bereit, sich mit mir auf eine gemeinsame Reise zu begeben. Auch wenn es richtig schlechte Tage geben mag, die Sehnsucht in Ihnen nach seelischer Ausgeglichenheit, innerem Frieden und einem glücklicheren Leben ist nicht erloschen. Eine solche Zukunft muss kein vages Traumgebilde bleiben, wenn Sie in sich und Ihre Zukunft investieren. 
+
+Ob Sie nur für ein paar Monate mit mir gemeinsam reisen wollen, um ein Schocktrauma aus den letzten Jahren hinter sich zu lassen? Ob Sie nach Bindungs- und Entwicklungstraumata sich neu ausrichten wollen? Oder belastende Muster nicht mehr an Ihre Kinder weitergeben wollen? Bei mir sind Sie willkommen. Sie müssen sich auch nicht konkret erinnern können. Unser psychisches System kann uns mit Verdrängung segnen. Manchmal liegen die Erfahrungen zu weit in der Kindheit, als dass man noch konkret erinnern kann.   
+
 ### Keine Katze im Sack
 
 <div class='video'>
