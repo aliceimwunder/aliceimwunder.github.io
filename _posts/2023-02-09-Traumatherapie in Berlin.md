@@ -99,9 +99,9 @@ Bereit, den nächsten Schritt zu gehen? Luise Reddemann, eine der bekanntesten d
 
 Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. Sie dürfen auch alles so lassen, wie es ist. 
 
-Und wollen Sie das? 
+Und wollen Sie das? Es ist verständlich, wenn Sie Bedenken hinsichtlich der Wirksamkeit einer Traumatherapie haben, insbesondere wenn Sie bereits viel Therapieerfahrung ohne echten Wandel durchlaufen haben. Zum einen hängt Therapieerfolg vom Fachwissen über Traumafolgestörungen ab und zum anderen ganz entscheiden von einer tragfähigen Beziehung zwischen TherapeutIn und KlientIn. Wie man gerade diese Beziehung tragfähig gestaltet, ist Teil der enaktiven Traumatherapie nach Ellert Nijenhuis. Geben Sie daher noch nicht auf, egal, was vorher war.   
 
-Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. In einer Traumatherapie können Sie sich die passende Unterstützung und Begleitung für Traumabewältigung holen, die Ihnen wirklich dient. **Vergangenheitsbewältigung ist möglich**.  
+Auch ich wünschte mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. In einer Traumatherapie können Sie sich die passende Unterstützung und Begleitung für Traumabewältigung holen, die Ihnen wirklich dient. **Vergangenheitsbewältigung ist möglich**.  
 
 Stellen Sie sich vor, wie ein Vogel, der nach Jahren im Käfig endlich seine Flügel ausbreitet und in die Freiheit fliegt. Mit einer Traumatherapie können wir Ihre inneren Flügel stärken und Ihnen helfen, das Gefühl von innerem Gleichgewicht, Selbstbestimmtheit, **Freiheit und Leichtigkeit** wiederzuerlangen.
 
