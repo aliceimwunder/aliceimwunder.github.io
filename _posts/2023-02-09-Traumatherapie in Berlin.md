@@ -5,7 +5,7 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
 
 <header>
-	<h3>Mut zur Veränderung schon. Aber da sieht es gerade so aus?</h3>
+	<h3>Mut zur Veränderung hätten Sie schon. Nur sieht es bei Ihnen eher so aus?</h3>
 	</header><p></p>
  
 * Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können.
