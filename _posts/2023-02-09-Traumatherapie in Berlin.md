@@ -5,35 +5,36 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
 
 <header>
-	<h3>Mut zur Veränderung haben Sie? Nur sieht es bei Ihnen eher so aus?</h3>
+	<h3>Mut zur Veränderung</h3>
 	</header><p></p>
+Ja, aber...
+* Tagesablauf: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an.
+* Ihr Sofa ist fast überflüssig, weil Sie nicht die **Ruhe zum Füße** hochlegen haben. Entspannung und Genuss scheinen Ihnen fremd zu sein.
+* Es ist besser, wenig freie Zeit zu haben. Denn sonst flüchten Sie sich zu viel in Beschäftigungen wie Netflix, Romane oder Alkohol, obwohl Sie wissen, dass es Ihnen nicht guttut. 
+* Verhasste Handlungsmuster, Gedanken und belastende Gefühle tauchen immer wieder auf, als wären sie ferngesteuert.
+* Trotz zahlreicher ärztlicher Untersuchungen leiden Sie weiterhin unter körperlichen Symptomen, für die keine klare Ursache gefunden werden kann. Die herkömmlichen Behandlungsansätze bringen kaum oder nur kurzfristige Erleichterung. 
+* Es fällt Ihnen schwer sich vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als **austherapiert.**
+* Sicher ist sicher: daher halten Sie lieber Abstand zu anderen Menschen. Vielleicht ziehen Sie sogar magisch **Beziehungen** an, die Ihnen nicht gut tun.    
+
+Auch wenn keine dieser Beschreibungen exakt auf Sie zutrifft, müssen Sie bei mir in kein vorgefertigtes Raster passen. Ich verfolge einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse und Erfahrungen zugeschnitten ist.
  
-* Zerschlagen aufstehen. Den Tag überleben. Ins Bett gehen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können.
-* Ihr Sofa ist schon fast ein überflüssiges Möbelstück, weil Sie es nicht genießen können. Sie kommen nie wirklich zur Ruhe. Genuss, Freude? Das ist Ihnen abhandengekommen.
-* Abends und an freien Tagen versinken Sie in eine Beschäftigung (Netflix, Romane, Alkohol, Essen, Social Media Scolling, Computerspiele, Pornos…). Sie wissen, dass es Ihnen - zumindest in dieser Menge - nicht gut tut. Aber dieser Ersatz ist das, was Sie am Leben erhält.
-* Verhasste Handlungsmuster, Gedankenkarusselle oder Gefühle, die Sie schon lange kennen und längst überwinden wollten, melden sich zu den ungünstigsten Zeitpunkten wieder und laufen ( (fast) wie ferngesteuert ab. 
-* Verzweifelt haben Sie schon viel medizischen Rat eingeholt, weil Sie unter handfesten, körperlichen Symptomen leiden. Aber die Untersuchungen konnten keine Hilfe bringen: keine körperliche Ursache feststellbar oder die üblichen Therapieangebote bringen kaum oder nur kurzfristig Erleichterung.   
-* Sie können sich kaum vorstellen, wie ein gutes Leben aussähe? Medikamente für psychische Symptome und klassische Therapieangebote haben Ihre Hoffnungen bisher nicht erfüllt. Vielleicht gelten Sie sogar als austherapiert.
-
-Auch wenn keine dieser Beschreibungen auf Sie exakt zutreffen. Bei mir müssen Sie in **kein vorgefertigtes Raster** für Traumafolgestörungen passen. Nicht alle von Trauma Betroffenen entwickeln eine klassische Posttraumatische Belastungsstörung und leiden trotzdem erheblich unter den Folgen. Daher verfolge ich einen individuellen Ansatz, der auf Ihre spezifischen Bedürfnisse und Erfahrungen zugeschnitten ist. 
-
-Sie sind fest entschlossen? Buchen Sie sich ein unverbindliches kostenfreies Vorgespräch auf zoom.
+Sie sind fest entschlossen? Buchen Sie sich ein unverbindliches kostenfreies Vorgespräch.
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
 
 
 ### Sie sind auch nicht alleine mit diesem Thema
-**Schocktraumata** können jeden treffen. Das Leben wartet manchmal mit schockierenden Ereignissen auf und für die seelische Folgen gibt es Heilansätze. Körperschäden würde man auch nicht unbehandelt lassen. In Deutschland sind allerdings Bindungs- und **Komplextraumata** häufiger anzutreffen als Schocktraumata. Viele Menschen tragen Wunden aus ihrer Kindheit, die möglicherweise verdrängt wurden. 
+Schocktraumata können jeden von uns treffen. Das Leben hält manchmal schockierende Ereignisse bereit, deren **seelische Folgen** nicht ignoriert werden sollten. Wie bei körperlichen Verletzungen ist es wichtig, auch die seelischen Wunden zu behandeln. In Deutschland ist früher Bindungs- und Vertrauensverlust häufiger anzutreffen. Viele Menschen tragen alte Wunden aus ihrer Kindheit, die möglicherweise lange Zeit verdrängt wurden.
 
-Oft halten Betroffene eine Fassade aufrecht, dass alles in Ordnung sei, oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen können. Sie sind nicht allein mit diesen Herausforderungen und dürfen sich selbst vertrauen – Sie sind der **Experte in Ihrem eigenen** Leben.
+Oft halten Betroffene eine Fassade aufrecht oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen können. Daher: Sie sind nicht allein mit diesen Herausforderungen und dürfen sich selbst vertrauen – denn Sie sind der **Experte in Ihrem eigenen Leben**.
 
-Ein **Beispiel**: In einer Studie des Kriminologischen Forschungsinstituts Niedersachsen von 1997 berichteten knapp 75% der Befragten im Alter von 16 bis 59 Jahren von physischer Gewalt durch ihre Eltern. (Seelische oder sexualisierte Gewalt ist hier nicht berücksichtigt). Das hinterlässt Furchen in der Seele, die sich nicht von alleine auflösen. Zugleich kann ich aus eigener Erfahrung sagen: die Furchen lassen sich glätten, egal wie lange ihre Entstehung her ist.  
+Ein Beispiel: In einer kriminologischen Studie von 1997 berichteten knapp 75% der erwachsenen Befragten von physischer Gewalt durch ihre Eltern. Diese Erfahrungen hinterlassen Spuren in der Seele, die sich nicht von selbst auflösen. Doch aus eigener Erfahrung kann ich sagen: Diese Spuren können geglättet werden, unabhängig davon, wie lange sie zurückliegen.
 
 ### Licht am Ende des Tunnels: Eine befreiende Zukunft nach der Traumatherapie
-Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des Friedens und der Sicherheit, die vorher Ihr Bewusstsein nicht erreichen konnten. Es ist wie ein sanfter Regen nach einem langen Sturm. 
+Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des **Friedens** und der Sicherheit, die vorher Ihr Bewusstsein nicht erreichen konnten. Es ist wie ein sanfter Regen nach einem langen Sturm. 
 
-Die Luft fühlt sich frisch an, und die Sonne beginnt wieder durch die Wolken zu brechen. Sie erkennen die **unbändige Kraft** in sich, die Sie überleben hat lassen und, die Sie jetzt frei nutzen können, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen.
+Die Luft fühlt sich frisch an, und die Sonne beginnt wieder durch die Wolken zu brechen. Sie erkennen die **Kraft** in sich, die Sie überleben hat lassen und, die Sie jetzt frei nutzen können, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen.
 
 <br/>
 <img src="/assets/2023-02-09-Wetter klart auf.jpg" alt="" style="max-width:100%"/>
@@ -53,9 +54,11 @@ Ziel einer guten Traumatherapie ist es, dass Sie Ihre Gefühle wahrnehmen, regul
 - Sie können wöchtentlich oder alle zwei Wochen Therapie wahrnehmen, je nachdem, was zu Ihrem Alltag passt. (Sie haben auch die Möglichkeit, bei mir die Wartezeit auf einen kassenfinanzierten Therapieplatz zu überbrücken.)
 
 ### Für wen ist mein Angebot geeignet?
-Ich unterstütze Menschen, die harte Zeiten überstanden haben und unter den Folgen seelisch leiden. Da ist noch der Funke des Willens zur Veränderung. Sie sind daher bereit, sich mit mir auf eine gemeinsame Reise zu begeben. Auch wenn es richtig schlechte Tage geben mag, die Sehnsucht in Ihnen nach seelischer Ausgeglichenheit, innerem Frieden und einem glücklicheren Leben ist nicht erloschen. Eine solche Zukunft muss kein vages Traumgebilde bleiben, wenn Sie in sich und Ihre Zukunft investieren. 
+Ich unterstütze Menschen, die harte Zeiten überstanden haben. Trotz allem lodert in Ihnen der Funke des Willens zur Veränderung. Sie sind bereit, sich mit jemandem auf eine gemeinsame Reise zu begeben. 
 
-Ob Sie nur für ein paar Monate mit mir gemeinsam reisen wollen, um ein Schocktrauma aus den letzten Jahren hinter sich zu lassen? Ob Sie nach Bindungs- und Entwicklungstraumata sich neu ausrichten wollen? Oder belastende Muster nicht mehr an Ihre Kinder weitergeben wollen? Bei mir sind Sie willkommen. Sie müssen sich auch nicht konkret erinnern können. Unser psychisches System kann uns mit Verdrängung segnen. Manchmal liegen die Erfahrungen zu weit in der Kindheit, als dass man noch konkret erinnern kann.   
+Auch wenn es richtig schlechte Tage geben mag, ist die Sehnsucht nach **seelischer Ausgeglichenheit**, innerem Frieden und einem glücklicheren Leben in Ihnen nicht erloschen. Eine solche Zukunft muss kein vages Traumgebilde bleiben, wenn Sie in sich und Ihre Zukunft investieren.
+
+Ob für ein paar Monate, um ein Schocktrauma zu bewältigen, ob Sie Vertrauen ins Leben nach frühen Kindheitserfahrungen neu aufbauen oder alte Muster nicht mehr an Ihre Kinder weitergeben wollen – bei mir sind Sie willkommen. Sie müssen sich auch nicht konkret erinnern können. Manchmal liegen die Erfahrungen zu weit in der Kindheit, als dass man sich noch konkret erinnern kann. Unser psychisches System kann uns mit Verdrängung **segnen**, was kein Hindernis ist. 
 
 ### Keine Katze im Sack
 
@@ -82,13 +85,13 @@ Oder Sie wenden sich direkt an mich:
 ### Ein paar Worte über mich
 Als ich 2014 die Prüfung zur **Heilpraktikerin für Psychotherapie** ablegte, stieß ich erstmals auf die Möglichkeit einer Traumatherapie-Ausbildung. Mein erster Gedanke war damals, dass ich genug mit meiner eigenen Vergangenheit zu tun hatte. Nein danke.
 
-Ein Selbsterfahrungswochenende sollte meine Einstellung ändern. Die Leiterin führte die Gruppe zwar sicher durch Meditationen und Atemübungen Doch wechselte sie zu einer Übung, in der wir unsere bis dahin ungesagten Worte in einem einzigen Ton ausdrücken sollten. Die Wirkung konnte die Leiterin nicht mehr abfangen: es holte eine ungeahnte Welle von seelischem Schmerz in den Teilnehmerinnen hoch.
+Ein Meditationswochenende sollte meine Einstellung ändern. Die Leiterin führte die Gruppe zwar sicher durch Meditationen und Atemübungen Doch dann wechselte sie zu einer Übung, in der wir unsere bis dahin ungesagten Worte in einem einzigen Ton ausdrücken sollten. Die Wirkung konnte die Leiterin nicht mehr abfangen: es holte eine ungeahnte Welle von seelischem Schmerz in den Teilnehmerinnen hoch.
 
-Inmitten dieses Chaos half ich einer hemmungslos schluchzenden Frau sich zu beruhigen. Für mich überraschend fragte sie anschließend etwas, das mich **tief berührte**: „Warum kannst Du in dieser Situation so ruhig bleiben?“ 
+Inmitten dieses Chaos half ich einer schluchzenden Frau sich zu beruhigen. Sie stellte mir eine einfache Frage, die mich **tief berührte**: „Warum kannst Du in dieser Situation so ruhig bleiben?“ 
 
-Plötzlich sah ich mich mit ihren Augen: das Chaos um uns und meine empathische Ruhe. Ich konnte das Leid im Raum deutlich spüren, ohne darin zu versinken. Diese Erfahrung war der **Startpunkt** für meine Reise zur Traumatherapie.
+Plötzlich sah ich mich mit ihren Augen: das emotionale Chaos um uns und meine empathische Ruhe. Ich konnte das Leid im Raum deutlich spüren, ohne darin zu versinken. Diese Erfahrung war der **Startpunkt** für meine Reise zur Traumatherapie.
 
-Heute, in meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube daran, dass jeder Mensch **individuelle Werkzeuge** benötigt, um Heilung zu finden, zumal Schocktraumata aus der näheren Vergangenheit ein anderes Paar Schuhe ist als Verlust von Bindung im Säuglingsalter. Zusammen suchen wir nach dem, was für Sie den Wandel bringt, den Sie sich wünschen. 
+In meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube daran, dass jeder Mensch **individuelle Werkzeuge** benötigt, um Heilung zu finden, zumal Schocktraumata aus der näheren Vergangenheit ein anderes Paar Schuhe ist als Verlust von Bindung im Säuglingsalter. Zusammen suchen wir nach dem, was für Sie den Wandel bringt, den Sie sich wünschen. 
 
 **Meine Ausbildung basiert auf:** 
 - psychodynamisch-imaginativer Traumatherapie nach Luise Reddemann.
