@@ -119,6 +119,6 @@ Oder Sie wenden sich direkt an mich:
 ----
 *Eine Buchung bei mir ist eine Investition in Sie selbst. Gesetzliche Krankenkassen und Beihilfen übernehmen keine Kosten für Heilpraktiker für Psychotherapie. Private (Zusatz)Kassen bieten möglicherweise Zuschüsse an, wenn Heilpraktiker für Psychotherapie ausdrücklich in ihrem Leistungskatalog aufgeführt sind. Trotzdem lohnt es sich, meine Dienste in Anspruch zu nehmen, um Ihre persönliche Entwicklung und Heilung zu unterstützen.
 
-Vergangenheitsbewältigung mag mittlerweile offen diskutiert werden. Ein spezifisch traumatherapeutischer Ansatz können Sie jedoch noch nicht bei allen kassenzugelassenen PsychotherapeutInnenen erwarten. Wenn Sie nach einem von einer Kasse übernommenen Therapieplatz suchen, so würde ich Ihnen ans Herz legen, sich zu erkundigen, ob der/die anvisierte PsychotherapeutIn traumaspezifische Behandlungsansätze in die ambulante Therapie einfließen lässt.
+Vergangenheitsbewältigung mag mittlerweile offen diskutiert werden. Einen spezifisch traumatherapeutischen Ansatz können Sie jedoch noch nicht bei allen kassenzugelassenen PsychotherapeutInnenen erwarten. Wenn Sie nach einem von einer Kasse übernommenen Therapieplatz suchen, so würde ich Ihnen ans Herz legen, sich zu erkundigen, ob der,die anvisierte PsychotherapeutIn traumaspezifische Behandlungsansätze in die ambulante Therapie berücksichtigt.
 
 
