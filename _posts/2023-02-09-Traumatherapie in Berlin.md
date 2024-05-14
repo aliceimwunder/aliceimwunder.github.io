@@ -103,7 +103,7 @@ Und wollen Sie das?
 
 Auch ich wünsche mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. In einer Traumatherapie können Sie sich die passende Unterstützung und Begleitung für Traumabewältigung holen, die Ihnen wirklich dient. **Vergangenheitsbewältigung ist möglich**.  
 
-Stellen Sie sich vor, wie ein Vogel, der nach Jahren im Käfig endlich seine Flügel ausbreitet und in die Freiheit fliegt. Mit einer Traumatherapie können wir Ihre inneren Flügel stärken und Ihnen helfen, das Gefühl von **Freiheit und Leichtigkeit** wiederzuerlangen.
+Stellen Sie sich vor, wie ein Vogel, der nach Jahren im Käfig endlich seine Flügel ausbreitet und in die Freiheit fliegt. Mit einer Traumatherapie können wir Ihre inneren Flügel stärken und Ihnen helfen, das Gefühl von innerem Gleichgewicht, Selbstbestimmtheit, **Freiheit und Leichtigkeit** wiederzuerlangen.
 
 Buchen Sie für sich Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zu einem besseren Leben unterstützen kann.
   
