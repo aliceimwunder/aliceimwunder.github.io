@@ -24,7 +24,7 @@ Sie sind fest entschlossen? Buchen Sie sich ein unverbindliches kostenfreies Vor
 
 
 ### Sie sind auch nicht alleine mit diesem Thema
-Schocktraumata können jeden treffen. Das Leben wartet manchmal mit schockierenden Ereignissen auf und das ist behandelbar. In Deutschland sind allerdings Bindungs- und Komplextraumata häufiger anzutreffen als Schocktraumata. Viele Menschen tragen Wunden aus ihrer Kindheit, die möglicherweise verdrängt wurden. 
+**Schocktraumata** können jeden treffen. Das Leben wartet manchmal mit schockierenden Ereignissen auf und für die seelische Folgen gibt es Heilansätze. Körperschäden würde man auch nicht unbehandelt lassen. In Deutschland sind allerdings Bindungs- und **Komplextraumata** häufiger anzutreffen als Schocktraumata. Viele Menschen tragen Wunden aus ihrer Kindheit, die möglicherweise verdrängt wurden. 
 
 Oft halten Betroffene eine Fassade aufrecht, dass alles in Ordnung sei, oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen können. Sie sind nicht allein mit diesen Herausforderungen und dürfen sich selbst vertrauen – Sie sind der **Experte in Ihrem eigenen** Leben.
 
