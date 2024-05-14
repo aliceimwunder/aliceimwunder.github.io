@@ -4,9 +4,7 @@ layout: default
 <br/>
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
 
-<header>
-	<h3>Mut zur Veränderung</h3>
-	</header><p></p>
+<p></p>
 
 Ja, aber...
 * Tagesablauf: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an.
