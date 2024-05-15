@@ -14,7 +14,7 @@ Ja, aber...
 
 Zur Orientierung habe ich nur einige Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt. Typisch wären z.B. auch Depression oder psychosomatische Schmerzen. Selbst das Wort "Trauma" ist schon verwirrend, weil man schnell an Katastrophen oder Krieg denkt. Davon gehen auch viele PsychiaterInnen aus.  
 
-Dabei ist nur interessant, ob Ihr psychisches System überlastende Erfahrungen nachträglich verarbeiten konnte. Wir sind eine Roboter, die man über einen Kamm scheren könnte. 
+Dabei ist nur interessant, ob Ihr psychisches System überlastende Erfahrungen nachträglich verarbeiten konnte. Wir sind keine Roboter, die man über einen Kamm scheren könnte. 
 
 Manche Menschen sind überdurchschnittlich belastbar und können grauenhafte Erfahrungen verarbeiten, andere wurden "nur" in der Schule gemobbt, und haben später beißende Kopfschmerzen bei jeder Teambesprechung. Dann zweifeln sie an sich selbst, weil keine medizinische Ursache zu finden ist. 
 
