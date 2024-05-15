@@ -7,23 +7,26 @@ layout: default
 <p></p>
 
 Ja, aber...
-* Ihr Tagesablauf: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an.
+* Ihr Tagesablauf: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an. 
 * Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße hochlegen** finden. Entspannung und Genuss scheinen Ihnen fremd zu sein.
-* Es ist besser, wenig freie Zeit zu haben. Denn sonst flüchten Sie sich zu viel in Beschäftigungen wie Netflix, Romane oder Alkohol, obwohl Sie wissen, dass es Ihnen nicht guttut. 
+* Es ist besser, wenig freie Zeit zu haben. Denn sonst flüchten Sie sich zu viel in Beschäftigungen wie Netflix, Romane oder Alkohol. 
 * Verhasste Handlungsmuster, Gedanken und belastende Gefühle tauchen immer wieder auf, als wären sie ferngesteuert.
-* Trotz zahlreicher ärztlicher Untersuchungen leiden Sie weiterhin unter körperlichen Symptomen, für die keine klare Ursache gefunden werden kann. Die herkömmlichen Behandlungsansätze bringen kaum oder nur kurzfristige Erleichterung. 
-* Sicher ist sicher: Sie halten lieber Abstand zu anderen Menschen. Wer will schon toxische **Beziehungen** anziehen.     
-* Es fällt Ihnen schwer sich vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als **austherapiert.**
+* Trotz ärztlicher Untersuchungen leiden Sie weiterhin unter körperlichen Symptomen, für die keine klare Ursache gefunden wurde. Die herkömmlichen Behandlungsansätze bringen kaum oder nur kurzfristige Erleichterung. 
+* Die Angst vor Mobbing, sozialer Abwertung oder toxischen Beziehungen lastet wie ein Damokles-Schwert auf Ihnen. Das lässt Sie sich sicherer fühlen, aber Einsamkeit ist der Preis.  
+* Es fällt Ihnen schwer sich angesichts Ihrer Erfahrungen vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als austherapiert.
 
-Auch wenn keine dieser Beschreibungen exakt auf Sie zutrifft, müssen Sie bei mir in kein vorgefertigtes Raster passen. Ich verfolge einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse und Erfahrungen zugeschnitten ist.
- 
-Sie sind fest entschlossen? Buchen Sie sich ein unverbindliches kostenfreies Vorgespräch.
+Auswirkungen von Belastungserfahrungen können vielfältig sein. Bei mir müssen Sie nicht in ein vorgefertigtes Raster passen. Ich verfolge einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten ist.
+
+Ich unterstütze Menschen, die harte Zeiten erlebt haben und unter seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer Ausgeglichenheit, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Eine solche Zukunft kann Realität werden, wenn Sie den Willen zur Veränderung in sich spüren. Sie müssen sich nicht an jedes Detail erinnern können, da manche Erfahrungen zu weit zurückliegen.
+
+Gerne können Sie mich in unverbindliches kostenfreies Vorgespräch kennenlernen.
+
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
 
 
-### Sie sind auch nicht alleine mit diesem Thema
+### Sie sind nicht alleine mit diesem Thema
 Schocktraumata können jeden von uns treffen. Das Leben hält manchmal schockierende Ereignisse bereit, deren **seelische Folgen** nicht ignoriert werden sollten. Wie bei körperlichen Verletzungen ist es wichtig, auch die seelischen Wunden zu behandeln. 
 
 In Deutschland ist früher Bindungs- und Vertrauensverlust häufiger anzutreffen. Viele Menschen tragen alte Wunden aus ihrer Kindheit. Oft halten Betroffene eine Fassade aufrecht oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen. Nur als ein Beispiel unter vielen: In einer kriminologischen Studie von 1997 berichteten knapp 75% der erwachsenen Befragten von physischer Gewalt durch ihre Eltern. 
@@ -51,13 +54,6 @@ Ziel einer guten Traumatherapie ist es, dass Sie Ihre Gefühle wahrnehmen, regul
 - die Möglichkeit, sofort beginnen zu können.
 - Sitzungen auch auf Englisch möglich.
 - Sie können wöchtentlich oder alle zwei Wochen Therapie wahrnehmen, je nachdem, was zu Ihrem Alltag passt. (Sie haben auch die Möglichkeit, bei mir die Wartezeit auf einen kassenfinanzierten Therapieplatz zu überbrücken.)
-
-### Für wen ist mein Angebot geeignet?
-Ich unterstütze Menschen, die harte Zeiten überstanden haben. Trotz allem lodert in Ihnen der Funke des Willens zur Veränderung. Sie sind bereit, sich mit jemandem auf eine gemeinsame Reise zu begeben. 
-
-Auch wenn es richtig schlechte Tage geben mag, ist die Sehnsucht nach **seelischer Ausgeglichenheit**, innerem Frieden und einem glücklicheren Leben in Ihnen nicht erloschen. Eine solche Zukunft muss kein vages Traumgebilde bleiben, wenn Sie in sich und Ihre Zukunft investieren.
-
-Ob für ein paar Monate, um ein Schocktrauma zu bewältigen, ob Sie Vertrauen ins Leben nach frühen Kindheitserfahrungen neu aufbauen oder alte Muster nicht mehr an Ihre Kinder weitergeben wollen – bei mir sind Sie willkommen. Sie müssen sich auch nicht konkret erinnern können. Manchmal liegen die Erfahrungen zu weit in der Kindheit, als dass man sich noch konkret erinnern kann. Unser psychisches System kann uns mit Verdrängung **segnen**, was kein Hindernis ist. 
 
 ### Keine Katze im Sack
 
