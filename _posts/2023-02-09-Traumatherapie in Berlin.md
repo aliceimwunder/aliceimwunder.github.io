@@ -7,17 +7,19 @@ layout: default
 <p></p>
 
 Ja, aber...
-* Ihr Tagesablauf: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an. 
-* Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße hochlegen** finden. Entspannung und Genuss scheinen Ihnen fremd zu sein.
-* Es ist besser, wenig freie Zeit zu haben. Denn sonst flüchten Sie sich zu viel in Beschäftigungen wie Netflix, Romane oder Alkohol. 
+* Ihr Tagesablauf sieht ähnelt eher: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an. 
+* Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße hochlegen** finden. Vieles stresst Sie. Entspannung und Genuss scheinen Ihnen fremd zu sein.
 * Verhasste Handlungsmuster, Gedanken und belastende Gefühle tauchen immer wieder auf, als wären sie ferngesteuert.
-* Trotz ärztlicher Untersuchungen leiden Sie weiterhin unter körperlichen Symptomen, für die keine klare Ursache gefunden wurde. Die herkömmlichen Behandlungsansätze bringen kaum oder nur kurzfristige Erleichterung. 
-* Die Angst vor Mobbing, sozialer Abwertung oder toxischen Beziehungen lastet wie ein Damokles-Schwert auf Ihnen. Das lässt Sie sich sicherer fühlen, aber Einsamkeit ist der Preis.  
-* Es fällt Ihnen schwer sich angesichts Ihrer Erfahrungen vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als austherapiert.
+* Es fällt Ihnen schwer, sich angesichts Ihrer Erfahrungen vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als austherapiert.
 
-Auswirkungen von Belastungserfahrungen können vielfältig sein. Bei mir müssen Sie nicht in ein vorgefertigtes Raster passen. Ich verfolge einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten ist.
+### Sind Sie mit Ihren Herausforderungen hier richtig?
+Zur Orientierung habe ich nur einige Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt. Typisch wären z.B. auch Depression oder psychosomatische Schmerzen. Selbst das Wort "Trauma" ist schon verwirrend, weil man schnell an Katastrophen oder Krieg denkt. Davon gehen auche PsychiaterInnen aus.  
 
-Ich unterstütze Menschen, die harte Zeiten erlebt haben und unter seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer Ausgeglichenheit, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Eine solche Zukunft kann Realität werden, wenn Sie den Willen zur Veränderung in sich spüren. Sie müssen sich nicht an jedes Detail erinnern können, da manche Erfahrungen zu weit zurückliegen.
+Dabei ist nur interessant, ob Ihr psychisches System überlastende Erfahrungen im Nachhinein verarbeiten konnte. Unsere körperlichen wie mentalen Systeme sind unterschiedlich. Manche Menschen sind überdurchschnittlich belastbar und können grauenhafte Erfahrungen verarbeiten, andere wurden "nur" in der Schule gemobbt, und haben später beißende Kopfschmerzen bei jeder Teambesprechung und sind ganz verzweifelt, weil keine medizinische Ursache zu finden ist. 
+
+Bei mir müssen Sie nicht in ein vorgefertigtes Raster passen. Ich biete Ihnen einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten wird. 
+
+Ich unterstütze Menschen, die harte Zeiten erlebt haben und unter seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Eine solche Zukunft kann Realität werden, sobald Sie den Willen zur Veränderung in sich spüren. Sie müssen sich übrigens nicht an jedes Detail erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
 
 Gerne können Sie mich in unverbindliches kostenfreies Vorgespräch kennenlernen.
 
