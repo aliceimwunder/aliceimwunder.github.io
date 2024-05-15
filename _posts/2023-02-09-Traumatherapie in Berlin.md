@@ -14,12 +14,12 @@ Ja, aber...
 
 Zur Orientierung habe ich nur einige Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt. Typisch wären z.B. auch Depression oder psychosomatische Schmerzen. Selbst das Wort "Trauma" ist schon verwirrend, weil man schnell an Katastrophen oder Krieg denkt. Davon gehen auche PsychiaterInnen aus.  
 
-Dabei ist nur interessant, ob Ihr psychisches System überlastende Erfahrungen im Nachhinein verarbeiten konnte. Unsere körperlichen wie mentalen Systeme sind unterschiedlich. Manche Menschen sind überdurchschnittlich belastbar und können grauenhafte Erfahrungen verarbeiten, andere wurden "nur" in der Schule gemobbt, und haben später beißende Kopfschmerzen bei jeder Teambesprechung und sind ganz verzweifelt, weil keine medizinische Ursache zu finden ist. 
+Dabei ist nur interessant, ob Ihr psychisches System überlastende Erfahrungen nachträglich verarbeiten konnte. Wir sind unterschiedlich. Manche Menschen sind überdurchschnittlich belastbar und können grauenhafte Erfahrungen verarbeiten, andere wurden "nur" in der Schule gemobbt, und haben später beißende Kopfschmerzen bei jeder Teambesprechung. Dann zweifeln sie an sich selbst, weil keine medizinische Ursache zu finden ist. 
 
 ### Sind Sie mit Ihren Herausforderungen hier richtig?
-Bei mir müssen Sie nicht in ein vorgefertigtes Raster passen. Ich biete Ihnen einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten wird. 
+Ich unterstütze Menschen, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Eine solche Zukunft kann Realität werden. Sie müssen sich übrigens nicht an jedes Detail erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
 
-Ich unterstütze Menschen, die harte Zeiten erlebt haben und unter seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Eine solche Zukunft kann Realität werden. Sie müssen sich übrigens nicht an jedes Detail erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
+Bei mir müssen Sie nicht in ein vorgefertigtes Raster eines psychiatrischen Fragebogens passen. Ich biete Ihnen einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten wird. 
 
 Gerne können Sie mich in unverbindliches kostenfreies Vorgespräch kennenlernen.
 
@@ -28,34 +28,34 @@ Gerne können Sie mich in unverbindliches kostenfreies Vorgespräch kennenlernen
 </span>
 
 
-### Sie sind nicht alleine mit diesem Thema
+### Sie sind übrigens nicht alleine mit diesem Thema
 Schocktraumata können jeden von uns treffen. Das Leben hält manchmal schockierende Ereignisse bereit, deren **seelische Folgen** nicht ignoriert werden sollten. Wie bei körperlichen Verletzungen ist es wichtig, auch die seelischen Wunden zu behandeln. 
 
-In Deutschland ist früher Bindungs- und Vertrauensverlust häufiger anzutreffen. Viele Menschen tragen alte Wunden aus ihrer Kindheit. Oft halten Betroffene eine Fassade aufrecht oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen. Nur als ein Beispiel unter vielen: In einer kriminologischen Studie von 1997 berichteten knapp 75% der erwachsenen Befragten von physischer Gewalt durch ihre Eltern. 
+In Deutschland ist ein früher Bindungs- und Vertrauensverlust häufiger anzutreffen. Viele Menschen tragen alte Wunden aus ihrer Kindheit. Oft halten Betroffene eine Fassade aufrecht oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen. Nur als ein Beispiel unter vielen: In einer kriminologischen Studie von 1997 berichteten knapp 75% der erwachsenen Befragten von physischer Gewalt durch ihre Eltern. 
 
-Diese Erfahrungen hinterlassen Spuren in der Seele, die sich nicht von selbst auflösen. Doch solche Spuren können geglättet werden, unabhängig davon, wie lange sie zurückliegen.  Vertrauen Sie sich. Denn Sie sind der **Experte in Ihrem eigenen Leben**.
+Diese Erfahrungen können Spuren in der Seele hinterlassen, die sich nicht von selbst auflösen. Doch solche Spuren können geglättet werden, unabhängig davon, wie lange sie zurückliegen.  Vertrauen Sie sich. Denn Sie sind der **Experte in Ihrem eigenen Leben**.
 
 ### Licht am Ende des Tunnels: Eine befreiende Zukunft nach der Traumatherapie
-Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des **Friedens** und der Sicherheit, die vorher Ihr Bewusstsein nicht erreichen konnten. Es ist wie ein sanfter Regen nach einem langen Sturm. 
+Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des **Friedens** und der Sicherheit, die vorher Ihre Vorstellung nicht erreichen konnten. Es ist wie ein sanfter Regen nach einem langen Sturm. 
 
-Die Luft fühlt sich frisch an, und die Sonne beginnt wieder durch die Wolken zu brechen. Sie erkennen die **Kraft** in sich, die Sie überleben hat lassen und, die Sie jetzt frei nutzen können, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen.
+Dann kann sich die Luft wieder frisch anfühlen, und die Sonne beginnt wieder durch die Wolken zu brechen. Mein Bestreben ist, dass Sie Ihre **unbändige Kraft** in sich spüren können. Sie ist da. Denn die hat Sie überleben lassen. Diese Kraft mag jetzt noch in Ihnen wie eingefroren sein. Doch schon bald können Sie Ihre Kraft freier nutzen, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen.
 
 <br/>
 <img src="/assets/2023-02-09-Wetter klart auf.jpg" alt="" style="max-width:100%"/>
 
-Ziel einer guten Traumatherapie ist es, dass Sie Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen können. Selbstkritik, Scham- und Schuldgefühle rücken in weite Ferne. Sie eröffnen für sich neue Verhaltensweisen und spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
+Ziel einer Traumatherapie ist es, dass Sie Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen können. Selbstkritik, Scham- und Schuldgefühle rücken in weite Ferne. Sie eröffnen für sich neue Verhaltensweisen und spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
 
 
 ### Dazu biete ich Ihnen in meiner Praxis 
 - Evidenzbasierte und ganzheitliche Lösungswege.
-- Mit diesen Lösungswegen erschaffen Sie sich den Wandel zu einem glückchlichen Leben, frei von Angst, Vertrauensverlust, alten Mustern und seelischen Schmerzen.  
+- Mit diesen **Lösungswegen** erschaffen Sie sich den Wandel zu einem glückchlichen Leben, frei von Angst, Vertrauensverlust, alten Mustern und seelischen Schmerzen.  
 - mehrjährige Erfahrung. 
 - einen sicheren Raum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez) - wahlweise auch östlich von Berlin in Briesen/Mark.
 - einfühlsame und vertrauensvolle Begleitung für Sie. 
-- kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur SelbstzahlerInnen*). 
+- kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur **SelbstzahlerInnen***). 
 - die Möglichkeit, sofort beginnen zu können.
 - Sitzungen auch auf Englisch möglich.
-- Sie können wöchtentlich oder alle zwei Wochen Therapie wahrnehmen, je nachdem, was zu Ihrem Alltag passt. (Sie haben auch die Möglichkeit, bei mir die Wartezeit auf einen kassenfinanzierten Therapieplatz zu überbrücken.)
+- Sie können wöchentlich oder alle zwei Wochen Sitzungen wahrnehmen, je nachdem, was Sie gerade brauchen. (Sie haben auch die Möglichkeit, bei mir die Wartezeit auf einen kassenfinanzierten Therapieplatz zu überbrücken.)
 
 ### Keine Katze im Sack
 
@@ -120,7 +120,6 @@ Buchen Sie für sich Ihr unverbindliches Kennenlerngespräch und lassen Sie uns 
 Oder Sie wenden sich direkt an mich: 
 - **Email**: info@alicewindolf.de oder
 - **Tel**: 0160 704 7080
-
 
 ----
 *Eine Buchung bei mir ist eine Investition in Sie selbst. Gesetzliche Krankenkassen und Beihilfen übernehmen keine Kosten für Heilpraktiker für Psychotherapie. Private (Zusatz)Kassen bieten möglicherweise Zuschüsse an, wenn Heilpraktiker für Psychotherapie ausdrücklich in ihrem Leistungskatalog aufgeführt sind. Trotzdem lohnt es sich, meine Dienste in Anspruch zu nehmen, um Ihre persönliche Entwicklung und Heilung zu unterstützen.
