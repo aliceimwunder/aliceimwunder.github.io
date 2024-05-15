@@ -14,7 +14,9 @@ Ja, aber...
 
 Zur Orientierung habe ich nur einige Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt. Typisch wären z.B. auch Depression oder psychosomatische Schmerzen. Selbst das Wort "Trauma" ist schon verwirrend, weil man schnell an Katastrophen oder Krieg denkt. Davon gehen auche PsychiaterInnen aus.  
 
-Dabei ist nur interessant, ob Ihr psychisches System überlastende Erfahrungen nachträglich verarbeiten konnte. Wir sind unterschiedlich. Manche Menschen sind überdurchschnittlich belastbar und können grauenhafte Erfahrungen verarbeiten, andere wurden "nur" in der Schule gemobbt, und haben später beißende Kopfschmerzen bei jeder Teambesprechung. Dann zweifeln sie an sich selbst, weil keine medizinische Ursache zu finden ist. 
+Dabei ist nur interessant, ob Ihr psychisches System überlastende Erfahrungen nachträglich verarbeiten konnte. Wir sind unterschiedlich. 
+
+Manche Menschen sind überdurchschnittlich belastbar und können grauenhafte Erfahrungen verarbeiten, andere wurden "nur" in der Schule gemobbt, und haben später beißende Kopfschmerzen bei jeder Teambesprechung. Dann zweifeln sie an sich selbst, weil keine medizinische Ursache zu finden ist. 
 
 ### Sind Sie mit Ihren Herausforderungen hier richtig?
 Ich unterstütze Menschen, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Eine solche Zukunft kann Realität werden. Sie müssen sich übrigens nicht an jedes Detail erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
