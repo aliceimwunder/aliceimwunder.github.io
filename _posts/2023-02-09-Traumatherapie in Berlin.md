@@ -7,7 +7,7 @@ layout: default
 <p></p>
 
 Ja, aber...
-* Ihr Tagesablauf sieht ähnelt eher: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an. 
+* Ihr Tagesablauf ähnelt eher: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an. 
 * Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße hochlegen** finden. Vieles stresst Sie. Entspannung und Genuss scheinen Ihnen fremd zu sein.
 * Verhasste Handlungsmuster, Gedanken und belastende Gefühle tauchen immer wieder auf, als wären sie ferngesteuert.
 * Es fällt Ihnen schwer, sich angesichts Ihrer Erfahrungen vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als austherapiert.
