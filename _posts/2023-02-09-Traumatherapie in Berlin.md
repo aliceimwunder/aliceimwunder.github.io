@@ -64,7 +64,7 @@ Ob für ein paar Monate, um ein Schocktrauma zu bewältigen, ob Sie Vertrauen in
 <div class='video'>
   <a class='glightbox' href='/assets/Selbstdarstellung.mp4'>
     <div class='title'>Lassen Sie mich in diesem Video vorstellen:</div>
-    <img src='/assets/Selbstdarstellung_thumb.jpg' style='max-width:100%'/>
+    <img src='/assets/Selbstdarstellung_Traumatherapie_thumb.jpg' style='max-width:100%'/>
     <span class="video-play-icon"></span>
   </a>
 </div>
