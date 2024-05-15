@@ -21,7 +21,7 @@ Ich unterstütze Menschen, die harte Zeiten erlebt haben und an den seelischen F
 
 Bei mir müssen Sie nicht in ein vorgefertigtes Raster eines psychiatrischen Fragebogens passen. Ich biete Ihnen einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten wird. 
 
-Gerne können Sie mich in unverbindliches kostenfreies Vorgespräch kennenlernen.
+Gerne können Sie mich in einem unverbindlichen kostenfreien Vorgespräch kennenlernen.
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
