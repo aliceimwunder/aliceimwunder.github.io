@@ -7,57 +7,56 @@ layout: default
 <p></p>
 
 Ja, aber...
-* Ihr Tagesablauf ähnelt eher: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine nicht zu gewinnende Schlacht an. 
-* Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße hochlegen** finden. Vieles stresst Sie. Entspannung und Genuss scheinen Ihnen fremd zu sein.
+* Ihr Tagesablauf ähnelt eher: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
+* Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße hochlegen** finden. Sie fühlen sich überreizt. Entspannung und Genuss scheinen Ihnen fremd zu sein.
 * Verhasste Handlungsmuster, Gedanken und belastende Gefühle tauchen immer wieder auf, als wären sie ferngesteuert.
 * Es fällt Ihnen schwer, sich angesichts Ihrer Erfahrungen vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als austherapiert.
 
-Zur Orientierung habe ich nur einige Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt. Typisch wären z.B. auch Depression oder psychosomatische Schmerzen. Selbst das Wort "Trauma" ist schon verwirrend, weil man schnell an Katastrophen oder Krieg denkt. Davon gehen auch viele PsychiaterInnen aus.  
+Zu Ihrer Orientierung habe ich diese Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt. Typisch wären z.B. auch Depression oder psychosomatische Schmerzen. Selbst das Wort "Trauma" ist schon verwirrend, weil man schnell an Katastrophen oder Krieg denkt. Davon gehen auch viele PsychiaterInnen aus.  
 
-Dabei ist nur interessant, ob Ihr psychisches System überlastende Erfahrungen nachträglich verarbeiten konnte. Wir sind keine Roboter, die man über einen Kamm scheren könnte. 
+Manche Menschen sind überdurchschnittlich **wiederstandsfähig** und können Schreckliches verarbeiten, andere wurden "nur" in der Schule gemobbt, und haben später beißende Kopfschmerzen bei jeder Teambesprechung. Dann zweifeln sie an sich selbst, weil keine medizinische Ursache zu finden ist. So "furchtbar" war es früher doch nicht, als dass Trauma die richtige Beschreibung sein könnte, oder?  
 
-Manche Menschen sind überdurchschnittlich belastbar und können grauenhafte Erfahrungen verarbeiten, andere wurden "nur" in der Schule gemobbt, und haben später beißende Kopfschmerzen bei jeder Teambesprechung. Dann zweifeln sie an sich selbst, weil keine medizinische Ursache zu finden ist. 
+Dabei ist nur interessant, ob Ihr individuelles psychisches System überlastende Erfahrungen nachträglich verarbeiten konnte. Wir sind keine Roboter, die mit alle mit der gleichen Hard- und Software ausgestattet wären. Ihre **Wahrheit** ist, was zählt. 
 
 ### Sind Sie mit Ihren Herausforderungen hier richtig?
-Ich unterstütze Menschen, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Eine solche Zukunft kann Realität werden. Sie müssen sich übrigens nicht an jedes Detail erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
+Ich unterstütze Menschen, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Sie müssen sich übrigens nicht an Details erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
 
-Bei mir müssen Sie nicht in ein vorgefertigtes Raster eines psychiatrischen Fragebogens passen. Ich biete Ihnen einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten wird. 
+Bei mir müssen Sie nicht in ein vorgefertigtes Raster eines psychiatrischen Fragebogens passen. Ich biete Ihnen einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten wird. Von **EMDR** über Zuhören bis zu inneren Aufstelungen und Körperübungen kann ich genau das zusammenstellen, was für Sie funktioniert. 
 
-Gerne können Sie mich in einem unverbindlichen kostenfreien Vorgespräch kennenlernen.
+Gerne können Sie mich in einem unverbindlichen kostenfreien **Vorgespräch** kennenlernen.
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
 
-
 ### Sie sind übrigens nicht alleine mit diesem Thema
-Schocktraumata können jeden von uns treffen. Das Leben hält manchmal schockierende Ereignisse bereit, deren **seelische Folgen** nicht ignoriert werden sollten. Wie bei körperlichen Verletzungen ist es wichtig, auch die seelischen Wunden zu behandeln. 
+Schocktraumata können jeden von uns treffen. Das Leben hält manchmal überwältigende Ereignisse bereit, deren **seelische Folgen** nicht ignoriert werden sollten. Wie bei körperlichen Verletzungen ist es wichtig, auch die seelischen Wunden zu behandeln. 
 
-In Deutschland ist ein früher Bindungs- und Vertrauensverlust häufiger anzutreffen. Viele Menschen tragen alte Wunden aus ihrer Kindheit. Oft halten Betroffene eine Fassade aufrecht oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen. Nur als ein Beispiel unter vielen: In einer kriminologischen Studie von 1997 berichteten knapp 75% der erwachsenen Befragten von physischer Gewalt durch ihre Eltern. 
+Übrigens ist in Deutschland ein früher Bindungs- und **Vertrauensverlust** häufiger als Schockerlebnisse anzutreffen. Beispielsweise berichteten in einer kriminologischen Studie von 1997 knapp 75% der erwachsenen Befragten von physischer Gewalt durch ihre Eltern. Solche Erfahrungen können Spuren in der Seele hinterlassen, die sich nicht durch Zeit auflösen.
 
-Diese Erfahrungen können Spuren in der Seele hinterlassen, die sich nicht von selbst auflösen. Doch solche Spuren können geglättet werden, unabhängig davon, wie lange sie zurückliegen.  Vertrauen Sie sich. Denn Sie sind der **Experte in Ihrem eigenen Leben**.
+Leider tragen erschreckend viele Menschen alte Wunden aus ihrer Kindheit in sich. Oft halten Betroffene eine Fassade aufrecht oder sind sich nicht bewusst, dass frühe Belastungserfahrungen Symptome in der Gegenwart verursachen. Vertrauen Sie sich. Sie sind der **Experte in Ihrem eigenen Leben**.
 
 ### Licht am Ende des Tunnels: Eine befreiende Zukunft nach der Traumatherapie
-Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie finden Trost in den Momenten des **Friedens** und der Sicherheit, die vorher Ihre Vorstellung nicht erreichen konnten. Es ist wie ein sanfter Regen nach einem langen Sturm. 
+Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie können wieder Kraft in den Momenten des **Friedens** und der Sicherheit in Ihrem Alltag finden, die vorher Ihre Vorstellung nicht mehr erreichten. Es ist wie ein sanfter Regen nach einem langen Sturm. 
 
-Dann kann sich die Luft wieder frisch anfühlen, und die Sonne beginnt wieder durch die Wolken zu brechen. Mein Bestreben ist, dass Sie Ihre **unbändige Kraft** in sich spüren können. Sie ist da. Denn die hat Sie überleben lassen. Diese Kraft mag jetzt noch in Ihnen wie eingefroren sein. Doch schon bald können Sie Ihre Kraft freier nutzen, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen.
+Dieser Moment, wenn der Sturm aus der früheren Überlastung aufklart und sich die Luft frisch anfühlen, dann beginnt die Sonne durch die Wolken zu brechen. Mein Interesse gilt, dass Sie Ihre **unbändige Kraft** in sich wieder spüren können. Denn diese Kraft ist da, sie hat Sie überleben lassen. Diese Kraft mag jetzt noch in Ihnen wie erstarrt sein. Doch schon bald können Sie Ihre Vitalität freier nutzen, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen.
 
 <br/>
 <img src="/assets/2023-02-09-Wetter klart auf.jpg" alt="" style="max-width:100%"/>
 
-Ziel einer Traumatherapie ist es, dass Sie Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen können. Selbstkritik, Scham- und Schuldgefühle rücken in weite Ferne. Sie eröffnen für sich neue Verhaltensweisen und spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
+Kurz gefasst: **Ziel einer Traumatherapie** ist es, dass Sie Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen können. Selbstkritik, Scham- und Schuldgefühle rücken in weite Ferne. Sie eröffnen für sich neue Vehaltensweisen und spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
 
 
-### Dazu biete ich Ihnen in meiner Praxis 
+### In meiner Praxis biete ich Ihnen
+- Erpobte und gangbare Wege zu einem glücklicheren Leben, frei von Angst, Vertrauensverlust, alten Mustern und seelischen Schmerzen.
 - Evidenzbasierte und ganzheitliche Lösungswege.
-- Mit diesen **Lösungswegen** erschaffen Sie sich den Wandel zu einem glückchlichen Leben, frei von Angst, Vertrauensverlust, alten Mustern und seelischen Schmerzen.  
-- mehrjährige Erfahrung. 
-- einen sicheren Raum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez) - wahlweise auch östlich von Berlin in Briesen/Mark.
-- einfühlsame und vertrauensvolle Begleitung für Sie. 
-- kostengünstig zu 80,-€/Sitzung (bitte berücksichtigen Sie: nur **SelbstzahlerInnen***). 
-- die Möglichkeit, sofort beginnen zu können.
+- Mehrjährige Erfahrung.
+- Einen sicheren Raum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez) oder östlich von Berlin in Briesen/Mark.
+- Einfühlsame und vertrauensvolle Begleitung.
+- Kostengünstige Sitzungen zu 80,-€/Sitzung (nur Selbstzahler).*
+- Sofortige Terminverfügbarkeit.
 - Sitzungen auch auf Englisch möglich.
-- Sie können wöchentlich oder alle zwei Wochen Sitzungen wahrnehmen, je nachdem, was Sie gerade brauchen. (Sie haben auch die Möglichkeit, bei mir die Wartezeit auf einen kassenfinanzierten Therapieplatz zu überbrücken.)
+- Flexible Terminoptionen: wöchentlich oder alle zwei Wochen, je nach Bedarf. (Auch ideal zur Überbrückung der Wartezeit auf einen kassenfinanzierten Therapieplatz.)
 
 ### Keine Katze im Sack
 
