@@ -42,7 +42,7 @@ Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie 
 Dieser Moment, wenn der Sturm aus der früheren Überlastung aufklart und sich die Luft frisch anfühlen, dann beginnt die Sonne durch die Wolken zu brechen. Mein Interesse gilt, dass Sie Ihre **unbändige Kraft** in sich wieder spüren können. Denn diese Kraft ist da, sie hat Sie überleben lassen. Diese Kraft mag jetzt noch in Ihnen wie erstarrt sein. Doch schon bald können Sie Ihre Vitalität freier nutzen, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen.
 
 <br/>
-<img src="/assets/2023-02-09-Wetter klart auf.jpg" alt="" style="max-width:100%"/>
+<img src="/assets/2023-09-05-Traumatherapie - Himmel klart auf.jpg" alt="" style="max-width:100%"/>
 
 Kurz gefasst: **Ziel einer Traumatherapie** ist es, dass Sie Ihre Gefühle wahrnehmen, regulieren und gesunde Grenzen setzen können. Selbstkritik, Scham- und Schuldgefühle rücken in weite Ferne. Sie eröffnen für sich neue Vehaltensweisen und spüren Wärme und Sicherheit in Ihrem Leben. Die Vergangenheit bleibt dort, wo sie hingehört – in der Vergangenheit.
 
