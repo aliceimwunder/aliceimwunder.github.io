@@ -39,7 +39,9 @@ Leider tragen erschreckend viele Menschen alte Wunden aus ihrer Kindheit in sich
 ### Licht am Ende des Tunnels: Eine befreiende Zukunft nach der Traumatherapie
 Mit einer Traumatherapie kann sich eine Tür zu einem neuen Morgen öffnen. Sie können wieder Kraft in den Momenten des **Friedens** und der Sicherheit in Ihrem Alltag finden, die vorher Ihre Vorstellung nicht mehr erreichten. Es ist wie ein sanfter Regen nach einem langen Sturm. 
 
-Dieser Moment, wenn der Sturm aus der früheren Überlastung aufklart und sich die Luft frisch anfühlen, dann beginnt die Sonne durch die Wolken zu brechen. Mein Interesse gilt, dass Sie Ihre **unbändige Kraft** in sich wieder spüren können. Denn diese Kraft ist da, sie hat Sie überleben lassen. Diese Kraft mag jetzt noch in Ihnen wie erstarrt sein. Doch schon bald können Sie Ihre Vitalität freier nutzen, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen.
+Dieser Moment, wenn der Sturm aus der früheren Überlastung aufklart und sich die Luft frisch anfühlen, dann beginnt die Sonne durch die Wolken zu brechen. Mein Interesse gilt, dass Sie Ihre **unbändige Kraft** in sich wieder spüren können. 
+
+Denn diese Kraft ist da, sie hat Sie überleben lassen. Diese Kraft mag jetzt noch in Ihnen wie erstarrt sein. Doch schon bald können Sie Ihre Vitalität freier nutzen, um jeden Tag mehr und mehr Licht in Ihr Leben zu lassen. 
 
 <br/>
 <img src="/assets/2023-09-05-Traumatherapie - Himmel klart auf.jpg" alt="" style="max-width:100%"/>
