@@ -12,11 +12,11 @@ Ja, aber...
 * Verhasste Handlungsmuster, Gedanken und belastende Gefühle tauchen immer wieder auf, als wären sie ferngesteuert.
 * Es fällt Ihnen schwer, sich angesichts Ihrer Erfahrungen vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als austherapiert.
 
-Zu Ihrer Orientierung habe ich diese Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt. Typisch wären z.B. auch Depression oder psychosomatische Schmerzen. Selbst das Wort "Trauma" ist schon verwirrend, weil man schnell an Katastrophen oder Krieg denkt. Davon gehen auch viele PsychiaterInnen aus.  
+Zu Ihrer Orientierung habe ich Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt, wie Depression oder psychosomatische Schmerzen. Das Wort "Trauma" verwirrt oft, weil man an Katastrophen oder Krieg denkt, wie auch viele PsychiaterInnen.
 
-Manche Menschen sind überdurchschnittlich **wiederstandsfähig** und können Schreckliches verarbeiten, andere wurden "nur" in der Schule gemobbt, und haben später beißende Kopfschmerzen bei jeder Teambesprechung. Dann zweifeln sie an sich selbst, weil keine medizinische Ursache zu finden ist. So "furchtbar" war es früher doch nicht, als dass Trauma die richtige Beschreibung sein könnte, oder?  
+Einige Menschen sind überdurchschnittlich widerstandsfähig und verarbeiten Schreckliches, andere wurden "nur" in der Schule gemobbt und haben später beißende Kopfschmerzen bei Teambesprechungen. Sie zweifeln an sich selbst, weil keine medizinische Ursache zu finden ist. War es früher wirklich so schlimm, dass man von Trauma sprechen kann?
 
-Dabei ist nur interessant, ob Ihr individuelles psychisches System überlastende Erfahrungen nachträglich verarbeiten konnte. Wir sind keine Roboter, die durchgängig mit der gleichen Hard- und Software ausgestattet wären und daher vergleichbar auf Erlebnisse reagieren. Ihre **Wahrheit** ist, was zählt. 
+Wichtig ist, ob Ihr individuelles psychisches System überlastende Erfahrungen verarbeiten konnte. Wir sind keine Roboter mit gleicher Hard- und Software, Ihre Wahrheit zählt.
 
 ### Sind Sie mit Ihren Herausforderungen hier richtig?
 Ich unterstütze Menschen, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Sie müssen sich übrigens nicht an Details erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
