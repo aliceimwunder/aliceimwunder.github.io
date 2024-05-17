@@ -12,7 +12,7 @@ Ja, aber...
 * Verhasste Handlungsmuster, Gedanken und belastende Gefühle tauchen immer wieder auf, als wären sie ferngesteuert.
 * Es fällt Ihnen schwer, sich angesichts Ihrer Erfahrungen vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als austherapiert.
 
-Zu Ihrer Orientierung habe ich Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt, wie Depression oder psychosomatische Schmerzen. Das Wort "Trauma" verwirrt oft, weil man an Katastrophen oder Krieg denkt, wie auch viele PsychiaterInnen.
+Zu Ihrer Orientierung habe ich Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt, wie Depression oder psychosomatische Schmerzen. Das Wort "Trauma" verwirrt oft, weil man an Katastrophen oder Krieg denkt.
 
 Einige Menschen sind überdurchschnittlich **widerstandsfähig** und verarbeiten Schreckliches, andere wurden "nur" in der Schule gemobbt und haben später beißende Kopfschmerzen bei Teambesprechungen. Sie zweifeln an sich selbst, weil keine medizinische Ursache zu finden ist. War es früher wirklich so schlimm, dass man von Trauma sprechen kann?
 
