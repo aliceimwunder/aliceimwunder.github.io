@@ -79,7 +79,7 @@ Oder Sie wenden sich direkt an mich:
 - **Email**: info@alicewindolf.de oder
 - **Tel**: 0160 704 7080
 
-### Ein paar Worte über mich
+### Darf ich mich vorstellen?
 Als ich 2014 die Prüfung zur **Heilpraktikerin für Psychotherapie** ablegte, stieß ich erstmals auf die Möglichkeit einer Traumatherapie-Ausbildung. Mein erster Gedanke war damals, dass ich genug mit meiner eigenen Vergangenheit zu tun hatte. Nein danke.
 
 Ein Meditationswochenende sollte meine Einstellung ändern. Die Leiterin führte die Gruppe zwar sicher durch Meditationen und Atemübungen Doch dann wechselte sie zu einer Übung, in der wir unsere bis dahin ungesagten Worte in einem einzigen Ton ausdrücken sollten. Die Wirkung konnte die Leiterin nicht mehr abfangen: es holte eine ungeahnte Welle von seelischem Schmerz in den Teilnehmerinnen hoch.
