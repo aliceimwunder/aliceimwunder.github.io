@@ -16,7 +16,7 @@ Zu Ihrer Orientierung habe ich diese Beispiele für **Spätfolgen** von belasten
 
 Manche Menschen sind überdurchschnittlich **wiederstandsfähig** und können Schreckliches verarbeiten, andere wurden "nur" in der Schule gemobbt, und haben später beißende Kopfschmerzen bei jeder Teambesprechung. Dann zweifeln sie an sich selbst, weil keine medizinische Ursache zu finden ist. So "furchtbar" war es früher doch nicht, als dass Trauma die richtige Beschreibung sein könnte, oder?  
 
-Dabei ist nur interessant, ob Ihr individuelles psychisches System überlastende Erfahrungen nachträglich verarbeiten konnte. Wir sind keine Roboter, die mit alle mit der gleichen Hard- und Software ausgestattet wären. Ihre **Wahrheit** ist, was zählt. 
+Dabei ist nur interessant, ob Ihr individuelles psychisches System überlastende Erfahrungen nachträglich verarbeiten konnte. Wir sind keine Roboter, die durchgängig mit der gleichen Hard- und Software ausgestattet wären und daher vergleichbar auf Erlebnisse reagieren. Ihre **Wahrheit** ist, was zählt. 
 
 ### Sind Sie mit Ihren Herausforderungen hier richtig?
 Ich unterstütze Menschen, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Sie müssen sich übrigens nicht an Details erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
