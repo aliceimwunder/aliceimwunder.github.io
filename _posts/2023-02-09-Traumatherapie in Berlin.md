@@ -14,9 +14,9 @@ Ja, aber...
 
 Zu Ihrer Orientierung habe ich Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt, wie Depression oder psychosomatische Schmerzen. Das Wort "Trauma" verwirrt oft, weil man an Katastrophen oder Krieg denkt, wie auch viele PsychiaterInnen.
 
-Einige Menschen sind überdurchschnittlich widerstandsfähig und verarbeiten Schreckliches, andere wurden "nur" in der Schule gemobbt und haben später beißende Kopfschmerzen bei Teambesprechungen. Sie zweifeln an sich selbst, weil keine medizinische Ursache zu finden ist. War es früher wirklich so schlimm, dass man von Trauma sprechen kann?
+Einige Menschen sind überdurchschnittlich **widerstandsfähig** und verarbeiten Schreckliches, andere wurden "nur" in der Schule gemobbt und haben später beißende Kopfschmerzen bei Teambesprechungen. Sie zweifeln an sich selbst, weil keine medizinische Ursache zu finden ist. War es früher wirklich so schlimm, dass man von Trauma sprechen kann?
 
-Wichtig ist, ob Ihr individuelles psychisches System überlastende Erfahrungen verarbeiten konnte. Wir sind keine Roboter mit gleicher Hard- und Software, Ihre Wahrheit zählt.
+Nicht aufbauend ist es, sich mit anderen zu vergleichen. Wichtig ist, dass Ihr individuelles psychisches System überlastende Erfahrungen nicht verarbeiten konnte. Wir sind keine Roboter mit gleicher Hard- und Software. Ihre **Wahrheit** zählt.
 
 ### Sind Sie mit Ihren Herausforderungen hier richtig?
 Ich unterstütze Menschen, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Sie müssen sich übrigens nicht an Details erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
