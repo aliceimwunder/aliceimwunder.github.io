@@ -100,20 +100,20 @@ In meiner Praxis, biete ich keine festgelegte Therapieform an. Ich glaube daran,
 - TaumaCentered NeuroCoaching nach Mark Robert Waldman.
 
 ### Es ist Zeit für einen Wandel
-Bereit, den nächsten Schritt zu gehen? Luise Reddemann, eine der bekanntesten deutschen Traumatherapeuten hat diesen wunderbaren Satz geprägt: "Wir machen jeden Mist zu Kompost." 
+Bereit, den nächsten Schritt zu gehen? Luise Reddemann, eine bekannte deutsche Traumatherapeutin, sagte: "Wir machen jeden Mist zu Kompost."
 
-Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist völlig okay. Sie dürfen auch alles so lassen, wie es ist. 
+Vielleicht werden Sie sich nie wirklich bereit fühlen. Das ist okay. Sie dürfen auch alles so lassen, wie es ist. 
 
-Und wollen Sie das? Es ist verständlich, wenn Sie Bedenken hinsichtlich der Wirksamkeit einer Traumatherapie haben, insbesondere wenn Sie bereits viel Therapieerfahrung ohne echten Wandel durchlaufen haben. 
+Wollen Sie das? Es ist verständlich, wenn Sie Bedenken hinsichtlich der Wirksamkeit einer Traumatherapie haben, besonders wenn frühere Therapien wenig gebracht haben.
 
-Zum einen hängt Therapieerfolg vom Fachwissen über Traumafolgestörungen ab und zum anderen von einer tragfähigen Beziehung zwischen TherapeutIn und KlientIn. Dazu kommt die innere Bereitschaft zur Zusammenarbeit. Das ist nicht bewertend gemeint. Denn diese innere Bereitschaft kann aufgrund früherer negativer Erfahrungen so gelitten haben, dass man zwar gerne bereit wäre, aber Teile in Ihnen das nicht sind. Wie man trotz dieser Herausforderung eine therapeutische Beziehung tragfähig gestaltet, ist Teil der enaktiven Traumatherapie nach Ellert Nijenhuis. Geben Sie daher noch nicht auf, egal, was vorher war.   
+Therapieerfolg hängt vom Fachwissen über Traumafolgestörungen und einer tragfähigen Beziehung zwischen TherapeutIn und KlientIn ab. Auch die innere Bereitschaft zur Zusammenarbeit ist entscheidend. Diese kann aufgrund früherer negativer Erfahrungen gelitten haben, was verständlich ist. Geben Sie daher nicht auf, egal, was vorher war.
 
-Auch ich wünschte mir oft, die Zeit würde alle Wunden heilen. Leider tut sie das nicht. Wäre dem so, wären Sie nicht auf dieser Internet-Seite angekommen. In einer Traumatherapie können Sie sich die passende Unterstützung und Begleitung für Traumabewältigung holen, die Ihnen wirklich dient. **Vergangenheitsbewältigung ist möglich**.  
+Die Zeit heilt leider nicht alle Wunden. Wäre dem so, wären Sie nicht hier. In einer Traumatherapie können Sie passende Unterstützung und Begleitung für die Traumabewältigung erhalten. Vergangenheitsbewältigung ist möglich.
 
-Stellen Sie sich vor, wie ein Vogel, der nach Jahren im Käfig endlich seine Flügel ausbreitet und in die Freiheit fliegt. Mit einer Traumatherapie können wir Ihre inneren Flügel stärken und Ihnen helfen, das Gefühl von innerem Gleichgewicht, Selbstbestimmtheit, **Freiheit und Leichtigkeit** wiederzuerlangen.
+Stellen Sie sich vor, wie ein Vogel, der nach Jahren im Käfig endlich seine Flügel ausbreitet und in die Freiheit fliegt. Mit einer Traumatherapie können wir Ihre inneren Flügel stärken und Ihnen helfen, wieder Gleichgewicht, Selbstbestimmtheit, Freiheit und Leichtigkeit zu spüren.
 
-Buchen Sie für sich Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zu einem besseren Leben unterstützen kann.
-  
+Buchen Sie Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zu einem besseren Leben unterstützen kann.
+
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Ihren persönlichen Termin buchen](https://traumatherapie.youcanbook.me)
 </span>
