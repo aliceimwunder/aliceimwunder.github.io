@@ -1,16 +1,33 @@
 ---
-title: Offene Aura-Reinigung - Gruppenmeditation
+title: Tiefe Entspannung - Frische Energie - Aurareinigung
 ---
+Komm mit auf diese **wundervolle innere Reise** zu Deiner Energie. Gönn Dir diese seelische Auszeit für ein tiefenentspanntes Wochenende und Wohlfühlen in der eigenen Haut. 
 
 **Nächster Termin:**  
-- Freitag, den **03.05.2024, 19:00 Uhr auf zoom**. Thema: **Das Sanfte darf Raum haben.**. Anmeldung per Email an: info@alicewindolf.de
+- Freitag, den **07.06.2024, 19:00 Uhr auf zoom**. Thema: **Pure Lebensfreude - Inneres Leuchten**. Anmeldung per Email an: info@alicewindolf.de
+
+Hast Du manchmal das Gefühl, zu viel von anderen "mitzunehmen"? Oder fühlst Du Dich nach einem Einkauf in einem Einkaufszentrum total ausgelaugt? Oder Du nimmst innerlich die Arbeit mit nach Hause und kannst nicht so richtig loslassen? Vielleicht ist da manchmal das Gefühl, dass man sich wie verklebt und überlastet fühlt, ohne den Finger konkret auf eine Ursache legen zu können. 
+
+Dann bist Du bei meinen Aurareinigungen mit Bildern aus der **Inneren Kindheilung** und heilsamen Klängen richtig. Hier heißt es Abschalten, sich reinigen lassen, frische Tanken. Jeweils mit einer konkreten Energiefrequenz, einer Ausrichtung auf ein Thema, sodass Du mit neuen Impulsen in Dein Wochenende starten kannst.
+
+Energieausgleich: 30,-/25,- € 
+
+**Die nächsten Termine im Überblick**  
+- Freitag, den **07.06.2024, 19:00 Uhr auf zoom**. Thema: **Pure Lebensfreude - Inneres Leuchten**. Anmeldung per Email an: info@alicewindolf.de
+- Frei, 27.9. 19:00-21:00, Thema: **Kraft der Ahnen spüren**, Ahnenreihe reinigen
+- Frei, 25.10. 19:00-21:00 Thema noch offen
+- Frei, 22.11. 19:00-21:00 Thema: Geborgenheit pur - statt Weihnachtsstress - auf Ruhe und Geborgenheit der Winterenergie einstimmen. 
 
 ![Licht am Horizont](/assets/2023-02-10-Licht am Horizont.jpg)
 
-## Meditationsreisen - Aurareinigung - Innere Kindheilung
-Können Sie einen **Frischekick für Ihren Alltag** gebrauchen? Sie würden gerne mehr in Ihrer Mitte sein? Fühlen Sie sich manchmal erschöpft, überfordert oder blockiert? **Gelassenheit** bei den kleineren und größen Stürmen Ihres Lebens soll nicht nur ein ferner Traum sein?
+### Meditationsreisen - Aurareinigung - Innere Kindheilung
+Fühlst Du Dich am Ende einer Arbeitswoche erschöpft, überfordert oder blockiert? Gedanken kreisen. Innere Ruhe wäre so schön, aber...
 
-Die geführte Meditation mit Aurareinigung und heilsamen Klängen kann Sie Ihre Essenz wieder wahrnehmen lassen. Dazu kommt, dass Sie schneller im Wochenende ankommen und einen tieferen Erholungseffekt aus Ihrem Wochenende mitnehmen, wenn die Woche von Montag bis Freitag vollgepackt war. 
+Und soll es so bleiben oder darf es auf einfache und **leichte Art**etwas anderes sein?
+
+Vielleicht: Ein **Frischekick für Deinen Alltag**. Mehr in Deiner Mitte. **Gelassenheit** bei den kleineren und größen Stürmen Deines Lebens.
+
+Die geführte Meditation mit Aurareinigung und heilsamen Klängen lässt Dich Deine eigene Energie wieder wahrnehmen. Du kommst schneller im Wochenende an. Du nimmst einen echten Erholungseffekt aus Deinem Wochenende mitn, auch wenn die Woche von Montag bis Freitag vollgepackt war. 
 
 Dabei reinige ich tiefgreifend die Aura und nutze Quantenheilung, um neue Impulse zu integrieren. Eine leichte Trance entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung angewandt werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Dadurch ist die Aurareinigung auch traumasensibel. 
 
