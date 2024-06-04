@@ -14,10 +14,10 @@ Energieausgleich: 30,-/25,- €
 
 **Termine 2024 im Überblick**  
 - Frei, 07.06.2024, 19:00 Uhr: **Pure Lebensfreude - Inneres Leuchten**. Anmeldung per Email an: info@alicewindolf.de
-- Frei, 27.09.2024, 19:00 Uhr: **Lebensgenuss**: Sommer heißt Fülle in vollen Zügen genießen. 
-- Frei, 12.07.2024, 19:00 Uhr, **Kraft der Ahnen spüren**, Ahnenreihe reinigen
+- Frei, 12.07.2024, 19:00 Uhr: **Lebensgenuss**: Sommer heißt Fülle in vollen Zügen genießen. 
+- Frei, 27.09.2024, 19:00 Uhr, **Kraft der Ahnen spüren**, Ahnenreihe in den Körperzellen reinigen
 - Frei, 25.10.2024, 19:00 Uhr: Thema noch offen
-- Frei, 22.11.2024, 19:00 Uhr: **Geborgenheit pur** - statt Weihnachtsstress - auf Ruhe und Geborgenheit der Winterenergie einstimmen. 
+- Frei, 22.11.2024, 19:00 Uhr: **Geborgenheit pur** - statt Weihnachtsstress - stimme Dich auf die Ruhe und Geborgenheit der Adventszeit ein. 
 
 ### Wo findet die Meditation statt?  
 Online auf zoom und zugleich im Aquariana, live vor Ort, 
