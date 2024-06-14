@@ -41,20 +41,19 @@ Du wachst morgens auf und fühlst Dich leicht und voller Energie, bereit, Deinen
 ### Eine gezielte Lösung für Dich
 Mit einem ganzheitlichen, für Dich maßgeschneiderten Burnout-Coaching biete ich Dir die Werkzeuge und Strategien, die Du benötigst, um aus dem Kreislauf der Erschöpfung auszubrechen und ein Leben voller Energie und Gelassenheit zu führen.
 Was Dich in unserem Coaching erwartet:
-    1. Individuelle Beratung:
-        ◦ Nicht jedes gute Werkzeug passt für jeden. Wir beginnen mit einer gründlichen Bestandsaufnahme Deiner aktuellen Situation und Bedürfnisse, um ein maßgeschneidertes Coaching-Programm für Dich zu erstellen.
-    2. Praktische Werkzeuge und Techniken:
-        ◦ Lerne effektive Methoden zur Stressbewältigung und Selbstfürsorge, die Du leicht in Deinen Alltag integrieren kannst. 
-        ◦ Dazu gibt es Werkzeuge auf energetischer Ebene, die tiefgründig die Energiestruktur Deiner Aura ganzheitlich erholen lässt. 
-    3. Nachhaltige Veränderung:
-        ◦ Meiner Erfahrung nach: auch wenn wir unsere Akkus über alle Maßen leer geräumt haben und es mühsam ist, sie wieder aufzufüllen: dafür, was seelisch in uns ruht, womit wir unsere Lebenszeit in der Tiefe verbringen wollen, lassen sie sich erstaunlich leicht mit frischer Energie aufladen. 
-        ◦ Entwirf eine für Dich passende Vision zu Deinem Leben. Wir können nur erschaffen, was wir überhaupt denken können, ohne gleich in ein ABER zu verfallen. 
-        ◦ Entwickle genau auf Deine Vision neue Gewohnheiten und Denkmuster, ein ganz neues Energielevel, das Dich jeden Tag ein Stück näher an Deine Vision bringt. Langfristig, nachhaltig, gesund und ausgeglichen Dein Leben genießen.
-    4. Kontinuierliche Unterstützung:
-        ◦ Tiefer Wandel geht nicht über Nacht. Deswegen bietet Dir dieses Coaching-Programm kontinuierliche Unterstützung. Zusammen ist es so viel einfacher, Veränderungen nachhaltig zu gestalten. Hol Dir diese fortlaufende Unterstützung und Feedbacks, um sicherzustellen, dass Du auf einem klaren Weg zu Dir bleibst und Deine Ziele erreichst.
+1. Individuelle Beratung:
+- Nicht jedes gute Werkzeug passt für jeden. Wir beginnen mit einer gründlichen Bestandsaufnahme Deiner aktuellen Situation und Bedürfnisse, um ein maßgeschneidertes Coaching-Programm für Dich zu erstellen.
+2. Praktische Werkzeuge und Techniken:
+- Lerne effektive Methoden zur Stressbewältigung und Selbstfürsorge, die Du leicht in Deinen Alltag integrieren kannst. 
+- Dazu gibt es Werkzeuge auf energetischer Ebene, die tiefgründig die Energiestruktur Deiner Aura ganzheitlich erholen lässt. 
+3. Nachhaltige Veränderung:
+Meiner Erfahrung nach: auch wenn wir unsere Akkus über alle Maßen leer geräumt haben und es mühsam ist, sie wieder aufzufüllen: dafür, was seelisch in uns ruht, womit wir unsere Lebenszeit in der Tiefe verbringen wollen, lassen sie sich erstaunlich leicht mit frischer Energie aufladen. 
+- Entwirf eine für Dich passende Vision zu Deinem Leben. Wir können nur erschaffen, was wir überhaupt denken können, ohne gleich in ein ABER zu verfallen. 
+- Entwickle genau auf Deine Vision neue Gewohnheiten und Denkmuster, ein ganz neues Energielevel, das Dich jeden Tag ein Stück näher an Deine Vision bringt. Langfristig, nachhaltig, gesund und ausgeglichen Dein Leben genießen.
+4. Kontinuierliche Unterstützung:
+- Tiefer Wandel geht nicht über Nacht. Deswegen bietet Dir dieses Coaching-Programm kontinuierliche Unterstützung. Zusammen ist es so viel einfacher, Veränderungen nachhaltig zu gestalten. - Hol Dir diese fortlaufende Unterstützung und Feedbacks, um sicherzustellen, dass Du auf einem klaren Weg zu Dir bleibst und Deine Ziele erreichst.
 
 Hier geht es nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie Du Dich tiefgreifend seelisch so ausrichtest, dass Du Deine seelischen Selbstheilungskräfte auf ein neues Level heben kannst.
-
 
 Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom von ca. 20 min. Fragen klären im 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
