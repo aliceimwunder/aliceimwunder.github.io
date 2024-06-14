@@ -32,7 +32,7 @@ Daher weiß ich auch, dass Wege aus diesem Kreislauf von Stress und Hamsterrad g
     • ...aus dem ewig gleichen Hamsterrad aussteigen und wieder klare, greifbare Ziele verfolgen.
     • ...den Druck von Deinen Schultern nehmen und wieder frei und leicht durchatmen.
     • ...das Rauschen im Kopf beruhigen und endlich erholsamen Schlaf finden.
-    • … klar den Fokus auf Wichtiges lenken kannst und Du im Hier und Jetzt Deine volle Konzentration einsetzen.
+    • ...klar den Fokus auf Wichtiges lenken kannst und Du im Hier und Jetzt Deine volle Konzentration einsetzen.
     • ...zu Deiner seelische Lebendigkeit zurückfinden und Dein Leben in vollen Zügen genießen.
  
 ### Wie Dein Leben auch aussehen könnte...
