@@ -2,10 +2,10 @@
 layout: default
 ---
 <br/>
-<img src="/assets/2024-02-27-Traumasensible Begleitung.jpg" alt="" style="max-width:100%"/>
+<img src="/assets/2024-02-27-Ganzheitliches Burnout Coaching.jpg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2>Ein tragendes seelisches Ja zum Leben finden - Selbstheilungskräfte entfachen mit traumasensiblem Coaching</h2>
+	<h2> </h2>
 	</header>
 
 Viele von uns kennen das - und leider schon zu Zeiten, wo man so gar nicht damit gerechnet hat: 
