@@ -17,45 +17,45 @@ layout: default
 
 Du brauchst sofort eine Lösung? Dann buch Dir hier ein unverbindliches 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-Kennenlerngespräch.](https://traumatherapie.youcanbook.me).
+[Kennenlerngespräch](https://traumatherapie.youcanbook.me).
 </span>
 
-Nicht so lange zusammenhalten, bis gar nichts mehr geht. Ich kann aus eigener Erfahrung sagen: Genau so sah früher viele Jahre mein Leben aus. Bis mein Körper einfach nachgab. Burnout, Herzinfarkt. Endstation. Bereits mit Anfang 40. Es ging tatsächlich nicht mehr weiter. 
+Nicht so lange zusammenhalten, bis gar nichts mehr geht. Ich kann aus eigener **Erfahrung** sagen: Genau so sah früher viele Jahre mein Leben aus. Bis mein Körper einfach nachgab. Burnout, Herzinfarkt. Endstation. Bereits mit Anfang 40. Es ging tatsächlich nicht mehr weiter. 
 
-Dabei sah mein Leben von außen gut aus: Juristin mit Führungsaufgaben, Familie mit Lieblingsmann und großartiger Tochter, große Wohnung in ruhiger Umgebung mit Gärtchen in Berlin. Ich hatte mir ein gesellschaftlich anerkanntes Leben aufgebaut – nur leider war es nicht das, wonach sich meine Seele sehnte.   
+Dabei sah mein Leben von außen gut aus: Juristin mit Führungsaufgaben, Familie mit Lieblingsmann und großartiger Tochter, große Wohnung in ruhiger Umgebung mit Gärtchen in Berlin. Ich hatte mir ein **gesellschaftlich anerkanntes Leben** aufgebaut – nur leider war es nicht das, wonach sich meine Seele sehnte.   
  
-Ich weiß daher sehr genau, wovon ich spreche, wenn es um Erschöpfung, Überforderung und Stress geht. Wenn man den eigenen seelischen Rhythmus nicht spürt und ständig ausgelaugt ist, wenn man am Anfang der Woche die Tage rückwärts bis zum Wochenende zählt, immer mit der Angst im Nacken, wie man es bis dahin durchhalten soll. 
+Ich weiß daher sehr genau, wovon ich spreche, wenn es um Erschöpfung, Überforderung und Stress geht. Wenn man den eigenen **seelischen Rhythmus** nicht spürt und ständig ausgelaugt ist, wenn man am Anfang der Woche die Tage rückwärts bis zum Wochenende zählt, immer mit der Angst im Nacken, wie man es bis dahin durchhalten soll. 
 
-Daher weiß ich auch, dass Wege aus diesem Kreislauf von Stress und Hamsterrad gibt. Denn heute sieht mein Leben anders aus. Mit meiner Familie lebe ich im selbstentworfenen Haus direkt am Wald vor den Toren von Berlin, höre auf meine seelische Intuition. Beruf und Berufung sind für mich eins. 
+Daher weiß ich auch, dass Wege aus diesem Kreislauf von Stress und Hamsterrad gibt. Denn heute sieht mein Leben anders aus. Mit meiner Familie lebe ich im selbstentworfenen Haus direkt am Wald vor den Toren von Berlin, höre auf meine seelische **Intuition**. Beruf und Berufung sind für mich eins. 
 
 ### Stell Dir vor, Du könntest...
     • ...aus dem ewig gleichen Hamsterrad aussteigen und wieder klare, greifbare Ziele verfolgen.
-    • ...den Druck von Deinen Schultern nehmen und wieder frei und leicht durchatmen.
+    • ...den Druck von Deinen Schultern nehmen und wieder **frei und leicht** durchatmen.
     • ...das Rauschen im Kopf beruhigen und endlich erholsamen Schlaf finden.
     • ...klar den Fokus auf Wichtiges lenken kannst und Du im Hier und Jetzt Deine volle Konzentration einsetzen.
     • ...zu Deiner seelische Lebendigkeit zurückfinden und Dein Leben in vollen Zügen genießen.
  
 ### Wie Dein Leben auch aussehen könnte...
-Du wachst morgens auf und fühlst Dich leicht und voller Energie, bereit, Deinen Tag mit klarer Gelassenheit und innerer Kraft anzugehen. Du spürst Deinen eigenen seelischen Rhythmus und richtest Deinen Fokus mühelos auf das, was in Deinem Leben wirklich zählt. 
+Du wachst morgens auf und fühlst Dich leicht und **voller Energie**, bereit, Deinen Tag mit klarer **Gelassenheit** und **innerer Kraft** anzugehen. Du spürst Deinen eigenen seelischen Rhythmus und richtest Deinen Fokus mühelos auf das, was in Deinem Leben wirklich zählt. 
 
 ### Eine gezielte Lösung für Dich
 Mit einem ganzheitlichen, für Dich maßgeschneiderten Burnout-Coaching biete ich Dir die Werkzeuge und Strategien, die Du benötigst, um aus dem Kreislauf der Erschöpfung auszubrechen und ein Leben voller Energie und Gelassenheit zu führen.
 Was Dich in unserem Coaching erwartet:
-1. Individuelle Beratung:
-- Nicht jedes gute Werkzeug passt für jeden. Wir beginnen mit einer gründlichen Bestandsaufnahme Deiner aktuellen Situation und Bedürfnisse, um ein maßgeschneidertes Coaching-Programm für Dich zu erstellen.
+**1. Individuelle Beratung:**
+- Nicht jedes gute Werkzeug passt für jeden. Wir beginnen mit einer gründlichen Bestandsaufnahme Deiner aktuellen Situation und Bedürfnisse, um ein **maßgeschneidertes Coaching-Programm** für Dich zu erstellen.
 - Wir schneidern das Programm genau auf Deine Bedürfnisse zu. Der eine will so schnell wie irgendmöglich auf die Füße kommen und tut alles dafür. Der braucht vielleicht tägliche Impulse. Jemand anders braucht vielleicht erst einmal Ruhe und sanfte Impulse einmal pro Woche zum Umsetzen. 
-2. Praktische Werkzeuge und Techniken:
+**2. Praktische Werkzeuge und Techniken:**
 - Lerne effektive Methoden zur Stressbewältigung und Selbstfürsorge, die Du leicht in Deinen Alltag integrieren kannst. 
-- Dazu gibt es Werkzeuge auf energetischer Ebene, die tiefgründig die Energiestruktur Deiner Aura ganzheitlich erholen lässt. 
-3. Nachhaltige Veränderung:
+- Dazu gibt es Werkzeuge auf energetischer Ebene, die tiefgründig die Energiestruktur Deiner **Aura ganzheitlich erholen** lässt. 
+**3. Nachhaltige Veränderung:**
 Meiner Erfahrung nach: auch wenn wir unsere Akkus über alle Maßen leer geräumt haben und es mühsam ist, sie wieder aufzufüllen: dafür, was seelisch in uns ruht, womit wir unsere Lebenszeit in der Tiefe verbringen wollen, lassen sie sich erstaunlich leicht mit frischer Energie aufladen. 
 - Entwirf eine für Dich passende Vision zu Deinem Leben. Wir können nur erschaffen, was wir überhaupt denken können, ohne gleich in ein ABER zu verfallen. 
 - Entwickle genau auf Deine Vision neue Gewohnheiten und Denkmuster, ein ganz neues Energielevel, das Dich jeden Tag ein Stück näher an Deine Vision bringt. Langfristig, nachhaltig, gesund und ausgeglichen Dein Leben genießen.
-4. Kontinuierliche Unterstützung:
-- Tiefer Wandel geht nicht über Nacht. Deswegen bietet Dir dieses Coaching-Programm kontinuierliche Unterstützung. Zusammen ist es so viel einfacher, Veränderungen nachhaltig zu gestalten.
-- Hol Dir diese fortlaufende Unterstützung und Feedbacks, um sicherzustellen, dass Du auf einem klaren Weg zu Dir bleibst und Deine Ziele erreichst.
+**4. Kontinuierliche Unterstützung:**
+- **Tiefer Wandel** geht nicht über Nacht. Deswegen bietet Dir dieses Coaching-Programm kontinuierliche Unterstützung. Zusammen ist es so viel einfacher, Veränderungen nachhaltig zu gestalten.
+- Hol Dir diese **empathische Unterstützung** und fortlaufende Feedbacks, um sicherzustellen, dass Du auf einem klaren Weg zu Dir bleibst und Deine Ziele erreichst.
 
-Hier geht es nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie Du Dich tiefgreifend seelisch so ausrichtest, dass Du Deine seelischen Selbstheilungskräfte auf ein neues Level heben kannst.
+Hier geht es nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie Du Dich tiefgreifend seelisch so ausrichtest, dass Du Deine **seelischen Selbstheilungskräfte** auf ein neues Level heben kannst.
 
 Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom von ca. 20 min. Fragen klären im 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
