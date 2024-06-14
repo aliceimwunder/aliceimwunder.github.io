@@ -56,11 +56,11 @@ Was Dich in unserem Coaching erwartet:
 - Entwirf eine für Dich passende Vision zu Deinem Leben. Wir können nur erschaffen, was wir überhaupt denken können, ohne gleich in ein ABER zu verfallen. 
 - Entwickle genau auf Deine Vision neue Gewohnheiten und Denkmuster, ein ganz **neues Energielevel**, das Dich jeden Tag ein Stück näher an Deine Vision bringt. Langfristig, nachhaltig, gesund und ausgeglichen Dein Leben genießen.
 
-4. Kontinuierliche Unterstützung:
+**4. Kontinuierliche Unterstützung:**
 - **Tiefer Wandel** geht nicht über Nacht. Deswegen bietet Dir dieses Coaching-Programm kontinuierliche Unterstützung. Zusammen ist es so viel einfacher, Veränderungen nachhaltig zu gestalten.
 - Hol Dir diese **empathische Unterstützung** und fortlaufende Feedbacks, um sicherzustellen, dass Du auf einem klaren Weg zu Dir bleibst und Deine Ziele erreichst.
 
-Hier geht es nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie Du Dich tiefgreifend seelisch so ausrichtest, dass Du Deine **seelischen Selbstheilungskräfte** auf ein neues Level heben kannst.
+Ich bin jeden mir zur Verfügung stehenden Weg gegangen - Meditation, Yoga, Ernährung, Traumatherapie, Aufstellungen, Glaubenssätze wandeln, Energiearbeit uvm., um aus einem Zustand zurückzukehren, bei dem mir Ärzte keine Hilfe mehr anbieten konnten. Daher geht es bei mir nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie Du Dich tiefgreifend innerlich so ausrichtest, dass Du Deine **seelischen Selbstheilungskräfte** auf ein neues Level heben kannst.
 
 Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom von ca. 20 min. Fragen klären im 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
