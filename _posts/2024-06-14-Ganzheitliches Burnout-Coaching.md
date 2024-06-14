@@ -43,7 +43,8 @@ Mit einem ganzheitlichen, für Dich maßgeschneiderten Burnout-Coaching biete ic
 Was Dich in unserem Coaching erwartet:
 **1. Individuelle Beratung:**
 - Nicht jedes gute Werkzeug passt für jeden. Wir beginnen mit einer gründlichen Bestandsaufnahme Deiner aktuellen Situation und Bedürfnisse, um ein **maßgeschneidertes Coaching-Programm** für Dich zu erstellen.
-- Wir schneidern das Programm genau auf Deine Bedürfnisse zu. Der eine will so schnell wie irgendmöglich auf die Füße kommen und tut alles dafür. Der braucht vielleicht tägliche Impulse. Jemand anders braucht vielleicht erst einmal Ruhe und sanfte Impulse einmal pro Woche zum Umsetzen. 
+- Wir schneidern das Programm genau auf Deine Bedürfnisse zu. Der eine will so schnell wie irgendmöglich auf die Füße kommen und tut alles dafür. Der braucht vielleicht tägliche Impulse. Jemand anders braucht vielleicht erst einmal Ruhe und sanfte Impulse einmal pro Woche zum Umsetzen.
+<p></p>
 **2. Praktische Werkzeuge und Techniken:**
 - Lerne effektive Methoden zur Stressbewältigung und Selbstfürsorge, die Du leicht in Deinen Alltag integrieren kannst. 
 - Dazu gibt es Werkzeuge auf energetischer Ebene, die tiefgründig die Energiestruktur Deiner **Aura ganzheitlich erholen** lässt. 
