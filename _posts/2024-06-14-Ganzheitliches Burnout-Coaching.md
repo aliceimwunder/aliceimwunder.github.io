@@ -29,11 +29,11 @@ Ich weiß daher sehr genau, wovon ich spreche, wenn es um Erschöpfung, Überfor
 Daher weiß ich auch, dass Wege aus diesem Kreislauf von Stress und Hamsterrad gibt. Denn heute sieht mein Leben anders aus. Mit meiner Familie lebe ich im selbstentworfenen Haus direkt am Wald vor den Toren von Berlin, höre auf meine seelische **Intuition**. Beruf und Berufung sind für mich eins. 
 
 ### Stell Dir vor, Du könntest...
-    • ...aus dem ewig gleichen Hamsterrad aussteigen und wieder klare, **greifbare Ziele** verfolgen.
-    • ...den Druck von Deinen Schultern nehmen und wieder **frei und leicht** durchatmen.
-    • ...das Rauschen im Kopf beruhigen und endlich erholsamen Schlaf finden.
-    • ...klar den Fokus auf Wichtiges lenken kannst und Du im Hier und Jetzt Deine volle Konzentration einsetzen.
-    • ...zu Deiner seelische Lebendigkeit zurückfinden und Dein Leben in vollen Zügen genießen.
+• aus dem ewig gleichen Hamsterrad aussteigen und wieder klare, **greifbare Ziele** verfolgen.
+• den Druck von Deinen Schultern nehmen und wieder **frei und leicht** durchatmen.
+• das Rauschen im Kopf beruhigen und endlich erholsamen Schlaf finden.
+• klar den Fokus auf Wichtiges lenken kannst und Du im Hier und Jetzt Deine volle Konzentration einsetzen.
+• zu Deiner seelische Lebendigkeit zurückfinden und Dein Leben in vollen Zügen genießen.
  
 ### Wie Dein Leben auch aussehen könnte...
 Du wachst morgens auf und fühlst Dich leicht und **voller Energie**, bereit, Deinen Tag mit klarer **Gelassenheit** und **innerer Kraft** anzugehen. Du spürst Deinen eigenen seelischen Rhythmus und richtest Deinen Fokus mühelos auf das, was in Deinem Leben wirklich zählt. 
