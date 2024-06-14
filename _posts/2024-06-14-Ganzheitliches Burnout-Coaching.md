@@ -8,12 +8,12 @@ layout: default
 	<h2> </h2>
 	</header>
 
-### Bist Du es leid, 
-... in einem endlosen Hamsterrad zu rennen, ohne jemals wirklich voranzukommen?<p></p>
-... gegen einen ständigen Druck auf den Schultern anzukämpfen, der Deine Bewegungen zur Anstrengung macht und das Atmen schwerer werden lässt?
-... ein unaufhörlichen Rauschen im Kopf zu spüren, das Dir keine Ruhe zulässt und jede Nacht zu einem Kampf um Schlaf macht?
-    • Dass Du am Ende eines gelesenen Satzes nicht mehr weißt, was am Anfang stand, aber da noch gefühlt Tausend Emails auf Dich warten?
-    • vielleicht sogar schon innerlich erstarrt zu sein angesichts der täglichen Aufgaben, weil es einfach nicht mehr so weiter geht?
+### Bist Du es leid, ...
+- in einem endlosen Hamsterrad zu rennen, ohne jemals wirklich voranzukommen?
+- gegen einen ständigen Druck auf den Schultern anzukämpfen, der Deine Bewegungen zur Anstrengung macht und das Atmen schwerer werden lässt?
+- ein unaufhörlichen Rauschen im Kopf zu spüren, das Dir keine Ruhe zulässt und jede Nacht zu einem Kampf um Schlaf macht?
+- Dass Du am Ende eines gelesenen Satzes nicht mehr weißt, was am Anfang stand, aber da noch gefühlt Tausend Emails auf Dich warten?
+- vielleicht sogar schon innerlich erstarrt zu sein angesichts der täglichen Aufgaben, weil es einfach nicht mehr so weiter geht?
 
 Du brauchst sofort eine Lösung? Dann buch Dir hier ein unverbindliches 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
