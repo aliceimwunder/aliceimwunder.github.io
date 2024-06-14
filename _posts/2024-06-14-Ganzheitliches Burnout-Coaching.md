@@ -24,7 +24,7 @@ Aus bitterer **Erfahrung** weiß ich, dass man einen Zustand aus Erschöpfung, �
 
 Dabei sah mein Leben von außen gut aus: Juristin mit Führungsaufgaben, Familie mit Lieblingsmann und großartiger Tochter, große Wohnung in ruhiger Umgebung mit Gärtchen in Berlin. Ich hatte mir ein **gesellschaftlich anerkanntes Leben** aufgebaut – nur leider war es nicht das, wonach sich meine Seele sehnte.   
  
-Ich habe selbst erfahren, was es bedeutet, aus Erschöpfung, Überforderung und Stress zu lange keinen Ausweg zu finden. Wenn man den eigenen **seelischen Rhythmus** nicht spürt und ständig ausgelaugt ist, wenn man am Anfang der Woche die Tage rückwärts bis zum Wochenende zählt, immer mit der Angst im Nacken, wie man es bis dahin durchhalten soll. 
+Ich habe selbst erfahren, was es bedeutet, aus Erschöpfung, Überforderung und Stress zu lange keinen Ausweg zu finden. Die Verantwortung, allen gerecht werden zu wollen - beruflich wie privat -, zur Zerreißprobe wird. Wenn man den eigenen **seelischen Rhythmus** nicht spürt und ständig ausgelaugt ist, wenn man am Anfang der Woche die Tage rückwärts bis zum Wochenende zählt, immer mit der Angst im Nacken, wie man es bis dahin durchhalten soll. 
 
 Daher weiß ich auch, dass Wege aus diesem Kreislauf von Stress und Hamsterrad gibt. Denn heute sieht mein Leben anders aus. Mit meiner Familie lebe ich im selbstentworfenen Haus direkt am Wald vor den Toren von Berlin, höre auf meine seelische **Intuition**. Familienleben, Beruf und Berufung sind für mich eins. 
 
