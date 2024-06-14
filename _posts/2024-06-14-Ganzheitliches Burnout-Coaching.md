@@ -24,9 +24,9 @@ Aus bitterer **Erfahrung** weiß ich, dass man einen Zustand aus Erschöpfung, �
 
 Dabei sah mein Leben von außen gut aus: Juristin mit Führungsaufgaben, Familie mit Lieblingsmann und großartiger Tochter, große Wohnung in ruhiger Umgebung mit Gärtchen in Berlin. Ich hatte mir ein **gesellschaftlich anerkanntes Leben** aufgebaut – nur leider war es nicht das, wonach sich meine Seele sehnte.   
  
-Ich weiß daher sehr genau, wovon ich spreche, wenn es um Erschöpfung, Überforderung und Stress geht. Wenn man den eigenen **seelischen Rhythmus** nicht spürt und ständig ausgelaugt ist, wenn man am Anfang der Woche die Tage rückwärts bis zum Wochenende zählt, immer mit der Angst im Nacken, wie man es bis dahin durchhalten soll. 
+Ich habe selbst erfahren, was es bedeutet, aus Erschöpfung, Überforderung und Stress zu lange keinen Ausweg zu finden. Wenn man den eigenen **seelischen Rhythmus** nicht spürt und ständig ausgelaugt ist, wenn man am Anfang der Woche die Tage rückwärts bis zum Wochenende zählt, immer mit der Angst im Nacken, wie man es bis dahin durchhalten soll. 
 
-Daher weiß ich auch, dass Wege aus diesem Kreislauf von Stress und Hamsterrad gibt. Denn heute sieht mein Leben anders aus. Mit meiner Familie lebe ich im selbstentworfenen Haus direkt am Wald vor den Toren von Berlin, höre auf meine seelische **Intuition**. Beruf und Berufung sind für mich eins. 
+Daher weiß ich auch, dass Wege aus diesem Kreislauf von Stress und Hamsterrad gibt. Denn heute sieht mein Leben anders aus. Mit meiner Familie lebe ich im selbstentworfenen Haus direkt am Wald vor den Toren von Berlin, höre auf meine seelische **Intuition**. Familienleben, Beruf und Berufung sind für mich eins. 
 
 ### Stell Dir vor, Du könntest...
 - aus dem ewig gleichen Hamsterrad aussteigen und wieder klare, **greifbare Ziele** verfolgen.
@@ -43,7 +43,7 @@ Mit einem ganzheitlichen, für Dich maßgeschneiderten Burnout-Coaching biete ic
 
 Was Dich in unserem Coaching erwartet:
 
-**1. Individuelle Beratung:**
+**1. Individuelle Begleitung:**
 - Nicht jedes gute Werkzeug passt für jeden. Wir beginnen mit einer gründlichen Bestandsaufnahme Deiner aktuellen Situation und Bedürfnisse, um ein **maßgeschneidertes Coaching-Programm** für Dich zu erstellen.
 - Wir schneidern das Programm genau auf Deine Bedürfnisse zu. Der eine will so schnell wie irgendmöglich auf die Beine kommen und gibt alles dafür. Dafür braucht derjenige tägliche Impulse. Jemand anderes braucht vielleicht erst einmal Ruhe und sanfte Impulse einmal pro Woche zum Umsetzen.
 
@@ -60,7 +60,7 @@ Was Dich in unserem Coaching erwartet:
 - **Tiefer Wandel** geht nicht über Nacht. Deswegen bietet Dir dieses Coaching-Programm kontinuierliche Unterstützung. Zusammen ist es so viel einfacher, Veränderungen nachhaltig zu gestalten.
 - Hol Dir diese **empathische Unterstützung** und fortlaufende Feedbacks, um sicherzustellen, dass Du auf einem klaren Weg zu Dir bleibst und Deine Ziele erreichst.
 
-Ich bin jeden mir zur Verfügung stehenden Weg gegangen - Meditation, Yoga, Ernährung, Traumatherapie, Aufstellungen, Glaubenssätze wandeln, Energiearbeit uvm., um aus einem Zustand zurückzukehren, bei dem mir Ärzte keine Hilfe mehr anbieten konnten. Daher geht es bei mir nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie Du Dich tiefgreifend innerlich so ausrichtest, dass Du Deine **seelischen Selbstheilungskräfte** auf ein neues Level heben kannst.
+Ich bin jeden mir zur Verfügung stehenden Weg gegangen - Meditation, Yoga, Ernährung, Traumatherapie, Aufstellungen, Glaubenssätze wandeln, Energiearbeit uvm., um aus einem Zustand zurückzukehren, bei dem mir Ärzte wenig Hilfe mehr anbieten konnten. Daher geht es bei mir nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie Du Dich tiefgreifend innerlich so ausrichtest, dass Du Deine **seelischen Selbstheilungskräfte** auf ein neues Level heben kannst.
 
 Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom von ca. 20 min. Fragen klären im 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
