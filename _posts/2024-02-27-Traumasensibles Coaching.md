@@ -2,7 +2,7 @@
 layout: default
 ---
 <br/>
-<img src="/assets/2024-02-27-Ganzheitliches Burnout Coaching.jpg" alt="" style="max-width:100%"/>
+<img src="/assets/2024-02-27-Traumasensible Begleitung.jpg" alt="" style="max-width:100%"/>
 
 <header>
 	<h2> </h2>
