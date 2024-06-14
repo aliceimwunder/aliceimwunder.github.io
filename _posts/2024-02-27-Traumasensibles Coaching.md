@@ -5,7 +5,7 @@ layout: default
 <img src="/assets/2024-02-27-Traumasensible Begleitung.jpg" alt="" style="max-width:100%"/>
 
 <header>
-	<h2> </h2>
+	<h2>Ein seelisch tragendes Ja zum Leben finden </h2>
 	</header>
 
 Viele von uns kennen das - und leider schon zu Zeiten, wo man so gar nicht damit gerechnet hat: 
