@@ -51,7 +51,7 @@ Was Dich in unserem Coaching erwartet:
 - Dazu gibt es Werkzeuge auf energetischer Ebene, die tiefgründig die Energiestruktur Deiner **Aura ganzheitlich erholen** lässt. 
 
 **3. Nachhaltige Veränderung:**
-Meiner Erfahrung nach: auch wenn wir unsere Akkus über alle Maßen leer geräumt haben und es mühsam ist, sie wieder aufzufüllen: dafür, was seelisch in uns ruht, womit wir unsere Lebenszeit in der Tiefe verbringen wollen, lassen sie sich erstaunlich leicht mit frischer Energie aufladen. 
+- Meiner Erfahrung nach: auch wenn wir unsere Akkus über alle Maßen leer geräumt haben und es mühsam ist, sie wieder aufzufüllen: dafür, was seelisch in uns ruht, womit wir unsere Lebenszeit in der Tiefe verbringen wollen, lassen sie sich erstaunlich leicht mit frischer Energie aufladen. 
 - Entwirf eine für Dich passende Vision zu Deinem Leben. Wir können nur erschaffen, was wir überhaupt denken können, ohne gleich in ein ABER zu verfallen. 
 - Entwickle genau auf Deine Vision neue Gewohnheiten und Denkmuster, ein ganz neues Energielevel, das Dich jeden Tag ein Stück näher an Deine Vision bringt. Langfristig, nachhaltig, gesund und ausgeglichen Dein Leben genießen.
 
