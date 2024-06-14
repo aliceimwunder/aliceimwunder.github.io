@@ -20,7 +20,7 @@ Du brauchst sofort eine Lösung? Dann buch Dir hier ein unverbindliches
 [Kennenlerngespräch](https://traumatherapie.youcanbook.me).
 </span>
 
-Nicht so lange zusammenhalten, bis gar nichts mehr geht. Ich kann aus eigener **Erfahrung** sagen: Genau so sah früher viele Jahre mein Leben aus. Bis mein Körper einfach nachgab. Burnout, Herzinfarkt. Endstation. Bereits mit Anfang 40. Es ging tatsächlich nicht mehr weiter. 
+Aus bitterer **Erfahrung** weiß ich, dass man einen Zustand aus Erschöpfung, Überforderung oder chronischem Stress nicht endlos vor sich her schieben sollte. Genau so sah früher viele Jahre mein Leben aus. Bis mein Körper einfach nachgab. Burnout, Herzinfarkt. Endstation. Bereits mit Anfang 40. Es ging tatsächlich nicht mehr weiter. 
 
 Dabei sah mein Leben von außen gut aus: Juristin mit Führungsaufgaben, Familie mit Lieblingsmann und großartiger Tochter, große Wohnung in ruhiger Umgebung mit Gärtchen in Berlin. Ich hatte mir ein **gesellschaftlich anerkanntes Leben** aufgebaut – nur leider war es nicht das, wonach sich meine Seele sehnte.   
  
