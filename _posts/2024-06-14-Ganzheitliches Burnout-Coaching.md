@@ -15,9 +15,9 @@ layout: default
     • Dass Du am Ende eines gelesenen Satzes nicht mehr weißt, was am Anfang stand, aber da noch gefühlt Tausend Emails auf Dich warten?
     • vielleicht sogar schon innerlich erstarrt zu sein angesichts der täglichen Aufgaben, weil es einfach nicht mehr so weiter geht?
 
-Du brauchst sofort eine Lösung? Dann buch Dir hier ein unverbindliches . 
+Du brauchst sofort eine Lösung? Dann buch Dir hier ein unverbindliches 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-Kennenlerngespräch](https://traumatherapie.youcanbook.me).
+Kennenlerngespräch.](https://traumatherapie.youcanbook.me).
 </span>
 
 Nicht so lange zusammenhalten, bis gar nichts mehr geht. Ich kann aus eigener Erfahrung sagen: Genau so sah früher viele Jahre mein Leben aus. Bis mein Körper einfach nachgab. Burnout, Herzinfarkt. Endstation. Bereits mit Anfang 40. Es ging tatsächlich nicht mehr weiter. 
