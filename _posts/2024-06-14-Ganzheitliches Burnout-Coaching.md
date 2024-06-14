@@ -9,9 +9,9 @@ layout: default
 	</header>
 
 ### Bist Du es leid, 
-    • in einem endlosen Hamsterrad zu rennen, ohne jemals wirklich voranzukommen?
-    • Gegen einen ständigen Druck auf den Schultern anzukämpfen, der Deine Bewegungen zur Anstrengung macht und das Atmen schwerer werden lässt?
-    • Ein unaufhörlichen Rauschen im Kopf zu spüren, das Dir keine Ruhe zulässt und jede Nacht zu einem Kampf um Schlaf macht?
+... in einem endlosen Hamsterrad zu rennen, ohne jemals wirklich voranzukommen?<p></p>
+... gegen einen ständigen Druck auf den Schultern anzukämpfen, der Deine Bewegungen zur Anstrengung macht und das Atmen schwerer werden lässt?
+... ein unaufhörlichen Rauschen im Kopf zu spüren, das Dir keine Ruhe zulässt und jede Nacht zu einem Kampf um Schlaf macht?
     • Dass Du am Ende eines gelesenen Satzes nicht mehr weißt, was am Anfang stand, aber da noch gefühlt Tausend Emails auf Dich warten?
     • vielleicht sogar schon innerlich erstarrt zu sein angesichts der täglichen Aufgaben, weil es einfach nicht mehr so weiter geht?
 
@@ -39,21 +39,22 @@ Daher weiß ich auch, dass Wege aus diesem Kreislauf von Stress und Hamsterrad g
 Du wachst morgens auf und fühlst Dich leicht und **voller Energie**, bereit, Deinen Tag mit klarer **Gelassenheit** und **innerer Kraft** anzugehen. Du spürst Deinen eigenen seelischen Rhythmus und richtest Deinen Fokus mühelos auf das, was in Deinem Leben wirklich zählt. 
 
 ### Eine gezielte Lösung für Dich
-Mit einem ganzheitlichen, für Dich maßgeschneiderten Burnout-Coaching biete ich Dir die Werkzeuge und Strategien, die Du benötigst, um aus dem Kreislauf der Erschöpfung auszubrechen und ein Leben voller Energie und Gelassenheit zu führen.
+Mit einem ganzheitlichen, für Dich maßgeschneiderten Burnout-Coaching biete ich Dir die Werkzeuge und Strategien, die Du benötigst, um aus dem Kreislauf der Erschöpfung auszubrechen und ein Leben voller Energie und **Gelassenheit** zu führen.
+
 Was Dich in unserem Coaching erwartet:
 
 **1. Individuelle Beratung:**
 - Nicht jedes gute Werkzeug passt für jeden. Wir beginnen mit einer gründlichen Bestandsaufnahme Deiner aktuellen Situation und Bedürfnisse, um ein **maßgeschneidertes Coaching-Programm** für Dich zu erstellen.
-- Wir schneidern das Programm genau auf Deine Bedürfnisse zu. Der eine will so schnell wie irgendmöglich auf die Füße kommen und tut alles dafür. Der braucht vielleicht tägliche Impulse. Jemand anders braucht vielleicht erst einmal Ruhe und sanfte Impulse einmal pro Woche zum Umsetzen.
+- Wir schneidern das Programm genau auf Deine Bedürfnisse zu. Der eine will so schnell wie irgendmöglich auf die Beine kommen und gibt alles dafür. Dafür braucht derjenige tägliche Impulse. Jemand anderes braucht vielleicht erst einmal Ruhe und sanfte Impulse einmal pro Woche zum Umsetzen.
 
 **2. Praktische Werkzeuge und Techniken:**
 - Lerne effektive Methoden zur Stressbewältigung und Selbstfürsorge, die Du leicht in Deinen Alltag integrieren kannst. 
 - Dazu gibt es Werkzeuge auf energetischer Ebene, die tiefgründig die Energiestruktur Deiner **Aura ganzheitlich erholen** lässt. 
 
 **3. Nachhaltige Veränderung:**
-- Meiner Erfahrung nach: auch wenn wir unsere Akkus über alle Maßen leer geräumt haben und es mühsam ist, sie wieder aufzufüllen: dafür, was seelisch in uns ruht, womit wir unsere Lebenszeit in der Tiefe verbringen wollen, lassen sie sich erstaunlich leicht mit frischer Energie aufladen. 
+- Meiner Erfahrung nach: auch wenn wir unsere Akkus über alle Maßen leer geräumt haben und es mühsam ist, sie wieder aufzufüllen: dafür, was seelisch in uns ruht, womit wir unsere Lebenszeit in der **Tiefe** verbringen wollen, lassen sie sich erstaunlich leicht mit **frischer Energie** aufladen. 
 - Entwirf eine für Dich passende Vision zu Deinem Leben. Wir können nur erschaffen, was wir überhaupt denken können, ohne gleich in ein ABER zu verfallen. 
-- Entwickle genau auf Deine Vision neue Gewohnheiten und Denkmuster, ein ganz neues Energielevel, das Dich jeden Tag ein Stück näher an Deine Vision bringt. Langfristig, nachhaltig, gesund und ausgeglichen Dein Leben genießen.
+- Entwickle genau auf Deine Vision neue Gewohnheiten und Denkmuster, ein ganz **neues Energielevel**, das Dich jeden Tag ein Stück näher an Deine Vision bringt. Langfristig, nachhaltig, gesund und ausgeglichen Dein Leben genießen.
 
 4. Kontinuierliche Unterstützung:
 - **Tiefer Wandel** geht nicht über Nacht. Deswegen bietet Dir dieses Coaching-Programm kontinuierliche Unterstützung. Zusammen ist es so viel einfacher, Veränderungen nachhaltig zu gestalten.
