@@ -3,10 +3,10 @@ title: Ihre Basis - Man kann nur verändern, was man wahrnimmt
 ---
 ### Achtsamkeitspraxis - Wheel of Awareness
 
-1. kostenfreie Abende in 2024 für meine AbonnentInnen: **13.9., 11.10., 8.11., 6.12.**, immer freitags von 18:30 - 19:30 Uhr, online und vor Ort im Aquariana.
+1. kostenfreie Abende in 2024 für alle, die meinen Newsletter beziehen: **13.9., 11.10., 8.11., 6.12.**, immer freitags von 18:30 - 19:30 Uhr, online und vor Ort im Aquariana.
 2. Nächster laufender Kurs: 18.9., mittwochs, 12:15-13:00, 6 Termine, gesamt 59,-€, oder 32,-/Monat, nur online per zoom.
 
-Und hier zum Anmelden für den Info-Letter: **[Info-Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html)** entstehen keine weiteren Kosten. 
+Und hier zum Anmelden für den Newsletter: **[Info-Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html)** entstehen keine weiteren Kosten. 
 
 Auch ohne Anmeldung sind Sie willkommen. Ich würde nur um eine kleine Spende für die Raummiete bitten. 
 
