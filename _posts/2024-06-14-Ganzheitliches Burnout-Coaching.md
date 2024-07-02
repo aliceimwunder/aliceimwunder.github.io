@@ -65,7 +65,9 @@ Ich bin jeden mir zur Verfügung stehenden Weg gegangen - Meditation, Yoga, Ern�
 Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom von ca. 20 min. Fragen klären im 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Kennenlerngespräch.](https://traumatherapie.youcanbook.me)
-</span>
+</
+
+PS: Burnout-Coaching ist in Ausnahmefällen steuerlich als Werbungskosten absetzbar. Dazu bedarf es eines ärztlichen Attestes, dass deutlich darlegt, dass der Burnout ausschließlich beruflichen Umständen zuzuschreiben ist (bspw. weil Mobbing, Gaslightning oder Bossing im Arbeitsumfeld zu diesem Zustand geführt hat). Da ich keine Fachkenntnisse im Bereich Steuern habe, lassen Sie sich bitte vorab von einem Lohnsteuerhilfeverein oder Steuerberater beraten.
 
 
 
