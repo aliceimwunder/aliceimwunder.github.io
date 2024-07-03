@@ -79,8 +79,6 @@ Hier geht es zu einem ersten
 [Kennenlerngespräch.](https://traumatherapie.youcanbook.me)
 </span>
 
-- 1:1 Sitzung ohne Risiko zum Ausprobieren: 120,- €
-- Dreimonatige Begleitung in 1:1 Coaching (10 Sitzungen): 990,- € 
 
 
 
