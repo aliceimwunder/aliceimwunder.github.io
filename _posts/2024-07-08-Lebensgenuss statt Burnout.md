@@ -58,3 +58,12 @@ Noch tiefer kannst du eintauchen, wenn Du es mit drei Sitzungen Innere Kindheilu
 
 Damit drückst du wie auf ein Gaspedal, was das Loslassen anbelangt und effektiv auf die Bremse, damit du zur Ruhe kommst und beginnst, dein Leben in vollen Zügen zu genießen. 
 
+<span style='display:inline-block;padding:12px;background:#30A0ff'>
+Lass uns unverbindlich vorab klären, was Du brauchst: 
+  
+[persönlichen Termin buchen](https://traumatherapie.youcanbook.me)
+</span>
+
+Oder Sie wenden sich direkt an mich: 
+- **Email**: info@alicewindolf.de oder
+- **Tel**: 0160 704 7080
