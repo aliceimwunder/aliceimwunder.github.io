@@ -2,7 +2,7 @@
 layout: default
 ---
 <br/>
-<img src="/assets/2020-07-08-Lebensgenuss statt Burnout.jpg" alt=" "style="max-width:100%"/>
+<img src="/assets/2020-07-08-Lebensgenuss statt Burnout.jpg" alt="Sinnlichkeit statt Burnout" style="max-width:100%"/>
 
 <p></p>
 
