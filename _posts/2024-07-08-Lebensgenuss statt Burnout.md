@@ -2,15 +2,15 @@
 layout: default
 ---
 <br/>
-<img src="/assets/2020-07-08-Lebensgenuss statt Burnout.jpg" alt=""style="max-width:100%"/>
+<img src="/assets/2020-07-08-Lebensgenuss statt Burnout.jpg" alt=" "style="max-width:100%"/>
 
 <p></p>
 
 Stell dir vor, du schließt am Freitagabend deine Arbeit ab und lässt sie fürs Wochenende komplett los, wie ein Reisender, der seinen übervollen Rucksack ablegt. Dein Kopf wird **leicht, frei** von den kreisenden Gedanken an To-Do-Listen und unerledigte Aufgaben. 
-Dein Körper entspannt sich, der hohe Muskeltonus, entstanden in vielen Meetings/Emails und wenig Pausen, sinkt wieder, und es fühlt sich an, als würde eine sanfte Brise durch deine Seele wehen.
 
-Du bist nicht mehr gehetzt, sondern bewegst dich **friedlich** und frei wie das Wasser in einem natürlichen Fluss. Deine Sinne öffnen sich, und du kannst die kleinen **Freuden des Lebens** wieder bewusst wahrnehmen: das Lachen deiner Kinder, den Duft von frischem Gras oder den Geschmack eines guten Glases Wein. 
-So fühlt es sich an, wenn du den Feierabend wirklich genießen kannst – als würdest du zuhause ankommen, in dir selbst. Vielleicht magst Du gleich mal eintauchen, was für Dich persönlich echter Feierabend bedeutet? 😀
+Dein Körper entspannt sich, der hohe Muskeltonus, entstanden in vielen Meetings/Emails und wenig Pausen, sinkt wieder, und es fühlt sich an, als würde eine sanfte Brise durch deine Seele wehen. Du bist nicht mehr gehetzt, sondern bewegst dich **friedlich** und frei wie das Wasser in einem natürlichen Fluss. Deine Sinne öffnen sich, und du kannst die kleinen **Freuden des Lebens** wieder bewusst wahrnehmen: das Lachen deiner Kinder, den Duft von frischem Gras oder den Geschmack eines guten Glases Wein. 
+
+So kann es sich anfühlen, wenn du den Feierabend wirklich genießen kannst – als würdest du **zuhause ankommen**, in dir selbst. Vielleicht magst Du gleich mal eintauchen, was für Dich persönlich echter Feierabend bedeutet? 😀 Denn die Realität sieht zur Zeit laut Umfragen so aus, dass inszwischen 1/4 der Deutschen nicht einmal mehr erholt aus ihrem Haupturlaub zurückkommen, schon gar nicht am Wochenende abschalten können. 
 
 ### Genuss bringt Lebensfreude
 Lebensfreude kommt auf, wenn du einfach loslassen kannst, wenn nach der Anspannung die **Entspannung** kommen darf und du das Hier und Jetzt genießen kannst. 
