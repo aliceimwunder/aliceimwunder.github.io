@@ -2,7 +2,7 @@
 layout: default
 ---
 <br/>
-<img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
+<img src="/assets/2020-07-08-Lebensgenuss statt Burnout.jpeg" alt="" style="max-width:100%"/>
 
 <p></p>
 
