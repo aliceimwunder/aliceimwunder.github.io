@@ -13,16 +13,16 @@ Du bist nicht mehr gehetzt, sondern bewegst dich **friedlich** und frei wie das 
 So fühlt es sich an, wenn du den Feierabend wirklich genießen kannst – als würdest du zuhause ankommen, in dir selbst. Vielleicht magst Du gleich mal eintauchen, was für Dich persönlich echter Feierabend bedeutet? 😀
 
 ### Genuss bringt Lebensfreude
-Lebensfreude kommt auf, wenn du einfach loslassen kannst, wenn nach der Anspannung die Entspannung kommen darf und du das Hier und Jetzt genießen kannst. 
+Lebensfreude kommt auf, wenn du einfach loslassen kannst, wenn nach der Anspannung die **Entspannung** kommen darf und du das Hier und Jetzt genießen kannst. 
 
-Oft wissen wir sehr gut, wie wir uns über alle Grenzen hinweg anspannen, aber nicht mehr, wie wir in Leichtigkeit wieder loslassen. Im Strudel des Alltags lassen sich körperliche und seelische Rhythmen immer schlechter wahrnehmen.
+Oft wissen wir sehr gut, wie wir uns über alle Grenzen hinweg anspannen, aber nicht mehr, wie wir in Leichtigkeit wieder loslassen. Im Strudel des Alltags lassen sich körperliche und **seelische Rhythmen** immer schlechter wahrnehmen.
 
-Es ist problemlos möglich, ganz entspannt und mit allen Sinnen in Freude ungesundes Fastfood zu essen. Ob es dadurch gesünder wird, überlasse ich dir. Aber hast du schon mal probiert, etwas zwischen zwei Meetings herunterschlingend zu genießen? Egal, wie gesund es ist? 
+Es ist problemlos möglich, ganz entspannt und mit allen Sinnen in Freude ungesundes Fastfood zu essen. Ob es dadurch gesünder wird, überlasse ich dir. Aber hast du schon mal probiert, etwas zwischen zwei Meetings herunterschlingend zu genießen? Egal, ob es sich um einen grünen Smoothie oder einen Schokoriegel handelt? 
 
 ### Loslassen ist der Schlüssel
-Je schneller und angespannter wir unterwegs sind in unserem Leben, desto weniger merken wir überhaupt noch, was wir in der Hand haben. Kannst du dir eine Göttin wie Lady Venus mit all ihrer Sinnlichkeit und Lebensfreude vorstellen, dass sie noch so viel Schönheit und Lebensfreude ausstrahlte, wenn sie unter Druck eine E-Mail nach der anderen beantwortet?
+Je schneller und angespannter wir unterwegs sind in unserem Leben, desto weniger merken wir überhaupt noch, was wir in der Hand haben. Kannst du dir eine Göttin wie Lady Venus mit all ihrer **Sinnlichkeit und Lebensfreude** vorstellen, dass sie noch so viel Schönheit und Lebensfreude ausstrahlte, wenn sie unter Druck eine E-Mail nach der anderen beantwortet?
 
-Ich persönlich finde die Vorstellung von Stress und Genuss gleichzeitig zu leben absurd. Das eine schließt das andere einfach aus. Diese Unmöglichkeit birgt zugleich die Lösung. 
+Ich persönlich finde die Vorstellung von **Stress und Genuss gleichzeitig zu leben absurd**. Das eine schließt das andere einfach aus. Diese Unmöglichkeit birgt zugleich die Lösung. 
 
 Genieße ich, bin ich automatisch in einer stresslosen Zone. Um aus Anspannung in den Genuss zu kommen, liegt dazwischen das Loslassen dessen, was Druck erzeugt.  
 
