@@ -29,9 +29,9 @@ Genieße ich, bin ich automatisch in einer stresslosen Zone. Um aus Anspannung i
 ### Wie gut kannst Du loslassen?
 Achtsamkeit. Deinen Ist-Zustand feststellen. Das ist der effektivste erste Schritt in die Heilung - völlig egal, worum es geht. Dazu gibt es eine **leichte Übung**, die du auf deinem nächsten Spaziergang ausprobieren kannst. 
 
-Bitte einen Stein am Wegrand, der von der Größe her gut in deine Hand passt, um Hilfe. Nimm diesen Stein in die Hand und denk an etwas, was dich gerade stresst. Nun lässt du den Stein einfach los. Schau ihm zu, wie er ohne Umwege der Schwerkraft folgt und fällt.
-
-Dabei liegt der Fokus weniger darauf, dass du etwas fallen lässt oder dass etwas wegkommt, was du nicht mehr haben willst. Interessanter ist die Wahrnehmung, ob und wie einfach deine Hand loslassen kann. Denn je höher Dein Stresspegel ist, desto mehr Willenskraft musst Du einsetzen, um die Hand zu öffnen und innerlich loszulassen, sobald Du Deine persönliche Stresssituation ins Gedächtnis rufst.
+- Bitte einen Stein am Wegrand um Hilfe, der von der Größe her gut in deine Hand passt.
+- Nimm diesen Stein in die Hand und denk an etwas, was dich gerade stresst. Nun lässt du den Stein einfach los. Schau ihm zu, wie er ohne Umwege der Schwerkraft folgt und fällt.
+- Dabei liegt der Fokus weniger darauf, dass du etwas fallen lässt oder dass etwas wegkommt, was du nicht mehr haben willst. Interessanter ist die Wahrnehmung, ob und wie einfach **deine Hand loslassen kann**. Denn je höher Dein Stresspegel ist, desto mehr **Willenskraft** musst Du einsetzen, um die Hand zu öffnen und innerlich loszulassen, sobald Du Deine persönliche Stresssituation ins Gedächtnis rufst.
 
 ### Drei einfache Tipps, sofort auf Entspannung umzuschalten:
 1. **Vagus-Nerv beruhigen**: Falte deine Hände hinter deinem Kopf, sodass deine Ellenbogen nach außen zeigen. Dann schaust du nach links nur mit den Augen (nicht den Kopf mitnehmen) und zwar so lange, bis du seufzen musst. Meist nach 30 Sekunden setzt der Seufzer ein, kann aber bis zu zwei Minuten dauern. Danach schaust du in die andere Richtung und wartest. Es ist ein bisschen anstrengend, so lange zur Seite mit den Augen zu schauen, ohne den Kopf zu bewegen. Aber es lohnt sich. Diese einfache Übung von Steven Porges beruhigt den Vagus-Nerv.
@@ -39,27 +39,33 @@ Dabei liegt der Fokus weniger darauf, dass du etwas fallen lässt oder dass etwa
 3. **Bewusst essen**: Lege das Besteck nach jedem Bissen ab und atme einmal bewusst ein und aus. Dann nimm den nächsten Bissen, wieder Besteck ablegen, einmal bewusst ein- und ausatmen beim Kauen. Das unterbricht einen hektischen Essrhythmus, den sich die meisten zugelegt haben. Wer unter Anspannung steht, warum auch immer, schlingt eher, als dass er in Ruhe isst.
 
 ### Einfacher geht es mit Begleitung
-Das Internet ist voll mit "drei Tipps zu...". Würden sie alle funktionieren, müssten wir die gesündeste, fitteste, durchtrainierteste, psychisch stabilste Generation sein, die jemals gelebt hat.
+Das Internet ist voll mit "drei Tipps zu...". Würden sie alle funktionieren, müssten wir die gesündeste, fitteste, durchtrainierteste, **psychisch stabilste Generation** sein, die jemals gelebt hat.
 
 Was uns in der Regel fehlt, ist persönliche Begleitung. Mit einem Personal Trainer zu guten Fitnessergebnissen zu kommen, ist unendlich viel leichter und macht mehr Spaß, als allein vor einem Video zu trainieren.
 
 Evolutionär betrachtet haben wir immer in Gruppen gelebt. Die meisten von uns sind in ihrem Wesen keine einsamen Asketen. Getragen in Beziehungen in verschiedenen Rollen ist eigentlich für uns die Form, um uns weiterzuentwickeln - nicht allein vor einem Computer. 
 
 ### Einladung zur geführten Meditation
-Wenn es Unterstützung Dir gut tut, dann melde dich zu meiner Meditation mit Aurareinigung am 12. Juli 2024 um 19:00 Uhr im Aquariana oder online an. Der Energieausgleich beträgt 30,- €. Anmeldung: info@alicewindolf.de.
+Wenn es Unterstützung Dir gut tut, dann melde dich zu meiner **Meditation mit Aurareinigung am 12. Juli 2024** um 19:00 Uhr im Aquariana oder online an. Der Energieausgleich beträgt 30,- €. Anmeldung: info@alicewindolf.de.
 
 In der Gruppe an diesem Abend zeige ich dir, wie du zu mehr Genuss kommst und reinige nebenbei deine Aura, sodass Hürden danach leichter zu überwinden sind.
 Willst Du lieber 
 
 ### Begleitung buchen
-Du willst jetzt endlich in die Gänge kommen? Am schnellsten und intensivsten geht es mit persönlicher Begleitung. Ich biete dir eine Dreierserie genau zu diesem Thema: Loslassen, zur Ruhe kommen, genießen - drei Termine à 50 min ganz indivuell auf dich zugeschnitten. Ich reinige deine Aura und schau, was für dich unterstützend wirkt. 
+Du willst jetzt endlich in die Gänge kommen? Am schnellsten und intensivsten geht es mit **persönlicher Begleitung**. 
 
-Noch tiefer kannst du eintauchen, wenn Du es mit drei Sitzungen Innere Kindheilung kombinierst. Dann wird daraus ein Coachig nur für dich, mit 6 Sitzungen aus energetischer Arbeit und Innerer Kindheilung. 
+Ich biete dir eine **Dreierserie** genau zu diesem Thema: Loslassen, zur Ruhe kommen, Lebensgenuss 
+- drei Termine à 50 min ganz indivuell auf dich zugeschnitten.
+- Ich reinige deine Aura und schau, was für dich unterstützend wirkt.
+- Ich lasse die Energie einfließen, die es braucht, um Bewegung und Harmonie in dein System einfließen zu lassen.  
 
-Damit drückst du wie auf ein Gaspedal, was das Loslassen anbelangt und effektiv auf die Bremse, damit du zur Ruhe kommst und beginnst, dein Leben in vollen Zügen zu genießen. 
+Noch tiefer kannst du eintauchen, wenn Du es mit drei Sitzungen **Innere Kindheilung kombinierst**. 
+Dann wird daraus ein Coachig nur für dich, mit **6 Sitzungen** aus energetischer Arbeit und Innerer Kindheilung. 
+
+Damit drückst du zugleich auf ein Gaspedal, was das **Loslassen** anbelangt und effektiv auf die Bremse, damit du zur **Ruhe** kommst und beginnst, dein Leben in vollen Zügen zu **genießen**. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-Lass uns unverbindlich vorab klären, was Du brauchst: 
+Lass uns unverbindlich vorab klären, was Du brauchst. 
   
 [persönlichen Termin buchen](https://traumatherapie.youcanbook.me)
 </span>
