@@ -67,10 +67,10 @@ Damit drückst du zugleich auf ein Gaspedal, was das **Loslassen** anbelangt und
 Lass uns unverbindlich vorab klären, was Du brauchst. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Kennenlerngespräch.](https://traumatherapie.youcanbook.me)
-   - Kostenfrei
-   - unverbindlich
-   - bis zu 20 min nur für Dich. 
+[Kennenlerngespräch.](https://traumatherapie.youcanbook.me
+- Kostenfrei
+- unverbindlich
+- bis zu 20 min nur für Dich. 
  
  
   
