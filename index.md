@@ -14,9 +14,8 @@ Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie ge
 Hier finden Sie 
 - Stressreduzierung mit effektivem [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
 - evidenzbasierte [Traumatherapie, hp psych](/2023/02/09/Traumatherapie-in-Berlin.html),
-- ganzheitliches [traumasensibles Coaching](/2024/02/27/Traumasensibles-Coaching.html), um Ihre Selbstheilung zu entfachen, 
-- [geführte Gruppenmeditationen](/2023/02/10/Gruppenabende-Meditationsreisen) - ein Frischekick für Ihren Energiekörper
-- und ganzheitliches, [spirituelles Coaching](/2024/02/23/mediales-Coaching.html).
+- ganzheitliches [Burnout Coaching](https://alicewindolf.de/2024/06/14/Ganzheitliches-Burnout-Coaching.html)), 
+- [geführte Gruppenmeditationen](/2023/02/10/Gruppenabende-Meditationsreisen) - ein Frischekick für den eigenen Energiekörper
 
 <strong>Lernen <a href="/about/">Sie mich näher kennen</a></strong>.
 
