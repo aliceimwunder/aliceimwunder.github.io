@@ -54,10 +54,9 @@ Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten 
 <p><strong><a href="/2021/04/21/Landingspage-Newsletteranmeldung.html"> Meinen Info-Letter </a></strong>  schicke ich ca. ein bis alle zwei Monate, um Sie über meine aktuellen Termine und Blog-Veröffentlichungen zu informieren. Ihre Emailadresse ist kostbar. Als kleines Dankeschön biete ich Ihnen regelmäßig eine Achtsamkeitspraxis ohne Zusatzkosten an (Wheel of Awareness). </p>
 	
 <p>
-<h3>Ein Feedback zu meinem Traumasensitiven Coaching - Innere Kindheilung, von Maria W. aus Liechtenstein: </h3>
+<h3>Ein Feedback zu meinem Coaching von Maria W. aus Liechtenstein: </h3>
 
-<p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
-Feedback geben.</p> 
+<p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein Feedback geben.</p> 
 
 <p"Deine Unterstützung hat mir geholfen, tiefsitzende Blockaden in meinem Leben zu erkennen und zu integrieren. Ich war überrascht, wie klärend und hilfreich deine Methode war. Durch deine liebevolle Art und die richtigen Fragen konnte ich sogar die tieferliegenden Themen entdecken und lösen. Du hast mir geholfen zu verstehen, welche Ängste mich dazu gebracht haben, Mauern zu errichten, um nicht verletzt zu werden. Mit deiner Technik habe ich gelernt, wie ich mein Verhalten ändern kann, um im Alltag offener zu sein. Am Ende konnten wir sogar eine zweite Angst aufdecken, an der ich jetzt dank deiner Inspiration arbeite."</p> 
 
