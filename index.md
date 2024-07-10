@@ -15,7 +15,7 @@ Hier finden Sie
 - Stressreduzierung mit effektivem [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
 - evidenzbasierte [Traumatherapie, hp psych](/2023/02/09/Traumatherapie-in-Berlin.html),
 - ganzheitliches [Burnout Coaching](https://alicewindolf.de/2024/06/14/Ganzheitliches-Burnout-Coaching.html)), 
-- in der Gruppe [Aurareinigung zur Stressreduzierung](/2023/02/10/Gruppenabende-Meditationsreisen) - ein Frischekick für den eigenen Energiekörper
+- in der Gruppe [Aurareinigung zur Stressreduzierung](/2023/02/10/Gruppenabende-Meditationsreisen).
 
 <strong>Lernen <a href="/about/">Sie mich näher kennen</a></strong>.
 
@@ -59,22 +59,7 @@ Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein
 Feedback geben.</p> 
 
-<p>Das Angebot mich zu unterstützen um hinzuschauen, wo die
-Blockade noch verankert ist in meinem Lebensverlauf, um es zu integrieren
-hab ich gerne angenommen, weil mich neue Herangehensweisen immer
-interessieren. Dass es dann so hilfreich und klarmachend ist, hat mich
-selbst erstaunt. Durch deine Technik und liebevolle Art, mich mit den
-richtigen Fragen zum Hinschauen zu bewegen, konnte ich sogar das darunter
-liegende Thema noch entdecken und herauslösen, um es anzuschauen. So
-verstand ich endlich, welche Ängste mich zum Mauer-aufrecht-erhalten
-bewegten, um ja nicht verletzt zu werden. Das verstehen war der eine
-Schritt, zu dem du mir verholfen hast. Weiters zeigtest du mir auch mit
-deiner Technik, welche Schritte helfen, um die Annäherung zum kleinen Ich
-zu ermöglichen. Das wiederum zeigt mir, welche Veränderungen ich in
-meinem Verhalten tun kann, um genau dies im Alltag zu erreichen. Und dann
-kurz vor dem Abschluss zeigte sich die 2. Angst, zu der wir hingeschaut
-haben - und mithilfe deiner Inspiration bin ich nun daran, auch hier das
-Schattenverhalten zu korrigieren.</p> 
+<p"Deine Unterstützung hat mir geholfen, tiefsitzende Blockaden in meinem Leben zu erkennen und zu integrieren. Ich war überrascht, wie klärend und hilfreich deine Methode war. Durch deine liebevolle Art und die richtigen Fragen konnte ich sogar die tieferliegenden Themen entdecken und lösen. Du hast mir geholfen zu verstehen, welche Ängste mich dazu gebracht haben, Mauern zu errichten, um nicht verletzt zu werden. Mit deiner Technik habe ich gelernt, wie ich mein Verhalten ändern kann, um im Alltag offener zu sein. Am Ende konnten wir sogar eine zweite Angst aufdecken, an der ich jetzt dank deiner Inspiration arbeite."</p> 
 
 <p>Deine Art, mich dahin zu führen, ist Hilfreich, Kompetent, Achtsam und
 sehr Erkenntnisreich und vorallem wirklich befreiend.</p> 
