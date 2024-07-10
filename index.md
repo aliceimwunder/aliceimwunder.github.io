@@ -15,7 +15,7 @@ Hier finden Sie
 - Stressreduzierung mit effektivem [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
 - evidenzbasierte [Traumatherapie, hp psych](/2023/02/09/Traumatherapie-in-Berlin.html),
 - ganzheitliches [Burnout Coaching](https://alicewindolf.de/2024/06/14/Ganzheitliches-Burnout-Coaching.html)), 
-- Gruppenabende mit heilsamen Klängen und [Aurareinigung zur Stressreduzierung](/2023/02/10/Gruppenabende-Meditationsreisen) - ein Frischekick für den eigenen Energiekörper
+- in der Gruppe [Aurareinigung zur Stressreduzierung](/2023/02/10/Gruppenabende-Meditationsreisen) - ein Frischekick für den eigenen Energiekörper
 
 <strong>Lernen <a href="/about/">Sie mich näher kennen</a></strong>.
 
