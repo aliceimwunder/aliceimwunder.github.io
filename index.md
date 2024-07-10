@@ -58,7 +58,7 @@ Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten 
 
 <p>"Nun möchte ich, bevor das Alltagsleben mich einholt, dir grad noch ein Feedback geben.</p> 
 
-<p"Deine Unterstützung hat mir geholfen, tiefsitzende Blockaden in meinem Leben zu erkennen und zu integrieren. Ich war überrascht, wie klärend und hilfreich deine Methode war. Durch deine liebevolle Art und die richtigen Fragen konnte ich sogar die tieferliegenden Themen entdecken und lösen. Du hast mir geholfen zu verstehen, welche Ängste mich dazu gebracht haben, Mauern zu errichten, um nicht verletzt zu werden. Mit deiner Technik habe ich gelernt, wie ich mein Verhalten ändern kann, um im Alltag offener zu sein. Am Ende konnten wir sogar eine zweite Angst aufdecken, an der ich jetzt dank deiner Inspiration arbeite."</p> 
+<p>"Deine Unterstützung hat mir geholfen, tiefsitzende Blockaden in meinem Leben zu erkennen und zu integrieren. Ich war überrascht, wie klärend und hilfreich deine Methode war. Durch deine liebevolle Art und die richtigen Fragen konnte ich sogar die tieferliegenden Themen entdecken und lösen. Du hast mir geholfen zu verstehen, welche Ängste mich dazu gebracht haben, Mauern zu errichten, um nicht verletzt zu werden. Mit deiner Technik habe ich gelernt, wie ich mein Verhalten ändern kann, um im Alltag offener zu sein. Am Ende konnten wir sogar eine zweite Angst aufdecken, an der ich jetzt dank deiner Inspiration arbeite."</p> 
 
 <p>Deine Art, mich dahin zu führen, ist Hilfreich, Kompetent, Achtsam und
 sehr Erkenntnisreich und vorallem wirklich befreiend.</p> 
