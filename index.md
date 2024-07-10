@@ -64,6 +64,6 @@ Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten 
 sehr Erkenntnisreich und vorallem wirklich befreiend.</p> 
 
 <p>hey du liebe, das war wirklich ein Schlüssel, um so schnell
-voranzukommen. Das ich deine Hilfe bekam! ein riesiges Dankeschön von
+voranzukommen. Dass ich deine Hilfe bekam! ein riesiges Dankeschön von
 mir zu dir!"</p> 
 
