@@ -8,7 +8,7 @@ layout: default
 
 EMDR kann Sie mit einem **breiten Anwendungsbereich** unterstützen. 
 
-In die Kurzzeit-Therapie können auch ähnliche Werkzeuge wie EMDR (z.B. EMI) einfließen, ergänzend Klopftechniken, traumasensible Aufstellungs-Tools und Innere Kindheilung einfließen, sodass ich Sie bestmöglich auf Ihrem Weg begleiten kann. 
+In die Kurzzeit-Therapie können auch ähnliche Werkzeuge wie EMDR (z.B. EMI) einfließen, ergänzend dazu Klopftechniken, traumasensible Aufstellungs-Tools und Innere Kindheilung, sodass ich Sie bestmöglich auf Ihrem Weg begleiten kann. 
 
 ----
 
