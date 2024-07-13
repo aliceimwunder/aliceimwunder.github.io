@@ -72,7 +72,10 @@ Meistens wird EMDR im Rahmen einer Kurzzeittherapie eingesetzt. Der Ablauf sieht
 Dabei handelt es sich um durchschnittliche Erfahrungswerte. Was Sie konkret brauchen, stimmen wir gemeinsam ab. 
 
 Die **Bestandsaufnahme- und Abschlusssitzungen** dauern jeweils 50 Minuten, während die **EMDR-Kernsitzungen** 90 Minuten umfassen.
-Kosten: 80,- Euro pro Sitzung
+Kosten: 
+- 80,- € pro Sitzung à 50 min
+- 120,- € pro Sitzung à 120 min.
+- Nur Selbstzahler möglich.*   
 
 Bei schweren Bindungs- und Entwicklungstraumata aus der frühen Kindheit: 
 <p>Zwar kann EMDR auch bei tiefgreifenden, jahrelangen Verletzungen aus der Kindheit genutzt werden, solche Schatten der Vergangenheit sind aber in einer [**längerfristigen Traumatherapie**](/2023/02/09/Traumatherapie-in-Berlin.html) besser aufgehoben. Bitte gehen Sie bei solchen Erfahrungen viel geduldiger mit sich um.</p>
@@ -88,5 +91,17 @@ EMDR kann sehr effizient sein, wenn man weiß, wann es angezeigt ist. Meiner Erf
 
 Bei tiefgehenden Traumatisierungen, wie Missbrauch oder Gewalt in der Kindheit, die die **Bindungsfähigkeit** beeinträchtigt haben, biete ich EMDR im Rahmen einer [längerfristigen Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html) an. EMDR kann tiefsitzende seelische Belastungen lösen, ersetzt aber nicht die Erfahrung positiver Bindungen.
 
+----
+Eine Buchung bei mir ist eine Investition in Sie selbst.
+- Gesetzliche Krankenkassen und Beihilfen übernehmen keine Kosten für Heilpraktiker für Psychotherapie. Private (Zusatz)Kassen bieten Zuschüsse an, wenn Heilpraktiker für Psychotherapie ausdrücklich in ihrem Leistungskatalog aufgeführt sind.
+- Eine steuerliche Absetzbarkeit kommt in Ausnahmefällen in Betracht, bspw. als Werbungskosten, wenn eine psychische Belsatung ausschließlich dem Beruf zuzuordnen ist (z.B. Schocktrauma durch Arbeitsunfall oder Burnout durch Mobbing) und ein ärztliches Attest dies ausdrücklich bestätigt.
+- Soweit Sie eine Kostenübernahme anstreben, lassen Sie sich bitte vorher von einem Versicherungsmakler, Versicherer oder Lohnsteuerhilfeverein bzw. Steuerberater beraten, da ich nicht über die notwendigen Fachkenntnisse im Detail verfüge.
+
+### Bitte bedenken Sie
+Vergangenheitsbewältigung mag mittlerweile offen diskutiert werden. EMDR wird meist dazu genutzt, um etwas aus der Vergangenheit endlich zu verarbeiten. Daher ist mein Vorgehen immer traumasensibel. 
+
+Einen spezifisch traumasensiblen Ansatz können Sie jedoch noch nicht bei allen kassenzugelassenen PsychotherapeutInnenen erwarten. 
+
+Wenn Sie nach einem von einer Kasse übernommenen Therapieplatz suchen, so würde ich Ihnen ans Herz legen, sich unbedingt zu erkundigen, ob der,die anvisierte PsychotherapeutIn Fortbildungen absolviert hat und daher **traumaspezifische Behandlungsansätze** in der ambulanten Therapie berücksichtigen kann.
 
 
