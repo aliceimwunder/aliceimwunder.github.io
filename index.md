@@ -20,7 +20,7 @@ Hier finden Sie
 
 <strong>Lernen <a href="/about/">Sie mich näher kennen</a></strong>.
 
-Dazu lassen sich Fragen am leichtesten gemeinsam klären: ich biete Ihnen ein kostenfreies Kennenlern-Gespräch à 20min online an. 
+Fragen lassen sich am leichtesten gemeinsam klären: ich biete Ihnen ein kostenfreies Kennenlern-Gespräch à 20min per zoom an. Wenn Sie lieber telefonieren wollen oder technische Probleme mit zoom haben, können wir während des Termins auch klassisch telefonieren.  
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 [Termin buchen](https://traumatherapie.youcanbook.me)
