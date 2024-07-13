@@ -8,21 +8,30 @@ layout: default
 
 EMDR kann Sie mit einem **breiten Anwendungsbereich** unterstützen. 
 
-Bei mir fließen auch ähnliche Werkzeuge wie EMDR (z.B. EMI), dazu auch Klopftechniken, traumasensible Aufstellungs-Tools und Innere Kindheilung mit ein, sodass ich Sie bestmöglich auf Ihrem Weg begleiten kann. 
+In die Kurzzeit-Therapie können auch ähnliche Werkzeuge wie EMDR (z.B. EMI) einfließen, ergänzend Klopftechniken, traumasensible Aufstellungs-Tools und Innere Kindheilung einfließen, sodass ich Sie bestmöglich auf Ihrem Weg begleiten kann. 
 
 ----
 
 ### Sich frei und in sich stabil fühlen – Kurzzeit-Therapie mit EMDR
 
-Sie wünschen sich ein Leben, in dem Sie sich zentriert und wohl fühlen?  
+Sie wünschen sich ein Leben, in dem Sie sich **zentriert** und wohl fühlen?  
 
-Sie können sich ein Leben erschaffen, in dem Sie morgens erfrischt und voller Energie aufwachen, erholsame Nächte genießen und sich sicher und ruhig fühlen. 
+Sie können sich ein Leben erschaffen, in dem Sie morgens erfrischt und **voller Energie** aufwachen, erholsame Nächte genießen und sich sicher und ruhig fühlen. 
 
-Ein Leben, in dem Sie Ihre Gefühle im Griff haben, sich selbst wertschätzen und in Ihrem beruflichen sowie privaten Alltag voller Selbstvertrauen auftreten. 
+Ein Leben, in dem Sie Ihre Gefühle im Griff haben, sich selbst **wertschätzen** und in Ihrem beruflichen sowie privaten Alltag voller Selbstvertrauen auftreten. 
 
-In diesem neuen Leben  schmunzeln Sie über die Verrücktheiten des ein oder anderen in Ihrem Leben und Partner/Familie/Kinder begegnen Sie – auch  wenn Sie viel zu tun haben – mit liebevoller Geduld.
+In diesem neuen Leben schmunzeln Sie über die _Verrücktheiten_ des ein oder anderen in Ihrem Leben. Partner/Familie/Kinder begegnen Sie – auch  wenn Sie viel zu tun haben – mit liebevoller **Geduld**.
 
-→ Klar das will ich: Unverbindlichen Gesprächstermin buchen. 
+→ Klar das will ich: Kostenfreies unverbindlichen [**Vorgesprächstermin**](https://traumatherapie.youcanbook.me) buchen.
+- Kostenfrei
+- informativ
+- unverbindlich
+- bis zu 20 min nur für Sie.
+
+Oder Sie wenden sich direkt an mich:
+
+    Email: info@alicewindolf.de oder
+    Tel: 0160 704 7080
 
 
 ### Sie sind hier, weil es im Moment anders aussieht?
