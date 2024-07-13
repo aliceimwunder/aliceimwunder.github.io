@@ -5,7 +5,9 @@ layout: default
 
 <p></p>
 
-EMDR kann Sie mittlerweile mit einem breiten Anwendungsbereich unterstützen. Bei mir fließen auch ähnliche Werkzeuge wie EMDR (z.B. EMI), Klopftechniken, traumasensible Aufstellungs-Tools und Innere Kindheilung mit ein, sodass ich Sie bestmöglich auf Ihrem Weg begleiten kann. 
+EMDR kann Sie mit einem **breiten Anwendungsbereich** unterstützen. 
+
+Bei mir fließen auch ähnliche Werkzeuge wie EMDR (z.B. EMI), dazu auch Klopftechniken, traumasensible Aufstellungs-Tools und Innere Kindheilung mit ein, sodass ich Sie bestmöglich auf Ihrem Weg begleiten kann. 
 
 ----
 
