@@ -1,6 +1,5 @@
----
-title: Ihre Basis - Man kann nur verändern, was man wahrnimmt 
----
+## Ihre Basis - Man kann nur verändern, was man wahrnimmt 
+
 ### Achtsamkeitspraxis - Wheel of Awareness
 
 1. kostenfreie Abende in 2024 für alle, die meinen Newsletter beziehen: **13.9., 11.10., 8.11., 6.12.**, immer freitags von 18:30 - 19:30 Uhr, online und vor Ort im Aquariana, Am Tempelhofer Berg 7D, 10965 Berlin.
