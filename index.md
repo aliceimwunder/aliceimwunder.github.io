@@ -13,7 +13,7 @@ Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie ge
 
 Hier finden Sie 
 - Stressreduzierung mit effektivem [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
-- evidenzbasierte längerfristige [Traumatherapie, hp psych](/2023/02/09/Traumatherapie-in-Berlin.html),
+- evidenzbasierte längerfristige [Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html),
 - effiziente [EMDR-Kurzzeit-Therapie auf EMDR](/2024/07/13/EMDR-Kurzzeit-Therapie.html), 
 - ganzheitliches [Burnout Coaching](https://alicewindolf.de/2024/06/14/Ganzheitliches-Burnout-Coaching.html), 
 - in der Gruppe [Aurareinigung zur Stressreduzierung](/2023/02/10/Gruppenabende-Meditationsreisen).
