@@ -4,7 +4,7 @@ title: Tiefe Entspannung - Frische Energie - Aurareinigung
 Komm mit auf diese **wundervolle innere Reise** zu Deiner Energie. Gönn Dir diese seelische Auszeit für ein tiefenentspanntes Wochenende und Wohlfühlen in der eigenen Haut. 
 
 **Nächster Termin:**  
-- Freitag, den **07.06.2024, 19:00 Uhr auf zoom**. Thema: **Pure Lebensfreude - Inneres Leuchten**. Anmeldung per Email an: info@alicewindolf.de
+- Freitag, den **27.09.2024, 19:00 Uhr auf zoom**. Thema: **Kraft der Ahnen** - Ahnenreihe in den Körperzellen reinigen. Anmeldung per Email an: info@alicewindolf.de
 
 Wenn sich das Leben manchmal schwer anfühlt, Du denkst, das Leben sei kein Ponyhof, und Dir dadurch am Ende einer Arbeitswoche die **Lebensfreude** abhanden gekommen ist, dann komm zu diesem Abend. 
 
@@ -20,8 +20,6 @@ Dann bist Du bei meinen Aurareinigungen mit Bildern aus der **Inneren Kindheilun
 Energieausgleich: 30,-/25,- € 
 
 **Termine 2024 im Überblick**  
-- Frei, 07.06.2024, 19:00 Uhr: **Pure Lebensfreude - Inneres Leuchten**. Anmeldung per Email an: info@alicewindolf.de
-- Frei, 12.07.2024, 19:00 Uhr: **Lebensgenuss**: Sommer heißt Fülle in vollen Zügen genießen. 
 - Frei, 27.09.2024, 19:00 Uhr, **Kraft der Ahnen spüren**, Ahnenreihe in den Körperzellen reinigen
 - Frei, 25.10.2024, 19:00 Uhr: Thema noch offen
 - Frei, 22.11.2024, 19:00 Uhr: **Geborgenheit pur** - statt Weihnachtsstress - stimme Dich auf die Ruhe und Geborgenheit der Adventszeit ein. 
@@ -58,11 +56,11 @@ Die **Abende dauern gut 1,5h bis max. 2h** mit Ankommen im Gruppenraum, die eige
 ### Drückt Dich ein persönliches Thema? 
 Dann empfehle ich für eine ganz individuell ausgerichtete Aurareinigung [einen Einzeltermin](/2021/03/19/Einzelsitzungen.html) eine Einzelsitzung zu buchen. 
 
-Kosten Einzelsitzung: 120,- €
+Einzelsitzung à 50 min: 120,- €
 <br>Drei Sitzungen: 299,- €</br>
 <br>Ab sechs Sitzungen: 80,-,-/Sitzung</br>
 
 Dann richtet sich der Heilraum ganz auf Dich aus. 
 
-Die intensivsten Ergebnisse haben Klient:innen bisher zusammen mit **Innerer Kindheilung** in ihrem persönliches Wachstum erreichen können. 
+Die intensivsten Ergebnisse haben Klient:innen bisher in 6-10 Sitzungen zusammen mit **Innerer Kindheilung** in ihrem persönliches Wachstum erreichen können. 
 
