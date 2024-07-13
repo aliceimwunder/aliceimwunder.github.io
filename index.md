@@ -41,9 +41,17 @@ Die Vergangenheit lässt sich nicht mehr ändern. Dennoch: Ihre belastenden Erfa
 
 Wie Luise Reddemann, die große deutsche Traumatherapeutin, dazu formulierte: "Wir machen aus jedem Mist Dünger." 
 
-Wofür wollen Sie den Dünger in der Zukunft nutzen? Was wünschen Sie sich Neues in Ihrem Leben? **Vitalität**? Lebenskraft? Ausgeglichenheit? Inneres Loslassen können? **Inneren Freiraum**? Sich wertvoll fühlen? **Emotionale Stabilität**? Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. 
+Wofür wollen Sie den Dünger in der Zukunft nutzen? Was wünschen Sie sich Neues in Ihrem Leben? 
+- **Vitalität**? Lebenskraft?
+- Ausgeglichenheit?
+- Inneres Loslassen können?
+- **Inneren Freiraum**?
+- Sich wertvoll fühlen?
+- **Emotionale Stabilität**?
 
-Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
+Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Leben so großartig wird, wie Sie sich das erträumen. 
+
+**Ganzheitlich**: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
 
 ### Aktuelle Angebote meiner Praxis
 
