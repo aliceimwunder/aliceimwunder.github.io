@@ -43,7 +43,8 @@ Was wünschen Sie sich Neues in Ihrem Leben? **Vitalität**? Lebenskraft? Ausgeg
 Ganzheitlich: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
 
 ### Aktuelle Angebote meiner Praxis
-- **Freitag, den 12.07.2024, 19:00 Uhr**, **Geführte Meditation: [Lebensgenuss](https://alicewindolf.de/2024/07/08/Lebensgenuss-statt-Burnout.html))** mit Aurareinigung und heilsamen Klängen". 
+
+- **Freitag, den 27.09.2024, 19:00 Uhr**, **Geführte Meditation: [Kraft der Ahnen](/2023/02/10/Gruppenabende-Meditationsreisen)** mit Aurareinigung und heilsamen Klängen". 
 - **Freitag, den 13.09.2024, 18:30 Uhr. Wheel of Awareness: [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 
 ### Außerdem gibt es auch einen Blog und Newsletter :-)
