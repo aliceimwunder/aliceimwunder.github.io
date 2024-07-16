@@ -60,6 +60,10 @@ Was Dich in unserem Coaching erwartet:
 - **Tiefer Wandel** geht nicht über Nacht. Deswegen bietet Dir dieses Coaching-Programm kontinuierliche Unterstützung. Zusammen ist es so viel einfacher, Veränderungen nachhaltig zu gestalten.
 - Hol Dir diese **empathische Unterstützung** und fortlaufende Feedbacks, um sicherzustellen, dass Du auf einem klaren Weg zu Dir bleibst und Deine Ziele erreichst.
 
+**5. Trauma und Burnout - bei mir ist Coaching immer traumasensbibel** 
+- Nicht immer, aber erschreckend oft hängen Trauma und Burnout zusammen. Belastende Erfahrungen in der Vergangenheit können dazu führen, dass man die "Flucht nach vorne" antritt.
+- Bloß weg von einem Zustand in Familie, Schule oder Ausbildung. **Je mehr Leistung** man zeigt, desto weniger kann jemand noch einem etwas anhaben. Die Rechnung geht oft sehr lange auf, bis der Körper nicht mehr kann. Deswegen ist mein Coaching immer traumasensibel.   
+
 Ich bin jeden mir zur Verfügung stehenden Weg gegangen - Meditation, Yoga, Ernährung, Traumatherapie, Aufstellungen, Glaubenssätze wandeln, Energiearbeit uvm., um aus einem Zustand zurückzukehren, bei dem mir Ärzte wenig Hilfe mehr anbieten konnten. 
 
 Daher geht es bei mir nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie Du Dich **tiefgreifend innerlich so ausrichtest**, dass Du Deine **seelischen Selbstheilungskräfte** auf ein neues Level heben kannst.
