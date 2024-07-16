@@ -29,7 +29,7 @@ Sie brauchen Veränderung? Sie sind bereit, in sich zu investieren? Dann melden 
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
 
-(Meine Leistung ist leider nur für Selbstzahler möglich.*)
+(Meine Leistungen kann ich leider nur Selbstzahlern anbieten.*)
 
 ### Sie sind übrigens nicht alleine mit diesem Thema
 Schocktraumata können jeden von uns treffen. Das Leben hält manchmal überwältigende Ereignisse bereit, deren **seelische Folgen** nicht ignoriert werden sollten. Wie bei körperlichen Verletzungen ist es wichtig, auch die seelischen Wunden zu behandeln. 
