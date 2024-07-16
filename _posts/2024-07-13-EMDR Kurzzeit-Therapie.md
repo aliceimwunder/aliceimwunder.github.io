@@ -96,8 +96,8 @@ Bei tiefgehenden Traumatisierungen, wie Missbrauch oder Gewalt in der Kindheit, 
 
 ----
 #### *Eine Buchung bei mir ist eine Investition in Sie selbst
-- Gesetzliche Krankenkassen und Beihilfen übernehmen keine Kosten für Heilpraktiker für Psychotherapie. Private (Zusatz)Kassen bieten Zuschüsse an, wenn Heilpraktiker für Psychotherapie ausdrücklich in ihrem Leistungskatalog aufgeführt sind.
-- Eine steuerliche Absetzbarkeit kommt in Ausnahmefällen in Betracht, bspw. als Werbungskosten, wenn eine psychische Belsatung ausschließlich dem Beruf zuzuordnen ist (z.B. Schocktrauma durch Arbeitsunfall oder Burnout durch Mobbing) und ein ärztliches Attest dies ausdrücklich bestätigt.
+- Gesetzliche Krankenkassen und Beihilfen übernehmen keine Kosten für Heilpraktiker für Psychotherapie. Private (Zusatz)Kassen bieten **Zuschüsse** an, wenn Heilpraktiker für Psychotherapie ausdrücklich in ihrem Leistungskatalog aufgeführt sind.
+- Eine **steuerliche Absetzbarkeit** kommt in Ausnahmefällen in Betracht, bspw. als Werbungskosten, wenn eine psychische Belsatung ausschließlich dem Beruf zuzuordnen ist (z.B. Schocktrauma durch Arbeitsunfall oder Burnout durch Mobbing) und ein ärztliches Attest dies ausdrücklich bestätigt.
 - Soweit Sie eine Kostenübernahme anstreben, lassen Sie sich bitte vorher von einem Versicherungsmakler, Versicherer oder Lohnsteuerhilfeverein bzw. Steuerberater beraten, da ich nicht über die notwendigen Fachkenntnisse im Detail verfüge.
 
 #### Bitte bedenken Sie
