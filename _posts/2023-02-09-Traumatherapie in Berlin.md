@@ -14,16 +14,16 @@ Ja, aber...
 
 Zu Ihrer Orientierung habe ich Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt. Dazu können z.B. auch Depression oder psychosomatische Schmerzen gehören. Das Wort "Trauma" verwirrt oft, weil man an Katastrophen oder Krieg denkt. 
 
-Einige Menschen sind überdurchschnittlich **widerstandsfähig** und verarbeiten Schreckliches, andere wurden "nur" in der Schule gemobbt und haben später beißende Kopfschmerzen bei Teambesprechungen. Sie zweifeln an sich selbst, weil keine medizinische Ursache zu finden ist. War es früher wirklich so schlimm, dass man von Trauma sprechen kann? Wichtig ist, aus der Bewertung auzusteigen.
+Einige Menschen sind überdurchschnittlich **widerstandsfähig** und verarbeiten Schreckliches, andere wurden "nur" in der Schule gemobbt und haben später beißende Kopfschmerzen bei Teambesprechungen. Sie zweifeln an sich selbst, weil keine medizinische Ursache zu finden ist. War es früher wirklich so schlimm, dass man von Trauma sprechen kann? Wichtig ist, aus solchen Bewertungen auzusteigen.
 
-Denn es ist nicht aufbauend, sich mit anderen zu vergleichen. Wichtig ist, dass Ihr individuelles psychisches System überlastende **Erfahrungen** nicht verarbeiten konnte. Wir sind keine Roboter mit gleicher Hard- und Software. Ihre **Wahrheit** zählt.
+Denn es ist nicht aufbauend, sich mit anderen zu vergleichen. Interessant ist nur, ob Ihr **individuelles psychisches System** überlastende Erfahrungen nicht verarbeiten konnte. Wir sind keine Roboter mit gleicher Hard- und Software. Ihre **Wahrheit** zählt.
 
 ### Sind Sie mit Ihren Herausforderungen hier richtig?
-Ich unterstütze Menschen, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Sie müssen sich übrigens nicht an Details erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
+Ich unterstütze Menschen mit **Traumatherapie**, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Sie müssen sich übrigens nicht an Details erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
 
-Bei mir müssen Sie nicht in ein vorgefertigtes Raster eines psychiatrischen Fragebogens passen. Ich biete Ihnen einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten wird. Von **EMDR** über Zuhören bis zu inneren Aufstelungen und Körperübungen kann ich genau das zusammenstellen, was für Sie funktioniert. 
+Bei mir müssen Sie nicht in ein vorgefertigtes Raster eines psychiatrischen Fragebogens passen. Ich biete Ihnen einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten wird. Von **EMDR** über Zuhören bis zu inneren Aufstellungen und Körperübungen kann ich genau das zusammenstellen, was für Sie funktioniert. 
 
-Gerne können Sie mich in einem unverbindlichen kostenfreien **Vorgespräch** kennenlernen.
+Sie brauchen Veränderung? Sie sind bereit, in sich zu investieren? Dann melden Sie sich zu einem unverbindlichen kostenfreien **Vorgespräch** an.
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
