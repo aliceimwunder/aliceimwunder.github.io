@@ -95,7 +95,7 @@ EMDR kann sehr effizient sein, wenn man weiß, wann es angezeigt ist. Meiner Erf
 Bei tiefgehenden Traumatisierungen, wie Missbrauch oder Gewalt in der Kindheit, die die **Bindungsfähigkeit** beeinträchtigt haben, biete ich EMDR im Rahmen einer [längerfristigen Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html) an. EMDR kann tiefsitzende seelische Belastungen lösen, ersetzt aber nicht die Erfahrung **positiver Bindungen**.
 
 ----
-**Eine Buchung bei mir ist eine Investition in Sie selbst.**
+#### *Eine Buchung bei mir ist eine Investition in Sie selbst.
 - Gesetzliche Krankenkassen und Beihilfen übernehmen keine Kosten für Heilpraktiker für Psychotherapie. Private (Zusatz)Kassen bieten Zuschüsse an, wenn Heilpraktiker für Psychotherapie ausdrücklich in ihrem Leistungskatalog aufgeführt sind.
 - Eine steuerliche Absetzbarkeit kommt in Ausnahmefällen in Betracht, bspw. als Werbungskosten, wenn eine psychische Belsatung ausschließlich dem Beruf zuzuordnen ist (z.B. Schocktrauma durch Arbeitsunfall oder Burnout durch Mobbing) und ein ärztliches Attest dies ausdrücklich bestätigt.
 - Soweit Sie eine Kostenübernahme anstreben, lassen Sie sich bitte vorher von einem Versicherungsmakler, Versicherer oder Lohnsteuerhilfeverein bzw. Steuerberater beraten, da ich nicht über die notwendigen Fachkenntnisse im Detail verfüge.
