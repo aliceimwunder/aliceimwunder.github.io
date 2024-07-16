@@ -86,13 +86,13 @@ Zwar kann EMDR auch bei tiefgreifenden, jahrelangen Verletzungen aus der Kindhei
 ### Meine Erfahrung
 Mit vielen Jahren therapeutischer Erfahrung, sowohl als Klientin als auch als Heilpraktikerin, habe ich schon einiges ausprobiert. Ich habe Methoden kennengelernt, die wirklich helfen, und solche, die kaum Erfolge brachten. 
 
-EMDR kann sehr effizient sein, wenn man weiß, wann es angezeigt ist. Meiner Erfahrung nach kann man mit EMDR wie auf ein Gaspedal zur Verarbeitung von belastenden inneren Zuständen drücken. Daher ist auch Vorsicht bei tiefen Verletzungen aus der frühen Kindheit zu wahren, damit man keinen Rückfall in traumatische Erinnerungen verursacht.  
+EMDR kann sehr effizient sein, wenn man weiß, wann es angezeigt ist. Meiner Erfahrung nach kann man mit EMDR wie auf ein Gaspedal zur Verarbeitung von belastenden inneren Zuständen drücken. Theman, die sonst Wochen bis Monate benötigen, können in Stunden verarbeitet werden.    
 
 ### Wann ist EMDR nicht sinnvoll?
     • Schwangerschaft und Herz-Kreislauferkrankungen: EMDR kann ich nur mit einer fachärztlichen Bescheinigung über die Unbedenklichkeit für Sie anbieten.
-    • Epilepsie: Hier wird von bilateraler Stimulation durch Augenbewegungen oder Töne abgeraten. Stattdessen kann mit sanften Berührungen an den Händen gearbeitet werden.
+    • Epilepsie: Eine Stimulation durch Augenbewegungen ist nicht möglich. Stattdessen kann mit sanften Berührungen an den Händen gearbeitet werden. Ich bitte auch in diesem Fall um eine fachärztlich Abklärung, ob EMDR-Stimulation über die Hände unbedenklich ist.  
 
-Bei tiefgehenden Traumatisierungen, wie Missbrauch oder Gewalt in der Kindheit, die die **Bindungsfähigkeit** beeinträchtigt haben, biete ich EMDR im Rahmen einer [längerfristigen Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html) an. EMDR kann tiefsitzende seelische Belastungen lösen, ersetzt aber nicht die Erfahrung positiver Bindungen.
+Bei tiefgehenden Traumatisierungen, wie Missbrauch oder Gewalt in der Kindheit, die die **Bindungsfähigkeit** beeinträchtigt haben, biete ich EMDR im Rahmen einer [längerfristigen Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html) an. EMDR kann tiefsitzende seelische Belastungen lösen, ersetzt aber nicht die Erfahrung **positiver Bindungen**.
 
 ----
 **Eine Buchung bei mir ist eine Investition in Sie selbst.**
