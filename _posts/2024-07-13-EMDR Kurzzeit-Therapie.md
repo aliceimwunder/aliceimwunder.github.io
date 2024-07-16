@@ -13,16 +13,17 @@ In die Kurzzeit-Therapie können auch ähnliche Werkzeuge wie EMDR (z.B. EMI) ei
 ----
 
 ### Sich frei und in sich stabil fühlen – Kurzzeit-Therapie mit EMDR
-
 Sie wünschen sich ein Leben, in dem Sie sich **zentriert** und wohl fühlen?  
 
-Sie können sich ein Leben erschaffen, in dem Sie morgens erfrischt und **voller Energie** aufwachen, erholsame Nächte genießen und sich sicher und ruhig fühlen. 
+Ich bin mir sicher: Sie können sich ein Leben erschaffen, in dem Sie morgens erfrischt und **voller Energie** aufwachen, erholsame Nächte genießen und sich sicher und ruhig fühlen. 
 
-Ein Leben, in dem Sie Ihre Gefühle im Griff haben, sich selbst **wertschätzen** und in Ihrem beruflichen sowie privaten Alltag voller Selbstvertrauen auftreten. 
+Ein Leben, in dem Sie Ihre Gefühle im Griff haben, sich selbst **wertschätzen** und in Ihrem beruflichen sowie privaten Alltag mit Selbstvertrauen auftreten. 
 
 In diesem neuen Leben schmunzeln Sie über die _Verrücktheiten_ des ein oder anderen in Ihrem Leben. Partner/Familie/Kinder begegnen Sie – auch  wenn Sie viel zu tun haben – mit liebevoller **Geduld**.
 
 → Klar das will ich: Kostenfreies unverbindlichen [**Vorgesprächstermin**](https://traumatherapie.youcanbook.me) buchen.
+
+**Das Gespräch ist**
 - Kostenfrei
 - informativ
 - unverbindlich
@@ -33,14 +34,16 @@ Oder Sie wenden sich direkt an mich:
     Email: info@alicewindolf.de oder
     Tel: 0160 704 7080
 
+Meine Leistungen kann ich leider nur Selbstzahlern anbieten.* 
 
-### Sie sind hier, weil es im Moment nicht ideal aussieht?
+
+### Sie sind hier, weil es im Moment nicht so ideal in Ihrem Leben aussieht?
 - Unverarbeitetes **Schocktrauma**: Die Erinnerungen an traumatische Erlebnisse verfolgen Sie und beeinträchtigen jeden Aspekt Ihres Lebens.
 - **Schlafstörungen** und Albträume: Nächte voller Unruhe und Albträume rauben Ihnen den erholsamen Schlaf, den Sie so dringend benötigen.
 - Emotionale Überwältigung und **Angstzustände**: Sie werden oft von intensiven Gefühlen und plötzlichen Angstattacken überwältigt, die Sie nicht kontrollieren können.
 - **Selbstwertprobleme** und negative Denkmuster: Tiefe Selbstzweifel und ein endloser Strom negativer Gedanken machen es Ihnen schwer, sich selbst zu akzeptieren und zu lieben.
 - Burnout und **chronischer Stress**: Die ständige Überforderung und der immense Druck, sei es im Beruf oder privat, lassen Sie erschöpft und ausgebrannt zurück.
-- **Beziehungsprobleme**: Immer wieder treten dieselben Muster auf, die Sie schon so lange verändern wollten, um endlich neue, liebevollere Wege gehen zu können. 
+- **Beziehungsprobleme**: Immer wieder treten dieselben belastenden Muster auf. Sie wollten Sie schon so lange verändern, um endlich neue, liebevollere Wege in bestehenden oder neuen Beziehungen eingehen zu können, aber die alten Muster sind so hartnäckig. 
 
 **Dann kann EMDR Sie unterstützen.**
 
@@ -92,13 +95,13 @@ EMDR kann sehr effizient sein, wenn man weiß, wann es angezeigt ist. Meiner Erf
 Bei tiefgehenden Traumatisierungen, wie Missbrauch oder Gewalt in der Kindheit, die die **Bindungsfähigkeit** beeinträchtigt haben, biete ich EMDR im Rahmen einer [längerfristigen Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html) an. EMDR kann tiefsitzende seelische Belastungen lösen, ersetzt aber nicht die Erfahrung positiver Bindungen.
 
 ----
-Eine Buchung bei mir ist eine Investition in Sie selbst.
+**Eine Buchung bei mir ist eine Investition in Sie selbst.**
 - Gesetzliche Krankenkassen und Beihilfen übernehmen keine Kosten für Heilpraktiker für Psychotherapie. Private (Zusatz)Kassen bieten Zuschüsse an, wenn Heilpraktiker für Psychotherapie ausdrücklich in ihrem Leistungskatalog aufgeführt sind.
 - Eine steuerliche Absetzbarkeit kommt in Ausnahmefällen in Betracht, bspw. als Werbungskosten, wenn eine psychische Belsatung ausschließlich dem Beruf zuzuordnen ist (z.B. Schocktrauma durch Arbeitsunfall oder Burnout durch Mobbing) und ein ärztliches Attest dies ausdrücklich bestätigt.
 - Soweit Sie eine Kostenübernahme anstreben, lassen Sie sich bitte vorher von einem Versicherungsmakler, Versicherer oder Lohnsteuerhilfeverein bzw. Steuerberater beraten, da ich nicht über die notwendigen Fachkenntnisse im Detail verfüge.
 
-### Bitte bedenken Sie
-Vergangenheitsbewältigung mag mittlerweile offen diskutiert werden. EMDR wird meist dazu genutzt, um etwas aus der Vergangenheit endlich zu verarbeiten. Daher ist mein Vorgehen immer traumasensibel. 
+#### Bitte bedenken Sie
+EMDR wird meist dazu genutzt, um etwas aus der Vergangenheit endlich zu verarbeiten. Daher ist mein Vorgehen immer traumasensibel. **Vergangenheitsbewältigung** mag mittlerweile offen diskutiert werden.  
 
 Einen spezifisch traumasensiblen Ansatz können Sie jedoch noch nicht bei allen kassenzugelassenen PsychotherapeutInnenen erwarten. 
 
