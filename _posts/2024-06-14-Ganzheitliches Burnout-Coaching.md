@@ -20,7 +20,7 @@ Du brauchst sofort eine Lösung? Dann buch Dir hier ein unverbindliches
 [Kennenlerngespräch](https://traumatherapie.youcanbook.me).
 </span>
 
-Aus bitterer **Erfahrung** weiß ich, dass man einen Zustand aus Erschöpfung, Überforderung oder chronischem Stress nicht endlos vor sich her schieben sollte. Genau so sah früher viele Jahre mein Leben aus. Bis mein Körper einfach nachgab. Burnout, Herzinfarkt. Endstation. Bereits mit Anfang 40. Es ging tatsächlich nicht mehr weiter. 
+Aus bitterer **Erfahrung** weiß ich, dass man einen Zustand aus Erschöpfung, Überforderung oder chronischem Stress nicht endlos vor sich her schieben sollte. Denn genau so sah früher viele Jahre mein Leben aus. Bis mein Körper einfach nachgab. Burnout, Herzinfarkt. Endstation. Bereits mit Anfang 40. Es ging tatsächlich nicht mehr weiter. 
 
 Dabei sah mein Leben von außen gut aus: Juristin mit Führungsaufgaben, Familie mit Lieblingsmann und großartiger Tochter, große Wohnung in ruhiger Umgebung mit Gärtchen in Berlin. Ich hatte mir ein **gesellschaftlich anerkanntes Leben** aufgebaut – nur leider war es nicht das, wonach sich meine Seele sehnte.   
  
@@ -60,14 +60,19 @@ Was Dich in unserem Coaching erwartet:
 - **Tiefer Wandel** geht nicht über Nacht. Deswegen bietet Dir dieses Coaching-Programm kontinuierliche Unterstützung. Zusammen ist es so viel einfacher, Veränderungen nachhaltig zu gestalten.
 - Hol Dir diese **empathische Unterstützung** und fortlaufende Feedbacks, um sicherzustellen, dass Du auf einem klaren Weg zu Dir bleibst und Deine Ziele erreichst.
 
-Ich bin jeden mir zur Verfügung stehenden Weg gegangen - Meditation, Yoga, Ernährung, Traumatherapie, Aufstellungen, Glaubenssätze wandeln, Energiearbeit uvm., um aus einem Zustand zurückzukehren, bei dem mir Ärzte wenig Hilfe mehr anbieten konnten. Daher geht es bei mir nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie Du Dich tiefgreifend innerlich so ausrichtest, dass Du Deine **seelischen Selbstheilungskräfte** auf ein neues Level heben kannst.
+Ich bin jeden mir zur Verfügung stehenden Weg gegangen - Meditation, Yoga, Ernährung, Traumatherapie, Aufstellungen, Glaubenssätze wandeln, Energiearbeit uvm., um aus einem Zustand zurückzukehren, bei dem mir Ärzte wenig Hilfe mehr anbieten konnten. 
 
-Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom von ca. 20 min. Fragen klären im 
+Daher geht es bei mir nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie Du Dich **tiefgreifend innerlich so ausrichtest**, dass Du Deine **seelischen Selbstheilungskräfte** auf ein neues Level heben kannst.
+
+Passen wir zusammen? 
+
+Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom von ca. 20 min. Fragen klären im 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
-[Kennenlerngespräch.](https://traumatherapie.youcanbook.me)
-</
+[Kennenlerngespräch.](https://traumatherapie.youcanbook.me)</
 
-PS: Burnout-Coaching ist in Ausnahmefällen steuerlich als Werbungskosten absetzbar. Dazu bedarf es eines ärztlichen Attestes, dass deutlich darlegt, dass der Burnout ausschließlich beruflichen Umständen zuzuschreiben ist (bspw. weil Mobbing, Gaslightning oder Bossing im Arbeitsumfeld zu diesem Zustand geführt hat). Da ich keine Fachkenntnisse im Bereich Steuern habe, lassen Sie sich bitte vorab von einem Lohnsteuerhilfeverein oder Steuerberater beraten.
+----
+#### PS: Burnout-Coaching ist eine Investition in sich selbst.  
+In Ausnahmefällen ist es steuerlich als **Werbungskosten** absetzbar. Dazu bedarf es eines ärztlichen Attestes, dass darlegt, dass der Burnout *ausschließlich beruflichen Umständen* zuzuschreiben ist (bspw. weil Mobbing, Gaslightning oder Bossing im Arbeitsumfeld zu diesem Zustand geführt hat). Da ich keine Fachkenntnisse im Bereich Steuern habe, lassen Sie sich bitte vorab von einem Lohnsteuerhilfeverein oder SteuerberaterIn beraten.
 
 
 
