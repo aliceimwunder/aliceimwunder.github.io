@@ -23,11 +23,13 @@ Ich unterstütze Menschen mit **Traumatherapie**, die harte Zeiten erlebt haben 
 
 Bei mir müssen Sie nicht in ein vorgefertigtes Raster eines psychiatrischen Fragebogens passen. Ich biete Ihnen einen **individuellen Ansatz**, der auf Ihre spezifischen Bedürfnisse zugeschnitten wird. Von **EMDR** über Zuhören bis zu inneren Aufstellungen und Körperübungen kann ich genau das zusammenstellen, was für Sie funktioniert. 
 
-Sie brauchen Veränderung? Sie sind bereit, in sich zu investieren? Dann melden Sie sich zu einem unverbindlichen kostenfreien **Vorgespräch** an.
+Sie brauchen Veränderung? Sie sind bereit, in sich zu investieren? Dann melden Sie sich zu einem unverbindlichen kostenfreien **Vorgespräch** an. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
+
+(Meine Leistung ist leider nur für Selbstzahler möglich.*)
 
 ### Sie sind übrigens nicht alleine mit diesem Thema
 Schocktraumata können jeden von uns treffen. Das Leben hält manchmal überwältigende Ereignisse bereit, deren **seelische Folgen** nicht ignoriert werden sollten. Wie bei körperlichen Verletzungen ist es wichtig, auch die seelischen Wunden zu behandeln. 
