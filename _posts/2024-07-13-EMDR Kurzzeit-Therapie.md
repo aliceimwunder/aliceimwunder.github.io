@@ -80,8 +80,8 @@ Kosten:
 - 120,- € pro Sitzung à 120 min.
 - Nur Selbstzahler möglich.*   
 
-Bei schweren Bindungs- und Entwicklungstraumata aus der frühen Kindheit: 
-<p>Zwar kann EMDR auch bei tiefgreifenden, jahrelangen Verletzungen aus der Kindheit genutzt werden, solche Schatten der Vergangenheit sind aber in einer [**längerfristigen Traumatherapie**](/2023/02/09/Traumatherapie-in-Berlin.html) besser aufgehoben. Bitte gehen Sie bei solchen Erfahrungen viel geduldiger mit sich um.</p>
+#### Bei schweren Bindungs- und Entwicklungstraumata aus der frühen Kindheit: 
+Zwar kann EMDR auch bei tiefgreifenden, jahrelangen Verletzungen aus der Kindheit genutzt werden, solche Schatten der Vergangenheit sind aber in einer [**längerfristigen Traumatherapie**](/2023/02/09/Traumatherapie-in-Berlin.html) besser aufgehoben. Bitte gehen Sie bei solchen Erfahrungen viel geduldiger mit sich um.
 
 ### Meine Erfahrung
 Mit vielen Jahren therapeutischer Erfahrung, sowohl als Klientin als auch als Heilpraktikerin, habe ich schon einiges ausprobiert. Ich habe Methoden kennengelernt, die wirklich helfen, und solche, die kaum Erfolge brachten. 
