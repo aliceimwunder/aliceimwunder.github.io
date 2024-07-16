@@ -132,7 +132,7 @@ Oder Sie wenden sich direkt an mich:
 - Eine **steuerliche Absetzbarkeit** kommt in _Ausnahmefällen_ in Betracht, bspw. als **Werbungskosten**, wenn die Traumatisierung ausschließlich dem Beruf zuzuordnen ist (z.B. Arbeitsunfall) und ein ärztliches Attest dies ausdrücklich bestätigt.
 - Soweit Sie eine Kostenübernahme anstreben, lassen Sie sich bitte vorher von einem Versicherungsmakler, Versicherer oder Lohnsteuerhilfeverein bzw. Steuerberater beraten, da ich nicht über die notwendigen Fachkenntnisse im Detail verfüge.
 
-### Bitte bedenken Sie
+#### Bitte bedenken Sie
 Vergangenheitsbewältigung mag mittlerweile offen diskutiert werden. Einen spezifisch traumatherapeutischen Ansatz können Sie jedoch noch nicht bei allen kassenzugelassenen PsychotherapeutInnenen erwarten. Wenn Sie nach einem von einer Kasse übernommenen Therapieplatz suchen, so würde ich Ihnen ans Herz legen, sich unbedingt zu erkundigen, ob der,die anvisierte PsychotherapeutIn Fortbildungen absolviert hat und daher **traumaspezifische Behandlungsansätze** in der ambulanten Therapie berücksichtigen kann. 
 
 
