@@ -17,7 +17,7 @@ Ich bin mir sicher: Sie können sich ein Leben erschaffen, in dem Sie morgens er
 
 Ein Leben, in dem Sie Ihre Gefühle im Griff haben, sich selbst **wertschätzen** und in Ihrem beruflichen sowie privaten Alltag mit **Selbstvertrauen** auftreten. 
 
-In diesem neuen Leben schmunzeln Sie über die _Verrücktheiten_ des ein oder anderen in Ihrem Leben. Partner/Familie/Kinder begegnen Sie – auch  wenn Sie viel zu tun haben – mit liebevoller **Geduld**.
+In einem solchen Leben schmunzeln Sie über die _Verrücktheiten_ des ein oder anderen in Ihrem Leben. Partner/Familie/Kinder begegnen Sie mit liebevoller **Geduld**, auch  wenn Sie viel zu tun haben, statt dass die Nerven ständig gereizt sind.
 
 In die Kurzzeit-Therapie können auch ähnliche Werkzeuge wie EMDR (z.B. EMI) einfließen, ergänzend dazu Klopftechniken, traumasensible Aufstellungs-Tools und Innere Kindheilung, sodass ich Sie bestmöglich auf Ihrem Weg begleiten kann. 
 
