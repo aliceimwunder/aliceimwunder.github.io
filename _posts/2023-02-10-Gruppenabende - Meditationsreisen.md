@@ -71,7 +71,7 @@ Einzelsitzung à 50 min: 120,- €
 Dann richtet sich der Heilraum ganz auf Dich aus. 
 
 ### Empfehlung
-Die intensivsten Ergebnisse haben Klient:innen bisher in 6-10 Sitzungen _zusammen_ mit **Innerer Kindheilung** in ihrem persönliches Wachstum erreichen können. 
+Die intensivsten Ergebnisse haben Klient:innen bisher in 6-10 Sitzungen _zusammen_ mit **Innerer Kindheilung** in ihrem persönlichen Wachstum erreichen können. 
 Buch Dir hierzu einen Termin für ein kostenfreies Info-Gespräch. 
 
 <span style='display:inline-block;padding:12px;background:#30A0ff'>
