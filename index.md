@@ -54,8 +54,8 @@ Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Lebe
 **Ganzheitlich**: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
 
 ### Aktuelle Angebote meiner Praxis
-- **Freitag, den 11.10.2024, 18:30 Uhr. Wheel of Awareness: [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
-- **Frei, 25.10.2024, 19:00 Uhr: "Einklang" - Lass körperliche und seelische Ebenen in Harmonie bringen. Aktiviere Deine [Selbstheilungsheilungskräfte](/2023/02/10/Gruppenabende-Meditationsreisen).** mit Aurareinigung und heilsamen Klängen". 
+- **Frei, 06.12.2024, 18:30 Uhr. Wheel of Awareness: [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
+- **Do, 30.01.2025, 18:30 Uhr: "Neustart 2025" - Lass Dir 2025 Fülle bringen. Aktiviere Deine [innere Kraft und starte frisch ins neue Jahr](/2023/02/10/Gruppenabende-Meditationsreisen).** mit Aurareinigung und heilsamen Klängen". 
 
 ### Außerdem gibt es auch einen Blog und Newsletter :-)
  <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Informatives aus dem Bereich Persönlichkeitswachstum, Innere Kindheilung, Coaching und Spiritualität, für ein kraftvolles Leben, selbstbestimmt in Leichtigkeit und Freude. Von wissenschaftlich Interessantem über Naturheilkunde bis spirituell Erweiterndes.
