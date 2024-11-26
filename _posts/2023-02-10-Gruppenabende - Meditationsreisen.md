@@ -28,10 +28,10 @@ Dann bist Du bei meinen Aurareinigungen mit Bildern aus der **Inneren Kindheilun
 
 Energieausgleich: 30,-/25,- € 
 
-**Termine 2024 im Überblick**  
-- Frei, 22.11.2024, 19:00 Uhr: **Geborgenheit pur** - statt Weihnachtsstress - stimme Dich auf die Ruhe und Geborgenheit der Adventszeit ein.
-- Frei, 25.10.2024, 19:00 Uhr: "**Einklang** - körperliche und seelische Ebenen in Harmonie bringen und damit Selbstheilungsheilungskräfte aktivieren.
-- Frei, 27.09.2024, 19:00 Uhr, **Kraft der Ahnen spüren**, Ahnenreihe in den Körperzellen reinigen
+**Die nächsten Termine in 2025 im Überblick**  
+- Do, 30.01.2025, 18:30 Uhr: **Neutstart und Fülle für 2025** - statt Weihnachtsstress - stimme Dich auf die Ruhe und Geborgenheit der Adventszeit ein.
+- Do, 27.02.2024, 18:30 Uhr: "**Freiheit** - lass gesellschaftliche Normen und familiäre Muster in Deinen Gedanken los. Denn Du hast ein Recht auf Deinen FREIEN Willen.
+- Do, 03.04.2024, 18:30 Uhr, **Schöpferkraft**, Stress bringt oft einen Tunnelblick auf das, was getan werden muss. Stress und Kreativität schließen sich aus. Stattdessen: Was will getan werden? Was will Du in Deinem Leben Positives erschaffen?
 
 Dabei reinige ich tiefgreifend die Aura und integriere neue Impulse. Eine **leichte Trance** entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung verwendet werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Dadurch ist die Aurareinigung auch traumasensibel. 
 
