@@ -2,8 +2,8 @@
 
 ### Achtsamkeitspraxis - Wheel of Awareness
 
-1. kostenfreie Abende in 2024 für alle, die meinen Newsletter beziehen: **13.9., 11.10., 8.11., 6.12.**, immer freitags von 18:30 - 19:30 Uhr, online und vor Ort im Aquariana, Am Tempelhofer Berg 7D, 10965 Berlin.
-2. Nächster laufender Kurs: 18.9., mittwochs, 12:15-13:00, 6 Termine, gesamt 59,-€, oder 32,-/Monat, nur online per zoom.
+1. kostenfreie Abende in 2024 für alle, die meinen Newsletter beziehen: immer von 18:30 - 19:30 Uhr, **Frei, 6.12.2024** und 2025: **Mo, 13.1., 10.2., 10.3., 14.4., 12.5.**, online und vor Ort im Aquariana, Am Tempelhofer Berg 7D, 10965 Berlin.
+2. laufender Kurs: , 6 Termine, mittags, gesamt 59,-€, oder 32,-/Monat, nur online per zoom.
 
 Und hier zum Anmelden für den Newsletter: **[Info-Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html)** entstehen keine weiteren Kosten. 
 
