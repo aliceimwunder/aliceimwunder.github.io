@@ -69,10 +69,10 @@ Meistens wird EMDR im Rahmen einer Kurzzeittherapie eingesetzt. Der Ablauf sieht
 
 Dabei handelt es sich um durchschnittliche Erfahrungswerte. Was Sie konkret brauchen, stimmen wir gemeinsam ab. 
 
-Die **Bestandsaufnahme- und Abschlusssitzungen** dauern jeweils 50 Minuten, während die **EMDR-Kernsitzungen** 90 Minuten umfassen.
+Die **Bestandsaufnahme- und Abschlusssitzungen** dauern jeweils 50 Minuten, während die **EMDR-Kernsitzungen** 80 Minuten umfassen.
 Kosten: 
-- 80,- € pro Sitzung à 50 min
-- 120,- € pro Sitzung à 120 min.
+- 90,- € pro Sitzung à 50 min
+- 135,- € pro Sitzung à 80 min.
 - Nur Selbstzahler möglich.*   
 
 #### Bei schweren Bindungs- und Entwicklungstraumata aus der frühen Kindheit: 
