@@ -57,7 +57,7 @@ Kurz gefasst: **Ziel einer Traumatherapie** ist es, dass Sie Ihre Gefühle wahrn
 - Mehrjährige Erfahrung.
 - Einen sicheren Raum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez) oder östlich von Berlin in Briesen/Mark.
 - Einfühlsame und vertrauensvolle Begleitung.
-- Kostengünstige Sitzungen zu 80,-€/Sitzung (nur Selbstzahler).*
+- Kostengünstige Sitzungen zu 90,-€/Sitzung (nur Selbstzahler).*
 - Sofortige Terminverfügbarkeit.
 - Sitzungen auch auf Englisch möglich.
 - Flexible Terminoptionen: wöchentlich oder alle zwei Wochen, je nach Bedarf. (Auch ideal zur Überbrückung der Wartezeit auf einen kassenfinanzierten Therapieplatz.)
