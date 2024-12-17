@@ -8,6 +8,7 @@ Komm mit auf diese **wundervolle innere Reise** zu Deiner Energie. Gönn Dir die
 - Anmeldung per Email an: info@alicewindolf.de
 
 Diese Abende tun Dir gut: 
+- Stressabbau, eigenen Energiefluss harmonisieren, Fremdeinflüsse reduzieren.
 - Regelmäßig stattfindender Gruppenabend zu unterschiedlichen Themen.
 - geführte Meditation mit Aurareinigung und heilsamen Klänge. 
 - donnerstags, meist alle zwei Monate, 18:30 Uhr, ca. 1,5-2h.
