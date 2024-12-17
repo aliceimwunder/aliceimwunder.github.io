@@ -3,14 +3,16 @@ title: Tiefe Entspannung - Frische Energie - Aurareinigung
 ---
 Komm mit auf diese **wundervolle innere Reise** zu Deiner Energie. Gönn Dir diese seelische Auszeit für ein tiefenentspanntes Wochenende mit Wohlfühlen in der eigenen Haut. 
 
+**Nächster Termin:**  
+- Do, 30.01.2025, 18:30 Uhr: **Neutstart und Fülle für 2025** - Neujahrsvorsätze schon wieder vergessen? Sich ganz auf das Neue Jahr einlassen und Fülle in Leichtigkeit einladen.
+- Anmeldung per Email an: info@alicewindolf.de
+
+Diese Abende tun Dir gut: 
 - Regelmäßig stattfindender Gruppenabend zu unterschiedlichen Themen.
 - geführte Meditation mit Aurareinigung und heilsamen Klänge. 
-- freitags, meist alle zwei Monate, 19:00 Uhr, ca. 1,5-2h.
-- Mitmachen im Aquariana vor Ort oder auf zoom mit audio-Aufnahme der Meditation, die ich Dir per link zum Nachhören bekommst.  
+- donnerstags, meist alle zwei Monate, 18:30 Uhr, ca. 1,5-2h.
+- Mitmachen im Aquariana **vor Ort** oder auf **zoom** mit audio-Aufnahme der Meditation, die ich Dir per link zum Nachhören bekommst.  
 
-**Nächster Termin:**  
-- Frei, 25.10.2024, 19:00 Uhr: "**Einklang** - Lass körperliche und seelische Ebenen in Harmonie bringen. Aktiviere für Dich Deine Selbstheilungsheilungskräfte.
-- Achtung: Wegen Herbstferien diesmal nur **auf zoom**. Anmeldung per Email an: info@alicewindolf.de
 
 ### Wann unterstützen Dich diese Abende?
 Wenn sich das Leben manchmal schwer anfühlt, Du denkst, das Leben sei kein Ponyhof, und Dir dadurch am Ende einer Arbeitswoche die **Lebensfreude** im Stress abhanden gekommen ist, dann komm zu diesen Abenden. 
@@ -29,7 +31,7 @@ Dann bist Du bei meinen Aurareinigungen mit Bildern aus der **Inneren Kindheilun
 Energieausgleich: 30,-/25,- € 
 
 **Die nächsten Termine in 2025 im Überblick**  
-- Do, 30.01.2025, 18:30 Uhr: **Neutstart und Fülle für 2025** - statt Weihnachtsstress - stimme Dich auf die Ruhe und Geborgenheit der Adventszeit ein.
+- Do, 30.01.2025, 18:30 Uhr: **Neutstart und Fülle für 2025** - Neujahrsvorsätze schon wieder vergessen? Sich ganz auf das Neue Jahr einlassen und Fülle in Leichtigkeit einladen.
 - Do, 27.02.2024, 18:30 Uhr: "**Freiheit** - lass gesellschaftliche Normen und familiäre Muster in Deinen Gedanken los. Denn Du hast ein Recht auf Deinen FREIEN Willen.
 - Do, 03.04.2024, 18:30 Uhr, **Schöpferkraft**, Stress bringt oft einen Tunnelblick auf das, was getan werden muss. Stress und Kreativität schließen sich aus. Stattdessen: Was will getan werden? Was will Du in Deinem Leben Positives erschaffen?
 
