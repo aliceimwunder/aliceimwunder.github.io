@@ -8,12 +8,13 @@ Komm mit auf diese **wundervolle innere Reise** zu Deiner Energie. Gönn Dir die
 - Anmeldung per Email an: info@alicewindolf.de
 
 Diese Abende tun Dir gut: 
-- Stressabbau, eigenen Energiefluss harmonisieren, Fremdeinflüsse reduzieren.
+- **Stressabbau**, eigenen Energiefluss harmonisieren, Fremdeinflüsse reduzieren.
 - Regelmäßig stattfindender Gruppenabend zu unterschiedlichen Themen.
-- geführte Meditation mit Aurareinigung und heilsamen Klänge. 
-- donnerstags, meist alle zwei Monate, 18:30 Uhr, ca. 1,5-2h.
-- Mitmachen im Aquariana **vor Ort** oder auf **zoom** mit audio-Aufnahme der Meditation, die ich Dir per link zum Nachhören bekommst.  
-
+- geführte Meditation mit Aurareinigung und **heilsamen Klänge**. 
+- donnerstags, meist alle zwei Monate, 18:30 Uhr, ca. 1,5-2h (Termine siehe weiter unten).
+- Mitmachen im Aquariana **vor Ort** oder auf **zoom**,
+- mit **audio-Aufnahme** der ganz auf die Teilnehmer eingestimmten Meditation, die ich Dir per link zum Nachhören zusende.
+- Energieausgleich pro Abend: 35,- €, bei Buchung von drei Abenden: 30,-€/Abend.
 
 ### Wann unterstützen Dich diese Abende?
 Wenn sich das Leben manchmal schwer anfühlt, Du denkst, das Leben sei kein Ponyhof, und Dir dadurch am Ende einer Arbeitswoche die **Lebensfreude** im Stress abhanden gekommen ist, dann komm zu diesen Abenden. 
@@ -52,7 +53,7 @@ Mehr Infos zu den Themen der Abende: Bleib auf dem Laufenden mit meinem [Newslet
 ### Starte geerdet in Dein Wochenende mit dieser Gruppenmeditation. 
 Anmeldung: Schreibe mir **einfach eine Email: info@alicewindolf.de**, dass Du dabei sein willst. 
 
-Wenn Du gerne tiefergehende Infos zu den einzelnen Themen haben wollen, können Sie sich zu meinem Info-Letter anmelden:  
+Wenn Du gerne tiefergehende Infos zu den einzelnen Themen haben wollen, kannst Du Dich zu meinem Info-Letter anmelden:  
 <span style='display:inline-block;padding:18px;background:#ececec'>
 **[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 </span>
@@ -67,11 +68,11 @@ Die **Abende dauern gut 1,5h bis max. 2h** mit Ankommen im Gruppenraum, die eige
 ### Drückt Dich ein persönliches Thema? 
 Dann empfehle ich für eine ganz individuell ausgerichtete Aurareinigung **[einen Einzeltermin](/2021/03/19/Einzelsitzungen.html)** zu buchen. 
 
-Einzelsitzung à 50 min: 120,- €
-<br>Drei Sitzungen: 299,- €</br>
-<br>Ab sechs Sitzungen: 80,-,-/Sitzung</br>
+Einzelsitzung à 50 min: 125,- €
+<br>Drei Sitzungen: 305,- €</br>
+<br>Ab sechs Sitzungen: 90,-,-/Sitzung</br>
 
-Dann richtet sich der Heilraum ganz auf Dich aus. 
+Dann richtet sich der Heilraum ganz auf Dich aus. Hier kann ich auf individuellen Themen eingehen, wie z.B. energetische Verbindungen zu einer Kirche/Sekte tiefgreifend lösen, Nachwirkungen von Experimenten aus der Kindheit beseitigen, Erschütterungen von Unfällen harmonisieren, Sehnsucht nach der eigenen Spiritualität erfüllen.  
 
 ### Empfehlung
 Die intensivsten Ergebnisse haben Klient:innen bisher in 6-10 Sitzungen _zusammen_ mit **Innerer Kindheilung** in ihrem persönlichen Wachstum erreichen können. 
