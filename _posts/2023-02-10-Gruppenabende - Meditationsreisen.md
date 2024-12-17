@@ -4,7 +4,7 @@ title: Tiefe Entspannung - Frische Energie - Aurareinigung
 Komm mit auf diese **wundervolle innere Reise** zu Deiner Energie. Gönn Dir diese seelische Auszeit für ein tiefenentspanntes Wochenende mit Wohlfühlen in der eigenen Haut. 
 
 **Nächster Termin:**  
-- Do, 30.01.2025, 18:30 Uhr: **Neutstart und Fülle für 2025** - Neujahrsvorsätze schon wieder vergessen? Sich ganz auf das Neue Jahr einlassen und Fülle in Leichtigkeit einladen.
+- **Do, 30.01.2025,** 18:30 Uhr: **Neutstart und Fülle für 2025** - Neujahrsvorsätze schon wieder vergessen? Sich ganz auf das Neue Jahr einlassen und Fülle in Leichtigkeit einladen.
 - Anmeldung per Email an: info@alicewindolf.de
 
 Diese Abende tun Dir gut: 
