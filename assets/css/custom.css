@@ -7,11 +7,15 @@
   transition: 0.3s;
   text-decoration: none;
   box-sizing: border-box;
-  color: rgb(0, 0, 0);
   padding: 15px 45px;
   font-size: 18px;
   font-weigth: bold;
   color: black;
   background: rgb(255, 227, 71);
   border-radius: 5px;
+}
+
+.calltoaction:hover {
+  color: white;
+  background: #f56a6a;
 }
