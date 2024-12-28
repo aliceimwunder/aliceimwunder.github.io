@@ -1,4 +1,4 @@
-.calltoaction {
+.calltoaction a {
   border: 1px solid rgb(255, 255, 255);
   cursor: pointer;
   opacity: 1;
@@ -15,7 +15,7 @@
   border-radius: 5px;
 }
 
-.calltoaction:hover {
+.calltoaction a:hover {
   color: white;
   background: #f56a6a;
 }
