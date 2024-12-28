@@ -1,14 +1,5 @@
 .calltoaction {
-  display: flex !important;
-  flex-direction: column;
-  -moz-box-align: center;
-  align-items: center;
-  -moz-box-pack: center;
-  justify-content: center;
-  font-weight: inherit;
-  font-style: inherit;
   border: 1px solid rgb(255, 255, 255);
-  text-align: center;
   cursor: pointer;
   opacity: 1;
   word-break: break-word;
@@ -17,10 +8,8 @@
   text-decoration: none;
   box-sizing: border-box;
   color: rgb(0, 0, 0);
-  width: auto;
   padding: 15px 45px;
   font-size: 18px;
-  align-self: flex-start;
   background: rgb(255, 227, 71);
   border-radius: 5px;
 }
