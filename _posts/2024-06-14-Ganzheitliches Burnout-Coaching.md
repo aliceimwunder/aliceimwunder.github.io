@@ -16,7 +16,7 @@ layout: default
 - vielleicht sogar schon innerlich erstarrt zu sein angesichts der täglichen Aufgaben, weil es einfach **nicht mehr so weiter** geht?
 
 Du brauchst sofort eine Lösung? Dann buch Dir hier ein unverbindliches 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Kennenlerngespräch](https://traumatherapie.youcanbook.me).
 </span>
 
@@ -71,7 +71,7 @@ Daher geht es bei mir nicht einfach um Gesundheitscoaching. Ich zeige Dir, wie D
 Passen wir zusammen? 
 
 Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Dir ein Online-Gespräch auf zoom von ca. 20 min. Fragen klären im 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Kennenlerngespräch.](https://traumatherapie.youcanbook.me)</
 
 ----

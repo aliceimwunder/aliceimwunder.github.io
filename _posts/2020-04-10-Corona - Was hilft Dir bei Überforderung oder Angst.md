@@ -69,7 +69,7 @@ Wenn Du gerne von mir Hilfe haben möchtest, dann buche Dir ein **kostenloses St
 
 **Kostenloses Strategiegespräch buchen**:
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Termin buchen](https://alicewindolf.youcanbook.me)
 </span>
 

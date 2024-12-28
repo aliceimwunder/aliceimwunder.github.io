@@ -28,7 +28,7 @@ Weiterführendes zu dem Problem, dass es nicht das *eine* Symptom bei [komplexer
 --> In jedem Falle leidet die Lebensqualität.  
 
 Hier geht es zu einem unverbindlichen kostenfreien Gespräch zum Kennenlernen: 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Terminbuchung für Zoom](https://traumatherapie.youcanbook.me)
 </span>
 
@@ -47,7 +47,7 @@ Sie sind die Expertin, der Experte Ihres Lebens. Sie sind nicht "aus Versehen" b
 
 Bei Beschwerden, die sich körperlich zeigen, also **psychosomatischen Beschwerden**, z.B. Migräne, Übelkeit, Schmerzen: bitte ärztlich klären lassen, dass keine organische Ursachen vorliegen. Gerade im Bereich Traumatherapie beginnen Betroffene sich für diese Therapie zu interessieren, wenn viele Arztbesuche keine Abhilfe verschaffen konnten. 
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Terminbuchung für ein erstes Zoom-Meeting](https://traumatherapie.youcanbook.me)
 </span>
 
@@ -120,7 +120,7 @@ Gesetzliche Krankenkassen dürfen die Kosten einer Heilpraktikerin für Psychoth
 ### Habe ich Ihr Interesse an einer Traumatherapie geweckt?
 Dann können Sie sich direkt einen Termin für ein kostenfreies, unverbindliches Erstgespräch von ca. 20 min. buchen. 
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Terminbuchung für Zoom](https://traumatherapie.youcanbook.me)
 </span>
 

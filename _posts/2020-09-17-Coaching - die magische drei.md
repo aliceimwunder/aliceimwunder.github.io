@@ -21,7 +21,7 @@ Dann lass Dich begleiten. Zusammen geht es schneller. Meiner Erfahrung nach lass
 
 Kostenloses Strategiegespräch buchen: 
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Termin buchen](https://alicewindolf.youcanbook.me)
 </span>
 
@@ -56,7 +56,7 @@ Kosten: 447,-€
 
 Hol Dir Deine Begleitung: 
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Termin buchen](https://alicewindolf.youcanbook.me)
 </span>
 

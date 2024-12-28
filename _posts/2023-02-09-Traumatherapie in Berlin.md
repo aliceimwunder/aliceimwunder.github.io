@@ -25,7 +25,7 @@ Bei mir müssen Sie nicht in ein vorgefertigtes Raster eines psychiatrischen Fra
 
 Sie brauchen Veränderung? Sie sind bereit, in sich zu investieren? Dann melden Sie sich zu einem unverbindlichen kostenfreien **Vorgespräch** an. 
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
 
@@ -75,7 +75,7 @@ Buchen Sie sich ein unverbindliches Kennenlerngespräch. So können Sie mich **p
 
 Das geht ganz leicht: 20 min auf zoom online. 
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
 
@@ -118,7 +118,7 @@ Stellen Sie sich vor, wie ein Vogel, der nach Jahren im Käfig endlich seine Fl�
 
 Buchen Sie Ihr unverbindliches Kennenlerngespräch und lassen Sie uns gemeinsam herausfinden, wie ich Sie auf Ihrem Weg zu einem besseren Leben unterstützen kann.
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Ihren persönlichen Termin buchen](https://traumatherapie.youcanbook.me)
 </span>
 

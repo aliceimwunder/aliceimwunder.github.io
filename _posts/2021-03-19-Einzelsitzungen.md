@@ -19,7 +19,7 @@ Kosten:
 **Einzelsitzung: 120,-€.**
 
 Buch Dir hier Deinen Termin:
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 **[Termin buchen](https://alicewindolf.youcanbook.me)**
  
 oder schreibe mir eine Email: alicewindolf[at]web.de 
@@ -52,7 +52,7 @@ Dauer einer Reinigung: ca. 60min. Kosten 120,-€. (oder buch Dir kostengünstig
 Empfehlenswert sind drei Sitzungen zu einem Thema im Wochenabstand, um eine tiefere und anhaltende Wirkung zu erzeugen. 3-Karte: 300,-€. 
 
 Buch Dir kurz entschlossen Deinen Termin:
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 **[Termin buchen](https://alicewindolf.youcanbook.me)**
 </span>
 

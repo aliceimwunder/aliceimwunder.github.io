@@ -78,7 +78,7 @@ Dann richtet sich der Heilraum ganz auf Dich aus. Hier kann ich auf individuelle
 Die intensivsten Ergebnisse haben Klient:innen bisher in 6-10 Sitzungen _zusammen_ mit **Innerer Kindheilung** in ihrem persönlichen Wachstum erreichen können. 
 Buch Dir hierzu einen Termin für ein kostenfreies Info-Gespräch. 
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
 

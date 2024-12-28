@@ -19,7 +19,7 @@ Viele von uns kennen das - und leider schon zu Zeiten, wo man so gar nicht damit
 Hier geht es nicht um Gesundheitscoaching. Ich zeige Ihnen, wie Sie sich seelisch so ausrichtest, dass Sie Ihre seelischen Selbstheilungskräfte auf ein neues Level heben können.
 
 Buchen Sie sich ein kostenfreies unverbindliches
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Gespräch](https://traumatherapie.youcanbook.me).
 </span>
 
@@ -75,7 +75,7 @@ Aus diesem **breiten Wissensfundus** heraus hole ich Sie da ab, wo Sie stehen un
 Passen wir zusammen? Das Einfachste ist, es einfach gemeinsam zu klären. Ganz unverbindlich. Ich biete Ihnen ein Online-Gespräch auf zoom bis 20 min. Fragen klären 
 
 Hier geht es zu einem ersten 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Kennenlerngespräch.](https://traumatherapie.youcanbook.me)
 </span>
 

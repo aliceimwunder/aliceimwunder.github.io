@@ -14,7 +14,7 @@ Machen Sie sich ein persönliches Bild von mir, klären Sie unkompliziert erste 
 
 Per zoom können wir uns kennenlernen und Sie können sich einen persönlichen Eindruck machen.  
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Termin buchen](https://traumatherapie.youcanbook.me)
 </span>
 

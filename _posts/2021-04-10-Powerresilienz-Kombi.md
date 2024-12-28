@@ -25,7 +25,7 @@ Diese Kombination funktioniert wie folgt:
 Dauer einer Sitzung ca. 60 min. Günstig ist eine Sitzung pro Woche. Ich hatte auch schon KlientInnen, die schneller arbeiten wollten oder die mehr Zeit zur Integration benötigten. Daher dauert diese Kombination etwa 6 bis 8 Wochen. 
 Buch Dir kurz entschlossen Deinen Termin:
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Termin buchen](https://alicewindolf.youcanbook.me)
 </span>
 

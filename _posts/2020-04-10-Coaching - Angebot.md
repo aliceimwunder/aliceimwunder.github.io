@@ -16,7 +16,7 @@ Das Strategiegespräch dauert ca. 30 min. Darin klären wir gemeinsam, ob ein Co
 
 Kostenloses Strategiegespräch buchen: 
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Termin buchen](https://alicewindolf.youcanbook.me)
 </span>
 

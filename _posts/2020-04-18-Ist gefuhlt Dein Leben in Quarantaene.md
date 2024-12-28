@@ -47,7 +47,7 @@ Viel Erfolg und wenn die Übung Dir gut tut, komme gerne wieder und hinterlasse 
 
 Wenn Du Dir Unterstützung wünschst, während der Corona-Krise biete ich kostenlose Gesprächstermine an:
 
-<span style='display:inline-block;padding:12px;background:#30A0ff'>
+<span class='calltoaction'>
 [Termin buchen](https://alicewindolf.youcanbook.me)
 </span>
 
