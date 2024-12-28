@@ -16,6 +16,6 @@
 }
 
 .calltoaction:hover a {
-  color: white;
+  color: white !important;
   background: #f56a6a;
 }
