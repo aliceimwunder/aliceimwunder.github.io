@@ -25,9 +25,9 @@ Du beginnst zwar mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du
 - Beginn: ab Ende Mai
 
 **Ort:** wahlweise online per Zoom oder vor Ort in Berlin:
-- ZOI – Zentrum für ein neues Lebensgefühl,
-- Ku’damm 33,
-- 10179 Berlin
+- Aquariana Praxis- und Seminarzentrum
+- Am Tempelhofer Berg 7d
+- 10965 Berlin
 
 ### 💡 Was dich erwartet
 - eine klare, strukturierte Achtsamkeitspraxis – ohne Esoterik
