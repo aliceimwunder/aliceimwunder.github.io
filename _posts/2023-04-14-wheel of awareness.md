@@ -1,4 +1,4 @@
-![Mindfulness](/assets/2023-04-14-mindfulness.jpg)
+<img src="/assets/2023-04-14-mindfulness.jpeg" alt="" style="max-width:100%"/>
 
 Foto von <a href="https://unsplash.com/@jblesly?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Lesly Juarez</a> auf <a href="https://unsplash.com/de/s/fotos/achtsamkeit?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
 
