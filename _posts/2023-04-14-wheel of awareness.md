@@ -4,13 +4,15 @@ Foto von <a href="https://unsplash.com/@jblesly?utm_source=unsplash&utm_medium=r
 
 ## 🌿 Selbstführung mit Achtsamkeit für Führungskräfte – und alle, die unter hohem mentalem Druck stehen 
 
---> Mehr Fokus, innere Ruhe und souveräne Entscheidungen – mit nur einer Stunde pro Woche.
+→ Mehr Fokus, innere Ruhe und souveräne Entscheidungen – mit nur einer Stunde pro Woche.
 
 Ab Ende Mai biete ich montagabends einen **kompakten 8-Wochen-Kurs** für Unternehmer*innen und Führungskräfte (und alle, die unter hohem mentalem Druck stehen) an, die ihre Selbstführung stärken und Stress wirksam abbauen wollen.
 
 Der Kurs basiert auf dem Wheel of Awareness des Neurowissenschaftlers Dr. Daniel Siegel – einer **strukturierten Achtsamkeitspraxis**, die speziell für leistungsstarke, mental beanspruchte Menschen entwickelt wurde.
 
 Du beginnst zwar mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du auf eine 7 minütige Praxis zurückgreifen, um für die tägliche mentale Hygiene zu sorgen, die Dich bei Deiner Selbstfühung in herausfordernden Zeiten unterstützt, Fokus und Energie zu halten, weniger Stress aufzubauen und Deine Immunwerte allgemein zu stärken. 
+
+→ Hier direkt buchen: info@alicewindolf.de
 
 ### Nächste Termine in 2025
 • 27.5.–15.7.
