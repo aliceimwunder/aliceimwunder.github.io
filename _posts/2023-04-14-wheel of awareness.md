@@ -1,4 +1,4 @@
-<img src="/assets/2023-04-14-mindfulness.jpeg" alt="" style="max-width:100%"/>
+<img src="/assets/2023-04-14-mindfulness.jpg" alt="" style="max-width:100%"/>
 
 Foto von <a href="https://unsplash.com/@jblesly?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Lesly Juarez</a> auf <a href="https://unsplash.com/de/s/fotos/achtsamkeit?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
 
@@ -12,17 +12,20 @@ Der Kurs basiert auf dem Wheel of Awareness des Neurowissenschaftlers Dr. Daniel
 
 Du beginnst zwar mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du auf eine 7 minütige Praxis zurückgreifen, um für die tägliche mentale Hygiene zu sorgen, die Dich bei Deiner Selbstfühung in herausfordernden Zeiten unterstützt, Fokus und Energie zu halten, weniger Stress aufzubauen und Deine Immunwerte allgemein zu stärken. 
 
+### Nächste Termine in 2025
+• 27.5.–15.7.
+• 18.8.–6.10.
+• 3.11.–22.12.
+
 ### Kurszeiten
+- montags, 18:30–19:30 Uhr
+- wöchentlich, 8 Termine
+- Beginn: ab Ende Mai
 
-montags, 18:30–19:30 Uhr
-
-wöchentlich, 8 Termine
-
-Beginn: ab Ende Mai
-
-Ort: wahlweise online per Zoom oder vor Ort in Berlin:
-
-Adresse: ZOI – Zentrum für ein neues Lebensgefühl, Ku’damm 33, 10179 Berlin
+**Ort:** wahlweise online per Zoom oder vor Ort in Berlin:
+- ZOI – Zentrum für ein neues Lebensgefühl,
+- Ku’damm 33,
+- 10179 Berlin
 
 ### 💡 Was dich erwartet
 - eine klare, strukturierte Achtsamkeitspraxis – ohne Esoterik
