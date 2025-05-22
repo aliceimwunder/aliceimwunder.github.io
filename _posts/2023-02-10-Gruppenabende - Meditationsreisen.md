@@ -1,23 +1,30 @@
 ---
-title: Tiefe Entspannung - Frische Energie - Aurareinigung
+title: Stress mit Selbstliebe begegnen. Entspannung - Frische Energie
 ---
-Komm mit auf diese **wundervolle innere Reise** zu Deiner Energie. Gönn Dir diese seelische Auszeit für ein tiefenentspanntes Wochenende mit Wohlfühlen in der eigenen Haut. 
+### Eine fortlaufende Serie an Gruppenabenden.  
+Komm mit auf diese **wundervollen inneren Reisen** zu Deiner Energie. Gönn Dir diese seelische Auszeit mit Wohlfühlen und frischer Energie in der eigenen Haut.
+
+--> Geführte innere Reisen mit heilsamen Klängen und energetischer Reinigung, sodass Du Dich wirklich erfrischt fühlst und aus Stress-Zyklen aussteigen kannst.   
 
 **Nächster Termin:**  
-- **Do, 30.01.2025,** 18:30 Uhr: **Neutstart und Fülle für 2025** - Neujahrsvorsätze schon wieder vergessen? Sich ganz auf das Neue Jahr einlassen und Fülle in Leichtigkeit einladen.
+- **Do, 22.06.2025,** 18:30 Uhr: **Sinnlichkeit statt Stress** - Bei zu viel Stress fühlen wir uns nicht mehr wohl in unserer Haut. Auf dieser Reise kannst Du diese Stressfolgen wandeln. Tauche wieder in Dich und Deine Haut ein. Denn wozu haben wir einen Körper, wenn wir uns mit ihm nicht auf allen Ebenen wohlfühlen und das Leben genießen?
 - Anmeldung per Email an: info@alicewindolf.de
 
-Diese Abende tun Dir gut: 
+Was diese Abende für Dich tun: 
 - **Stressabbau**, eigenen Energiefluss harmonisieren, Fremdeinflüsse reduzieren.
-- Regelmäßig stattfindender Gruppenabend zu unterschiedlichen Themen.
+
+*Was Dich erwartet:* 
+- Regelmäßig stattfindende Gruppenabende zu unterschiedlichen Themen.
 - geführte Meditation mit Aurareinigung und **heilsamen Klänge**. 
 - donnerstags, meist alle zwei Monate, 18:30 Uhr, ca. 1,5-2h (Termine siehe weiter unten).
-- Mitmachen im Aquariana **vor Ort** oder auf **zoom**,
-- mit **audio-Aufnahme** der ganz auf die Teilnehmer eingestimmten Meditation, die ich Dir per link zum Nachhören zusende.
+- Mitmachen im Aquariana **vor Ort** oder auf **zoom** (hybrid),
+- mit **audio-Aufnahme** der ganz auf die Teilnehmer eingestimmten Meditation, die ich Dir per link zum Downloaden zusende.
 - Energieausgleich pro Abend: 35,- €, bei Buchung von drei Abenden: 30,-€/Abend.
 
 ### Wann unterstützen Dich diese Abende?
 Wenn sich das Leben manchmal schwer anfühlt, Du denkst, das Leben sei kein Ponyhof, und Dir dadurch am Ende einer Arbeitswoche die **Lebensfreude** im Stress abhanden gekommen ist, dann komm zu diesen Abenden. 
+
+Wenn Du das Gefühl hast, zu viel von anderen mit-/aufzunehmen und Du Dich davon überlastet fühlst, dann kannst Du an diesen Abenden wandeln, so als ob Du Dir den Staub aus den Kleidern klopfst. 
 
 Die Aurareinigung dient dazu, dass Du Dich in Dir **ausgeglichen** wahrnimmst und in unserem üblicherweise dicht gepackten Alltag **zur Ruhe kommst**. So, wie Dein Körper auf Stress reagiert, so reagiert nämlich auch Deine feinstoffliche Aura auf Stress. Dadurch fühlen wir uns überreizt und aus unserer Mitte geworfen. Das lässt sich beheben. 
 
