@@ -10,7 +10,7 @@ Montag abends biete ich regelmäßig einen **kompakten 8-Wochen-Kurs** für alle
 
 Der Kurs basiert auf dem Wheel of Awareness des Neurowissenschaftlers Dr. Daniel Siegel – einer **strukturierten Achtsamkeitspraxis**, die speziell für leistungsstarke, mental beanspruchte Menschen entwickelt wurde.
 
-Du beginnst mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du auf eine 7 minütige Praxis zurückgreifen, um für die tägliche mentale Hygiene zu sorgen, die Dich bei Deiner Selbstfühung in herausfordernden Zeiten unterstützt, Fokus und Energie zu halten, weniger Stress aufzubauen und Deine Immunwerte allgemein zu stärken. 
+Du beginnst mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du auf eine 7 minütige Praxis zurückgreifen, um für die tägliche mentale Hygiene zu sorgen, die Dich bei Deiner Selbstfühung in herausfordernden Zeiten unterstützt, Fokus und Energie zu halten, Stress abzubauen und Deine Immunwerte allgemein zu stärken. 
 
 → Hier direkt buchen: info@alicewindolf.de
 
