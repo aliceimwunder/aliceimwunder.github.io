@@ -15,8 +15,8 @@ Du beginnst mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du auf 
 → Hier direkt buchen: info@alicewindolf.de
 
 ### Nächste Termine
-• 22.9.–6.10.2025 und 3.11.-24.11.2025
-• 5.1.–26.1.2026 und 9.2.-2.3.2026
+- 22.9.–6.10.2025 und 3.11.-24.11.2025
+- 5.1.–26.1.2026 und 9.2.-2.3.2026
 
 ### Kurszeiten
 - montags, 18:30–19:30 Uhr
