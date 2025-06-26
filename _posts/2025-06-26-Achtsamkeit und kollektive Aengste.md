@@ -36,7 +36,7 @@ Ohne Absicht saß ich in einer **KI-Schulung**. Der nächste Podcast? KI. Beim F
 > *“I spent my life measuring risks.  
 > AI rings every one of my alarm bells.”*
 
-(Ich verbrachte mein Leben mit Risikobewertung. KI lässt alle  Alarmglocken bei mir schrillen. - gesehen auf time.com) 
+("Ich verbrachte mein Leben mit Risikobewertung. KI lässt alle  Alarmglocken bei mir schrillen.") 
 
 Ich verstand: **Diese kollektive Stimmung kommt nicht von ungefähr.**
 
