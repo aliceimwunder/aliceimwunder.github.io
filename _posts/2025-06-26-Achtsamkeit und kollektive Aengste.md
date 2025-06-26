@@ -84,11 +84,3 @@ Dann trag dich [hier](/2021/04/21/Landingspage-Newsletteranmeldung.html) in mein
 👉 [**Stress mit Selbstliebe begegnen**](/2023/02/10/Gruppenabende-Meditationsreisen.html)
 ```
 
----
-
-Wenn du möchtest, kann ich gleich **Teil 2** vorbereiten. Dafür brauche ich bitte von dir:
-
-1. Die erste konkrete Übung aus dem Chat-Newsletter, die du teilen möchtest (am besten im Originalwortlaut oder grob beschrieben).
-2. Optional: ein persönlicher Moment, in dem du oder ein/e Klient/in spürbar Ruhe durch diese Übung erfahren hast.
-
-Bereit?
