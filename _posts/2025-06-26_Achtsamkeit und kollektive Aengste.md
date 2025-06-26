@@ -1,7 +1,14 @@
 ---
+layout: default
+---
+<br/>
+<img src="/assets/2025-06-26_Achtsamkeit und KI - positive Aussicht.jpg" alt="" style="max-width:100%"/>
+
+<p></p>
+
+---
 title: Achtsam in kollektiven Angstfeldern – Teil 1
 ---
-2025-06-26_Achtsamkeit und KI - positive Aussicht.jpg
 
 ### Wenn KI die Stimmung drückt: Warum feine Menschen jetzt innere Stabilität brauchen
 
