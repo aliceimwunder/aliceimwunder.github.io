@@ -80,8 +80,8 @@ Warum Achtsamkeit keine Flucht ist – sondern ein stabiler Raum, um bei dir zu 
 ---
 
 📬 **Du möchtest keine Folge verpassen?**  
-Dann trag dich [hier](#) in meinen Newsletter ein oder schau dir meine Gruppenabende zur energetischen Stressregulation an.  
-👉 [Jetzt Termine ansehen →](#)
+Dann trag dich [hier](#) in meinen Newsletter ein oder schau dir meine Gruppenabende zur energetischen Stressregulation an .  
+👉 [**Stress mit Selbstliebe begegnen**](/2023/02/10/Gruppenabende-Meditationsreisen))(#)
 ```
 
 ---
