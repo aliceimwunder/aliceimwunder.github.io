@@ -19,7 +19,9 @@ Und doch begann etwas zu „wackeln“ – nicht in mir selbst, sondern **in der
 Es war nicht greifbar. Keine Angstattacken. Keine Panik. Aber da war **eine andere Art von Unruhe** in Erstgesprächen, in der Wortwahl, im Blick. Menschen, die normalerweise sehr strukturiert, klar und gut angebunden sind, wirkten plötzlich ein wenig... verwirrt. Unfokussiert. Abwartend. Wie unter einem leichten Nebel. Auch mein Buchungsverhalten veränderte sich – nicht dramatisch, aber fühlbar.  
 
 Ich fragte mich:  
+<br/>
 **Woher kommt diese kollektive Stimmung?**  
+<br/>
 Warum ist plötzlich weniger Zuversicht im Raum – trotz aller Tools, allen Fortschritts, allen Möglichkeiten?
 
 Also begann ich zu recherchieren. Und auf einmal war es überall.  
