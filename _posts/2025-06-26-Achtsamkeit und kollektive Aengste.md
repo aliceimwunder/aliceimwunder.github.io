@@ -75,7 +75,7 @@ Denn genau das brauchen wir jetzt:
 ---
 
 #### 👉 Im nächsten Teil:
-Warum Achtsamkeit keine Flucht ist – sondern ein stabiler Raum, um bei dir zu bleiben, wenn draußen die Systeme kippen. Und: die erste konkrete Übung aus meinem Chat-Newsletter.
+Warum Achtsamkeit keine Flucht ist – sondern ein stabiler Raum, um bei dir zu bleiben, wenn draußen die Systeme kippen. Und: die erste konkrete Übung aus meinem Newsletter.
 
 ---
 
