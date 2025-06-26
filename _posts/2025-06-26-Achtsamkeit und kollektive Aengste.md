@@ -12,7 +12,11 @@ layout: default
 
 ### Wenn KI die Stimmung drückt: Warum feine Menschen jetzt innere Stabilität brauchen
 
-Ich muss zugeben: Für mich persönlich war das Thema **KI und Arbeitsplatzunsicherheit** lange kein Thema. Ich fühlte mich sicher. Durch meine tägliche Achtsamkeitspraxis, die intensive innere Arbeit und die spirituelle Schulung über viele Jahre hatte ich das Gefühl: *Ich bin geschützt. Klar. Geerdet.*
+Ich muss zugeben: Für mich persönlich war das Thema **KI und Arbeitsplatzunsicherheit** lange kein besonders interessantes Thema. 
+
+Es hat mich eigentlich nur ein bisschen irre gemacht, weil ich die Technik zwar für Marketing-Zwecke brauche, aber ich sie zugleich nicht so richtig durchdringe. Wie eine Waschmaschine mit zu vielen Knöpfen. mit der ich dringend ein Ziel erreichen will: gewaschene Wäsche. Ansonsten interessierte mich das Ganze nicht. 
+
+Eine Trauma-Therapeutin kann man nicht durch KI ersetzen, eine KI kann auch keine Energie an Gruppenabenden channeln. Ich fühlte mich sicher. Durch meine tägliche Achtsamkeitspraxis, die intensive innere Arbeit und die spirituelle Schulung über viele Jahre hatte ich das Gefühl: *Ich bin geschützt. Klar. Geerdet.*
 
 Und doch begann etwas zu „wackeln“ – nicht in mir selbst, sondern **in der feinen Schwingung meiner Arbeit mit Klient*innen**.
 
