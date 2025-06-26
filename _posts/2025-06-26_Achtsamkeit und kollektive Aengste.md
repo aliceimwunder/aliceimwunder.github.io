@@ -7,7 +7,7 @@ layout: default
 <p></p>
 
 ---
-title: Achtsam in kollektiven Angstfeldern – Teil 1
+# Achtsam in kollektiven Angstfeldern – Teil 1
 ---
 
 ### Wenn KI die Stimmung drückt: Warum feine Menschen jetzt innere Stabilität brauchen
