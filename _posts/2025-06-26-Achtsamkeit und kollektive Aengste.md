@@ -24,7 +24,7 @@ Es war nicht greifbar. Keine Angstattacken. Keine Panik. Aber da war **eine ande
 
 Ich fragte mich:  
 <br/>
-**Woher kommt diese kollektive Stimmung?**  
+**Woher kommt diese kollektive Stimmung?** Liegt es an den Kriegsnachrichten? Erschreckenderweise haben wir uns daran aber eigentlich schon gewöhnt. Die ständigen Auseinandersetzungen am Rande, die die Außengrenzen der EU stabil halten gehören förmlich zum Alltag dazu... 
 <br/>
 Warum ist plötzlich weniger Zuversicht im Raum – trotz aller Tools, allen Fortschritts, allen Möglichkeiten?
 
