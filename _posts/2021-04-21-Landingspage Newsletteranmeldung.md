@@ -22,6 +22,7 @@ Als Abonnent:in erhalten Sie **exklusiven Zugang** zu einer geführten Achtsamke
 - Für die Teilnahme vor Ort bitte kurz vorher anmelden, damit ich den Raum passend vorbereiten kann  
 - Ohne Newsletter-Anmeldung ist die Teilnahme ebenfalls möglich – dann bitte ich um eine kleine Spende für die Raummiete  
 
+ℹ️ Mehr Infos zu den laufenden Wheel of Awareness-Kursen finden Sie [hier](/2023/04/14/wheel-of-awareness.html).
 ---
 
 [**Jetzt kostenfrei anmelden und Ihren Platz sichern**](#) 💌  
