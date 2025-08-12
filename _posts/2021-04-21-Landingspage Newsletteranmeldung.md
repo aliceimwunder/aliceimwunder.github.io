@@ -1,8 +1,10 @@
-# 🌿 Mein Info-Letter – Inspiration & aktuelle Termine direkt zu Ihnen
+---
+title: Mein Info-Letter – Inspiration & aktuelle Termine
+---
 
 Möchten Sie **regelmäßig neue Impulse** für innere Ruhe, Achtsamkeit und Selbstfürsorge erhalten – und gleichzeitig über meine **aktuellen Termine** auf dem Laufenden bleiben?  
 
-Mit meinem Info-Letter (ca. alle 1–2 Monate) bekommen Sie:  
+Mit meinem Info-Letter (ca. 2x/Monat) bekommen Sie:  
 - 📅 **Alle aktuellen Termine** auf einen Blick  
 - ✨ **Impulse und Übungen** für mehr Gelassenheit  
 - 📝 **Infos zu neuen Blog-Artikeln**  
