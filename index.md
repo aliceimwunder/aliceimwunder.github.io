@@ -12,11 +12,11 @@ layout: default
 Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie genau da ab, wo Sie gerade stehen.
 
 Hier finden Sie 
-- Stressreduzierung mit effektivem [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
 - evidenzbasierte längerfristige [Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html),
 - effiziente [EMDR-Kurzzeit-Therapie auf EMDR](/2024/07/13/EMDR-Kurzzeit-Therapie.html), 
 - ganzheitliches [Burnout Coaching](/2024/06/14/Ganzheitliches-Burnout-Coaching.html), 
 - in der Gruppe [Aurareinigung zur Stressreduzierung](/2023/02/10/Gruppenabende-Meditationsreisen.html).
+- Stressreduzierung mit effektivem [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
 - NEU: **[Seelen-Darm-Challenge](/2025/08/12/Seelen-Darm-Challenge.html)** in meiner (fast) kostenfreien Whatsapp-Gruppe: Stressbewältigung - Energiearbeit und Darmreinigung 
 
 <strong>Lernen <a href="/about/">Sie mich näher kennen</a></strong>.
@@ -80,6 +80,7 @@ sehr Erkenntnisreich und vorallem wirklich befreiend.</p>
 <p>hey du liebe, das war wirklich ein Schlüssel, um so schnell
 voranzukommen. Dass ich deine Hilfe bekam! ein riesiges Dankeschön von
 mir zu dir!"</p> 
+
 
 
 
