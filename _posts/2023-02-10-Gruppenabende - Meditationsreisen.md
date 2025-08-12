@@ -40,9 +40,9 @@ Dann bist Du bei meinen Aurareinigungen mit Bildern aus der **Inneren Kindheilun
 Energieausgleich: 30,-/25,- € 
 
 **Die nächsten Termine in 2025 im Überblick**  
-- Do, 22.08.2025, 18:30 Uhr: **Wenn das Leben ruft. Die Jahresenergie 2025: Neubeginn** -  schon wieder vergessen? Sich ganz auf das Neue Jahr einlassen und Fülle in Leichtigkeit einladen.
-- Do, 18.09.2025, 18:30 Uhr: "**Innere Freiheit & eigene Autorität** - lass gesellschaftliche Normen und familiäre Muster in Deinen Gedanken los. Denn Du hast ein Recht auf Deinen FREIEN Willen.
-- Do, 13.11.2025, 18:30 Uhr, **Advent: Stille & Geborgenheit**, Stress bringt oft einen Tunnelblick auf das, was getan werden muss. Stress und Kreativität schließen sich aus. Stattdessen: Was will getan werden? Was will Du in Deinem Leben Positives erschaffen?
+- Do, 22.08.2025, 18:30 Uhr: **Wenn das Leben ruft. Die Jahresenergie 2025: Neubeginn** -  Neujahrsvorsätze schon sehr lange vergessen? Macht nichts. Dieses Jahr ist die Energie des Neubeginns besonders intensiv. Wir können jederzeit in uns den Raum für Neues eröffnen und die zweite Hälfte dieses Jahr aktiv gestalten, als uns nur von Aufgabenfülle und "Ich musss noch..." hetzen lassen. 
+- Do, 18.09.2025, 18:30 Uhr: "**Innere Freiheit & eigene Autorität** .
+- Do, 13.11.2025, 18:30 Uhr, **Advent: Stille & Geborgenheit**, 
 
 Dabei reinige ich tiefgreifend die Aura und integriere neue Impulse. Eine **leichte Trance** entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung verwendet werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Dadurch ist die Aurareinigung auch traumasensibel. 
 
