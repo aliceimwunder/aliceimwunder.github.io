@@ -30,6 +30,3 @@ Als Abonnent:in erhalten Sie **exklusiven Zugang** zu einer geführten Achtsamke
 
 <iframe width="540" height="525" src="https://82868399.sibforms.com/serve/MUIEAJEnFmETVM0ogc7LVk4ktqFqArJOvKQsbklksNw3aT8EK1UJAjl5BkMo2-goYAYmUBh5KdGwPcgdhO0QsNA15PkdQtYpiU9-jaauLTCssBcoaUCc2PprpRFislkgEgSEFHC2UPAnjnxW_kx1mgf4ugRek-ezOrZMGHifCdYURkvC8owdxSUTfjpt-mWsR8AL0dMqLpBxGRxM" frameborder="0" scrolling="auto" allowfullscreen style="display: block;margin-left: auto;margin-right: auto;max-width: 100%;"></iframe>
 
----
-
-ℹ️ Mehr Infos zu den Wheel of Awareness-Abenden finden Sie [hier](/2023/04/14/wheel-of-awareness.html).
