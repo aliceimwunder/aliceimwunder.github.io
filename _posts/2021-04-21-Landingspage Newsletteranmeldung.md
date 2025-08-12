@@ -1,29 +1,32 @@
+# 🌿 Mein Info-Letter – Inspiration & aktuelle Termine direkt zu Ihnen
+
+Möchten Sie **regelmäßig neue Impulse** für innere Ruhe, Achtsamkeit und Selbstfürsorge erhalten – und gleichzeitig über meine **aktuellen Termine** auf dem Laufenden bleiben?  
+
+Mit meinem Info-Letter (ca. alle 1–2 Monate) bekommen Sie:  
+- 📅 **Alle aktuellen Termine** auf einen Blick  
+- ✨ **Impulse und Übungen** für mehr Gelassenheit  
+- 📝 **Infos zu neuen Blog-Artikeln**  
+- 🔔 **Kurzfristige Änderungen** (z. B. bei Gruppenterminen) direkt in Ihr Postfach  
+
 ---
-title: Mein Info-Letter
+
+## 🎁 Ihr Geschenk: Kostenfreie Wheel of Awareness-Praxis
+Als Abonnent:in erhalten Sie **exklusiven Zugang** zu einer geführten Achtsamkeitspraxis (ca. 1x pro Quartal, montags 18:30 Uhr) – online via Zoom oder vor Ort im **Aquariana Praxiszentrum, Berlin-Kreuzberg**.
+
+> Diese Abende sind eine Einladung, innerlich zur Ruhe zu kommen, den Blick nach innen zu richten und neue Klarheit zu finden.
+
+📌 **So funktioniert’s:**  
+- Melden Sie sich zum Info-Letter an und erhalten Sie den Zoom-Link automatisch per E-Mail  
+- Für die Teilnahme vor Ort bitte kurz vorher anmelden, damit ich den Raum passend vorbereiten kann  
+- Ohne Newsletter-Anmeldung ist die Teilnahme ebenfalls möglich – dann bitte ich um eine kleine Spende für die Raummiete  
+
 ---
 
-Mein Info-Letter kommt ca. alle ein bis zwei Monate und informiert Sie über **meine aktuellen Termine** sowie Infos zu den veröffentlichten Blog-Posts.
+[**Jetzt kostenfrei anmelden und Ihren Platz sichern**](#) 💌  
+(*Ihre E-Mail-Adresse wird vertraulich behandelt und ausschließlich für den Versand des Info-Letters genutzt.*)  
 
-Auch wenn ein Gruppen-Termin kurzfristig ausfallen sollte, würde ich Sie über den Info-Letter informieren. 
+<iframe width="540" height="525" src="https://82868399.sibforms.com/serve/MUIEAJEnFmETVM0ogc7LVk4ktqFqArJOvKQsbklksNw3aT8EK1UJAjl5BkMo2-goYAYmUBh5KdGwPcgdhO0QsNA15PkdQtYpiU9-jaauLTCssBcoaUCc2PprpRFislkgEgSEFHC2UPAnjnxW_kx1mgf4ugRek-ezOrZMGHifCdYURkvC8owdxSUTfjpt-mWsR8AL0dMqLpBxGRxM" frameborder="0" scrolling="auto" allowfullscreen style="display: block;margin-left: auto;margin-right: auto;max-width: 100%;"></iframe>
 
-Ich freue mich auf Sie! 
+---
 
-Ich weiß, Ihre Email-Adressen ist kostbar. Daher gibt es von mir ein Null-Euro-Angebot: 
-
-
-###  Wheel of Awareness-Abende monatlich, freitags, 18:30 Uhr
-Mit dem Info-Letter erhalten Sie Zugang zu einer kostenfreien geführten Achtsamkeitspraxis, die ungefähr 1x/Monat, derzeit freitags, stattfindet: 
-
-<iframe width="540" height="525" src="https://82868399.sibforms.com/serve/MUIEAJEnFmETVM0ogc7LVk4ktqFqArJOvKQsbklksNw3aT8EK1UJAjl5BkMo2-goYAYmUBh5KdGwPcgdhO0QsNA15PkdQtYpiU9-jaauLTCssBcoaUCc2PprpRFislkgEgSEFHC2UPAnjnxW_kx1mgf4ugRek-ezOrZMGHifCdYURkvC8owdxSUTfjpt-mWsR8AL0dMqLpBxGRxM" frameborder="0" scrolling="auto" allowfullscreen style="display: block;margin-left: auto;margin-right: auto;max-width: 100%;"></iframe><p></p>
-
-  
-Wollen Sie vor Ort im Aquariana teilnehmen? Dann unbedingt **per Email anmelden**. info@alicewindolf.de 
-
-Der Termin findet vor Ort im Aquariana in Berlin-Kreuzberg nur bei Anmeldung statt. 
-
-Sie können auch teilnehmen, wenn Sie sich nicht zu meinem Info-Letter anmelden wollen. Dann bitte ich um eine kleine Spende für die Raummiete. 
-
-Weitere Infos [hier](/2023/04/14/wheel-of-awareness.html) und in meinem Info-Letter. 
-
-
-
+ℹ️ Mehr Infos zu den Wheel of Awareness-Abenden finden Sie [hier](/2023/04/14/wheel-of-awareness.html).
