@@ -1,5 +1,5 @@
 ---
-title: "Seelen-Darmbalance:" Deine Einladung zur ganzheitlichen Darm-Challenge im September
+title: "Seelen-Darmbalance: Deine Einladung zur ganzheitlichen Darm-Challenge im September"
 ---
 
 ### Wenn der Bauch ruft – und wir endlich zuhören
