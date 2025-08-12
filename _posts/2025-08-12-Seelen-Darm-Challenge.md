@@ -89,5 +89,5 @@ Mit Achtsamkeit, Klarheit & Raphael-Energie.
 Herzlich,  
 **Alice Windolf**
 
-Heilpraktikerin für Psychotherapie | Coachin für erschöpfte Führungskräfte | Seelen-Darm-Begleiterin
+Heilpraktikerin für Psychotherapie | Traumatherapeutin | Coachin für erschöpfte LeistungsträgerInnen
 ```
