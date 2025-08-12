@@ -55,9 +55,9 @@ Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Lebe
 **Ganzheitlich**: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
 
 ### Aktuelle Angebote meiner Praxis
-- ""NEU!: ab 31.8.2025: Stressbewältigung einmal anders: Einen Monat (fast) kostenfreie Begleitung in einer [Whatsapp-Gruppe](/2025/08/12/Seelen-Darm-Challenge.html) mit einfacher Darmreinigung und energetischer Heilung für den Darm."" 
-- **Do, 22.08.2025, 18:30 Uhr: "Neues beginnen" - Verbinde Dich tiefer mit der Jahresenergie 2025. Aktiviere Deine [innere Kraft und starte frisch ins neue Jahr](/2023/02/10/Gruppenabende-Meditationsreisen).** mit Aurareinigung und heilsamen Klängen".
-- **Mo, 15.09.2025, 18:30 Uhr. Wheel of Awareness: [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
+- NEU!: **ab 31.8.2025:** Stressbewältigung einmal anders: Einen Monat (fast) kostenfreie Begleitung in einer [Whatsapp-Gruppe](/2025/08/12/Seelen-Darm-Challenge.html) mit einfacher Darmreinigung und energetischer Heilung für den Darm.
+- **Do, 22.08.2025, 18:30 Uhr:** Neues beginnen - Verbinde Dich tiefer mit der Jahresenergie 2025. Aktiviere Deine [innere Kraft und starte frisch ins neue Jahr](/2023/02/10/Gruppenabende-Meditationsreisen).** mit Aurareinigung und heilsamen Klängen.
+- **Mo, 15.09.2025, 18:30 Uhr.** Wheel of Awareness: [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 
 
 ### Außerdem gibt es auch einen Blog und Newsletter :-)
@@ -80,6 +80,7 @@ sehr Erkenntnisreich und vorallem wirklich befreiend.</p>
 <p>hey du liebe, das war wirklich ein Schlüssel, um so schnell
 voranzukommen. Dass ich deine Hilfe bekam! ein riesiges Dankeschön von
 mir zu dir!"</p> 
+
 
 
 
