@@ -7,7 +7,7 @@ Komm mit auf diese **wundervollen inneren Reisen** zu Deiner Energie. Gönn Dir 
 --> Geführte innere Reisen mit heilsamen Klängen und energetischer Reinigung, sodass Du Dich wirklich erfrischt fühlst und aus Stress-Zyklen aussteigen kannst.   
 
 **Nächster Termin:**  
-- **Do, 22.06.2025,** 18:30 Uhr: **Sinnlichkeit statt Stress** - Bei zu viel Stress fühlen wir uns nicht mehr wohl in unserer Haut. Auf dieser Reise kannst Du diese Stressfolgen wandeln. Tauche wieder in Dich und Deine Haut ein. Denn wozu haben wir einen Körper, wenn wir uns mit ihm nicht auf allen Ebenen wohlfühlen und das Leben genießen?
+- **Do, 22.08.2025,** 18:30 Uhr: **Die Jahresenergie Neubeginn** – Wenn das Leben Dich ruft. Manchmal spüren wir: So wie bisher geht es nicht weiter. Und wissen doch noch nicht, wie ein anderer Weg aussehen kann. Dann braucht es Raum innezuhalten, loszulassen und dem inneren Ruf zu lauschen. Leider kommt uns bei zu viel Stress dieser innere Raum abhanden. Wenn Du weniger "Ich muss noch ...!" und mehr "Ich gestalte ...!" in Deinem Leben brauchen kannst, dann ist dieser Abend der richtige für Dich.   
 - Anmeldung per Email an: info@alicewindolf.de
 
 Was diese Abende für Dich tun: 
@@ -40,9 +40,9 @@ Dann bist Du bei meinen Aurareinigungen mit Bildern aus der **Inneren Kindheilun
 Energieausgleich: 30,-/25,- € 
 
 **Die nächsten Termine in 2025 im Überblick**  
-- Do, 30.01.2025, 18:30 Uhr: **Neutstart und Fülle für 2025** - Neujahrsvorsätze schon wieder vergessen? Sich ganz auf das Neue Jahr einlassen und Fülle in Leichtigkeit einladen.
-- Do, 27.02.2024, 18:30 Uhr: "**Freiheit** - lass gesellschaftliche Normen und familiäre Muster in Deinen Gedanken los. Denn Du hast ein Recht auf Deinen FREIEN Willen.
-- Do, 03.04.2024, 18:30 Uhr, **Schöpferkraft**, Stress bringt oft einen Tunnelblick auf das, was getan werden muss. Stress und Kreativität schließen sich aus. Stattdessen: Was will getan werden? Was will Du in Deinem Leben Positives erschaffen?
+- Do, 22.08.2025, 18:30 Uhr: **Wenn das Leben ruft. Die Jahresenergie 2025: Neubeginn** -  schon wieder vergessen? Sich ganz auf das Neue Jahr einlassen und Fülle in Leichtigkeit einladen.
+- Do, 18.09.2025, 18:30 Uhr: "**Innere Freiheit & eigene Autorität** - lass gesellschaftliche Normen und familiäre Muster in Deinen Gedanken los. Denn Du hast ein Recht auf Deinen FREIEN Willen.
+- Do, 13.11.2025, 18:30 Uhr, **Advent: Stille & Geborgenheit**, Stress bringt oft einen Tunnelblick auf das, was getan werden muss. Stress und Kreativität schließen sich aus. Stattdessen: Was will getan werden? Was will Du in Deinem Leben Positives erschaffen?
 
 Dabei reinige ich tiefgreifend die Aura und integriere neue Impulse. Eine **leichte Trance** entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung verwendet werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Dadurch ist die Aurareinigung auch traumasensibel. 
 
