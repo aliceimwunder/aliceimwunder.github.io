@@ -16,6 +16,11 @@ Im Alltag bleibt dafür oft keine Zeit – und genau deshalb habe ich diese **Wh
 
 Diese Challenge ist kein aufwendiges Detox-Programm. Sondern ein sanfter, aber nachhaltiger Impuls zur Selbstfürsorge – körperlich und energetisch:
 
+Energetisch: tägliche kleine Impulse und jede Woche Audio-Aufnahme, eine kurze innere Reise zu mehr Intuition, Bauchgefühl und Inneres Loslassen mit der Energie von Raphael. Dazu drei online-Termine einer Gruppe, ein kurzes Get-Together à 20 min, damit keine Fragen offen bleiben und mit Deinem Feedback wir den Inhalt der Begleitung individuell auf die Bedürfnisse aller Teilnehmer:innen abstimmen können. Kein Allein Durchhalten - wir gehen die Reise gemeinsam. 
+- So, 31.8.2025, 11:00 Uhr: Startschuss, lass uns loslegen und Fragen klären, wie Du den besten Nutzen aus der Challenge ziehen kannst.
+- So., 14.9.2025, 11:00 Uhr: Mid-Way, Du hast den ersten Teil geschafft, habne sich Fragen ergeben? Hindernisse? Wünsche noch offen? Wie können wir die Gruppe noch individueller auf Dich als Teinehmer:in abstimmen?
+- So., 28.9.2025 11:00 Uhr: Abschlussparty. Wir haben es geschafft. Es ist wichtig, sich zu feiern. Nach der Challenge ist vor der Challenge - wenn jetzt die Darmreinigung erfolgreich abgeschlossen ist, wie können wir Vitalität und Resilienz für die nass-kalte Herbstzeit aufbauen?  
+
 ### ✅ **Materiell: Unterstützung durch zwei hochwertige Produkte**
 Mit nur **zwei Produkten von Ringana** kannst du deinem Darm etwas richtig Gutes tun – ganz unkompliziert im Alltag:
 
