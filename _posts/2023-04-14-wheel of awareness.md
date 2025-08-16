@@ -54,8 +54,6 @@ Hier findest Du weitere Informationen: [Mnn kann nicht gegen sich selbst leben](
 
 🔗 Jetzt anmelden: info@alicewindolf.de
 
-→ Hier buchen: info@alicewindolf.de
-
  [Backlink](https://www.retreatpartner.de?utm_source=alicewindolf)
 
 Oder bei Fragen: Unverbindlich Kontakt per Email aufnehmen
