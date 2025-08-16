@@ -50,9 +50,13 @@ Für dich, wenn du …
 ### 💶 Teilnahmegebühr
 Einführungspreis: 144 € für den gesamten Kurs (8 Termine + 3 Audioübungen)
 
-🔗 Jetzt anmelden
+Hier findest Du weitere Informationen: [Mnn kann nicht gegen sich selbst leben](https://www.retreatpartner.de/post/man-kann-nicht-gegen-sich-selbst-leben). 
+
+🔗 Jetzt anmelden: info@alicewindolf.de
 
 → Hier buchen: info@alicewindolf.de
+
+ [Backlink](https://www.retreatpartner.de?utm_source=alicewindolf)
 
 Oder bei Fragen: Unverbindlich Kontakt per Email aufnehmen
 
