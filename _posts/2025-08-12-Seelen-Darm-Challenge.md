@@ -67,7 +67,7 @@ Du brauchst keine Vorerfahrung mit energetischer Arbeit – die Meditationen sin
 
 - 🌀 **Tägliche Impulse per WhatsApp** – 2–5 Minuten Zeitaufwand  
 - 🧘‍♀️ **Drei begleitende Meditationen mit Raphael-Energie**  
-- 💬 **4 persönliche Gruppen-Zoom-Calls à 20 Minuten**  
+- 💬 **3 persönliche Gruppen-Zoom-Calls à 20 Minuten**  
 - 🌱 **Verbindung von moderner Pflanzenkraft & spiritueller Energiearbeit**  
 - 👥 **Persönliche Begrüßung in der Gruppe**  
 - ✅ **Kostenfrei** – du brauchst nur die Produkte deiner Wahl bestellen
