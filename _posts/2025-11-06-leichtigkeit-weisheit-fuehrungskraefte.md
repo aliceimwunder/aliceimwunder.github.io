@@ -1,6 +1,6 @@
 ---
 title: Leichtigkeit und Weisheit – Warum Klarheit nicht im Stress entsteht
-Meta-Description: Als Juristin im Dauerlauf lernte ich es auf die harte Tour: Klarheit entsteht nicht im Stress. Traumatherapeutin Alice Windolf teilt ihre persönliche Geschichte, die transformative Kraft einer kleinen Pause und warum Leichtigkeit gerade für Führungskräfte der direkte Zugang zu tiefer Weisheit und nachhaltigen Lösungen ist. Finde den Weg zurück zu deiner inneren Weite.
+Description: Als Juristin im Dauerlauf lernte ich es auf die harte Tour. Klarheit entsteht nicht im Stress. Traumatherapeutin Alice Windolf teilt ihre persönliche Geschichte, die transformative Kraft einer kleinen Pause und warum Leichtigkeit gerade für Führungskräfte der direkte Zugang zu tiefer Weisheit und nachhaltigen Lösungen ist. Finde den Weg zurück zu deiner inneren Weite.
 ---
 
 ![Leichtigkeit fuer Fuehrungskraefte](/assets/2025-11-06-Wiese-Leichtigkeit - Stress abbauen.jpg)
