@@ -1,91 +1,180 @@
 ---
-title: Stress mit Selbstliebe begegnen. Entspannung - Frische Energie
+title: Stress loslassen – innere Ruhe finden | Aurareinigung & Meditation in Berlin und online
+description: Meditationsabende mit Aurareinigung in Berlin und online – für Stressabbau, innere Ruhe und seelische Erholung. Mit geführten inneren Reisen, heilsamen Klängen und energetischer Reinigung.
 ---
-### Eine fortlaufende Serie an Gruppenabenden.  
-Komm mit auf diese **wundervollen inneren Reisen** zu Deiner Energie. Gönn Dir diese seelische Auszeit mit Wohlfühlen und frischer Energie in der eigenen Haut.
 
---> Geführte innere Reisen mit heilsamen Klängen und energetischer Reinigung, sodass Du Dich wirklich erfrischt fühlst und aus Stress-Zyklen aussteigen kannst.   
+## 🌿 Stress loslassen – innere Ruhe finden  
+### Meditationsabende mit Aurareinigung  
 
-**Nächster Termin:**  
-- **Do, 22.08.2025,** 18:30 Uhr: **Die Jahresenergie Neubeginn** – Wenn das Leben Dich ruft. Manchmal spüren wir: So wie bisher geht es nicht weiter. Und wissen doch noch nicht, wie ein anderer Weg aussehen kann. Dann braucht es Raum innezuhalten, loszulassen und dem inneren Ruf zu lauschen. Leider kommt uns bei zu viel Stress dieser innere Raum abhanden. Wenn Du weniger "Ich muss noch ...!" und mehr "Ich gestalte ...!" in Deinem Leben brauchen kannst, dann ist dieser Abend der richtige für Dich.   
-- Anmeldung per Email an: info@alicewindolf.de
+Eine fortlaufende Serie von Gruppenabenden für tiefe Entspannung, seelische Klärung und neue Energie.  
 
-Was diese Abende für Dich tun: 
-- **Stressabbau**, eigenen Energiefluss harmonisieren, Fremdeinflüsse reduzieren.
+Manchmal spüren wir: Es ist einfach zu viel.  
+Der Kopf ist voller Gedanken, der Körper angespannt, und selbst wenn Ruhe wäre, bleibt der innere Druck.  
 
-*Was Dich erwartet:* 
-- Regelmäßig stattfindende Gruppenabende zu unterschiedlichen Themen.
-- geführte Meditation mit Aurareinigung und **heilsamen Klänge**. 
-- donnerstags, meist alle zwei Monate, 18:30 Uhr, ca. 1,5-2h (Termine siehe weiter unten).
-- Mitmachen im Aquariana **vor Ort** oder auf **zoom** (hybrid),
-- mit **audio-Aufnahme** der ganz auf die Teilnehmer eingestimmten Meditation, die ich Dir per link zum Downloaden zusende.
-- Energieausgleich pro Abend: 35,- €, bei Buchung von drei Abenden: 30,-€/Abend.
+Diese Abende schenken Dir einen Raum, in dem Du wirklich loslassen darfst – ganz ohne Leistungsdruck.  
+Mit **geführten inneren Reisen**, **heilsamen Klängen** und einer sanften **energetischen Reinigung**, die Deine Aura harmonisiert und Dein Nervensystem beruhigt.  
 
-### Wann unterstützen Dich diese Abende?
-Wenn sich das Leben manchmal schwer anfühlt, Du denkst, das Leben sei kein Ponyhof, und Dir dadurch am Ende einer Arbeitswoche die **Lebensfreude** im Stress abhanden gekommen ist, dann komm zu diesen Abenden. 
+So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **klar und verbunden** fühlen.  
 
-Wenn Du das Gefühl hast, zu viel von anderen mit-/aufzunehmen und Du Dich davon überlastet fühlst, dann kannst Du an diesen Abenden wandeln, so als ob Du Dir den Staub aus den Kleidern klopfst. 
+---
 
-Die Aurareinigung dient dazu, dass Du Dich in Dir **ausgeglichen** wahrnimmst und in unserem üblicherweise dicht gepackten Alltag **zur Ruhe kommst**. So, wie Dein Körper auf Stress reagiert, so reagiert nämlich auch Deine feinstoffliche Aura auf Stress. Dadurch fühlen wir uns überreizt und aus unserer Mitte geworfen. Das lässt sich beheben. 
+### ✨ Nächster Termin
+**Donnerstag, 13. November 2025 · 18:30–20:30 Uhr**  
+**Leichtigkeit & Weisheit**  
+*Intuition stärken · Schmerz loslassen · Magie zulassen – mit Seraphim Jophiel*  
 
-Fließen unsere Energien in unseren Auraschichten **nach einer Reinigung wieder harmonischer**, dann entsteht Raum für Entspannung und **Kreativität**. Dadurch wird es Dir viel leichter fallen, wohltuende Impulse aufzunehmen. Daher gebe ich den Abenden immer ein Thema für diese frischen Impulse, wie z.B. Kraft der Ahnen, Geldfluss oder innerer Frieden. 
+📍 **Ort:** Aquariana, Berlin Kreuzberg · oder online (Zoom)  
+💠 **Energieausgleich:** 35 € / bei Buchung von drei Abenden: 30 € pro Abend  
+✉️ **Anmeldung:** [info@alicewindolf.de](mailto:info@alicewindolf.de)
 
-### Das bieten Dir die Meditationsabende mit Aurareinigung
-Die geführten Meditationen mit Aurareinigungen bieten Dir einen direkten Weg in ein entspanntes Wochenende, das Du genießen kannst. 
+---
 
-Ich weiß, manchmal ist das nämlich nicht so einfach. Meist ist da stattdessen eher ein Gefühl, zu viel von anderen über die Woche "mitzunehmen". Ein Ausgelaugtsein nach einem Einkauf in einem Einkaufszentrum. Oder Du nimmst innerlich die Arbeit mit nach Hause und kannst nicht so richtig loslassen. Vielleicht ist da das Gefühl, dass man sich innerlich verklebt und überlastet fühlt. 
+### 💫 Was Dich erwartet
+- Geführte **Meditation mit Aurareinigung**  
+- **Heilsame Klänge**, die Körper, Geist und Seele in Schwingung bringen  
+- **Energetische Reinigung**, um Fremdeinflüsse und Stressenergie zu lösen  
+- Eine **Audio-Aufnahme** zur Nachwirkung – abgestimmt auf die Gruppe  
+- Teilnahme **vor Ort oder online (hybrid)**  
 
-Dann bist Du bei meinen Aurareinigungen mit Bildern aus der **Inneren Kindheilung** und heilsamen Klängen richtig. Hier heißt es Abschalten, sich reinigen lassen, Frische tanken. Jeweils mit einer konkreten Energiefrequenz, einer Ausrichtung auf ein Thema, sodass Du mit neuen Impulsen in Dein Wochenende starten kannst.
+Diese Abende wirken tief und zugleich sanft – wie eine **seelische Dusche**, die Dich von der Woche reinigt und Dich in Deine Mitte zurückführt.  
 
-Energieausgleich: 30,-/25,- € 
+---
 
-**Die nächsten Termine in 2025 im Überblick**  
-- Do, 22.08.2025, 18:30 Uhr: **Wenn das Leben ruft. Die Jahresenergie 2025: Neubeginn** -  Neujahrsvorsätze schon sehr lange vergessen? Macht nichts. Dieses Jahr ist die Energie des Neubeginns besonders intensiv. Wir können jederzeit in uns den Raum für Neues eröffnen und die zweite Hälfte dieses Jahr aktiv gestalten, als uns nur von Aufgabenfülle und "Ich musss noch..." hetzen lassen. 
-- Do, 18.09.2025, 18:30 Uhr: "**Innere Freiheit & eigene Autorität** .
-- Do, 13.11.2025, 18:30 Uhr, **Advent: Stille & Geborgenheit**, 
+### 🌸 Wann Dich diese Abende unterstützen
+Wenn Du am Ende einer intensiven Woche spürst, dass  
+- Dein Kopf nicht abschaltet, obwohl Du müde bist,  
+- Du zu viel von anderen „aufnimmst“ und Dich erschöpft fühlst,  
+- Du Dir einfach wünschst, **Leichtigkeit und Lebensfreude** wieder zu spüren.  
 
-Dabei reinige ich tiefgreifend die Aura und integriere neue Impulse. Eine **leichte Trance** entsteht und ich verwende Bilder, wie sie auch in der Inneren Kindheilung verwendet werden, um innere Anteile anzuregen, sich wieder in Ihr Gesamtsystem harmonisch einzubinden. Dadurch ist die Aurareinigung auch traumasensibel. 
+Dann ist dieser Abend für Dich.  
+Er hilft Dir, die **Energie des Alltags loszulassen**, Deine innere Balance zu stärken und **tief zu entspannen**.  
 
-### Wo findet die Meditation statt?  
-Online auf zoom und zugleich im Aquariana, live vor Ort, 
-</br>Im Aquariana,
-</br>Praxis- und Seminarzentrum, 
-</br> Am Tempelhofer Berg 7d, 10965 Berlin. 
+---
 
-Mehr Infos zu den Themen der Abende: Bleib auf dem Laufenden mit meinem [Newsletter](alicewindolf.de/2021/04/21/Landingspage-Newsletteranmeldung.html). 
+### 🌕 Warum Aurareinigung bei Stress so wirksam ist
+So wie Dein Körper auf Anspannung reagiert, reagiert auch Deine **feinstoffliche Aura** auf Stress.  
+Wenn sie überladen oder „verklebt“ ist, fühlst Du Dich müde, gereizt oder überfordert.  
 
-![Licht am Horizont](/assets/2023-02-10-Licht am Horizont.jpg)
+Durch eine sanfte Aurareinigung kann sich Dein Energiesystem wieder harmonisieren – und mit ihm Dein ganzer Organismus.  
+Das schafft Raum für **Ruhe, Kreativität und neue Kraft**.  
 
+---
 
-### Starte geerdet in Dein Wochenende mit dieser Gruppenmeditation. 
-Anmeldung: Schreibe mir **einfach eine Email: info@alicewindolf.de**, dass Du dabei sein willst. 
+### 🌼 Mehr als Entspannung – ein Raum für Heilung
+Diese Meditationsabende sind **achtsame Heilräume**, die traumasensibel gestaltet sind.  
+Du darfst Dich sicher fühlen, auftanken, innerlich zur Ruhe kommen.  
 
-Wenn Du gerne tiefergehende Infos zu den einzelnen Themen haben wollen, kannst Du Dich zu meinem Info-Letter anmelden:  
+Mit jedem Abend stärkst Du Deine Fähigkeit, Stress liebevoll zu regulieren und Deine Energie selbst zu führen.  
+
+> **Heilung beginnt, wenn Du bei Dir ankommst.**  
+> Diese Abende laden Dich ein, genau das zu erleben – sanft, spürbar, nachhaltig.  
+
+---
+
+## 🌞 Die nächsten Termine im Überblick  
+
+### **2025**
+- **Do, 13. November 2025 · 18:30–20:30 Uhr**  
+  **Leichtigkeit & Weisheit**  
+  *Intuition stärken · Schmerz loslassen · Magie zulassen – mit Seraphim Jophiel*  
+
+- **Do, 18. Dezember 2025 · 18:30–20:30 Uhr**  
+  **Advent: Stille & Geborgenheit**  
+  *Rückzug · Herzöffnung · Einstimmung auf die Rauhnächte – mit Avatar Maria*  
+
+---
+
+### **2026**
+- **Do, 15. Januar 2026 · 19–21 Uhr**  
+  **Klarheit fürs Neue Jahr**  
+  *Innere Ausrichtung & Manifestation – mit Seraphim Michael*  
+
+- **Do, 26. Februar 2026 · 19–21 Uhr**  
+  **Schocks lösen · Energie zurückgewinnen · Mitgefühl entwickeln**  
+  *Mit Seraphim Chamuel*  
+
+- **Do, 27. März 2026 · 19–21 Uhr**  
+  **Frühlingsenergie wecken**  
+  *Alte Gedanken reinigen – mit Seraphim Jophiel*  
+
+- **Do, 7. Mai 2026 · 19–21 Uhr**  
+  **Tunnelblick lösen · Ängste wandeln · bunt aufblühen**  
+  *Mit Seraphim Gabriel*  
+
+- **Do, 11. Juni 2026 · 19–21 Uhr**  
+  **Schuld & Scham lösen**  
+  *Frieden in Beziehungen einfließen lassen – mit Seraphim Chamuel*  
+
+- **Do, 2. Juli 2026 · 19–21 Uhr**  
+  **Sommerfülle genießen**  
+  *Zellen beruhigen, Sinnlichkeit entfalten – mit Avatar Venus*  
+
+---
+
+### 🌿 Traumasensible Aurareinigung – was sie besonders macht  
+Während der Meditation reinige ich tiefgreifend die **Aura** und integriere neue Impulse.  
+Eine **leichte Trance** entsteht – sanft geführt über innere Bilder, wie sie auch in der **Inneren-Kind-Heilung** verwendet werden.  
+
+So können sich Deine inneren Anteile harmonisch wieder ins Gesamtsystem einfügen.  
+Diese Form der Aurareinigung ist dadurch **traumasensibel** – sie beruhigt, ohne zu überfordern, und unterstützt Dich darin, Dein Energiesystem sanft zu stabilisieren.  
+
+---
+
+### 📍 Wo finden die Meditationsabende statt?  
+**Hybrid: vor Ort oder online**  
+- **Ort:** Aquariana – Praxis- und Seminarzentrum  
+  Am Tempelhofer Berg 7d, 10965 Berlin  
+- **Online:** Teilnahme über Zoom möglich  
+
+Bleib auf dem Laufenden über neue Termine und Themen mit meinem [Newsletter](https://alicewindolf.de/2021/04/21/Landingspage-Newsletteranmeldung.html).  
+
+![Licht am Horizont](/assets/2023-02-10-Licht-am-Horizont.jpg)
+
+---
+
+### 🌸 Starte geerdet ins Wochenende  
+Schreibe mir einfach eine E-Mail an [info@alicewindolf.de](mailto:info@alicewindolf.de), wenn Du beim nächsten Abend dabei sein möchtest.  
+
+Wenn Du tiefergehende Informationen zu den Themen der Abende wünschst, abonniere meinen **Info-Letter**:  
+
 <span style='display:inline-block;padding:18px;background:#ececec'>
-**[Anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
+**[Jetzt anmelden](/2021/04/21/Landingspage-Newsletteranmeldung.html)**
 </span>
 
-Du hast ein Thema, das Dich brennend interessieren würde? Schreibe mir: info@alicewindolf.de und ich schaue, ob es in meine Reihe integriert werden kann. 
+Du hast ein Thema, das Dich besonders bewegt?  
+Schreibe mir – vielleicht findet es bald Eingang in eine der kommenden Aurareinigungen.  
+✉️ [info@alicewindolf.de](mailto:info@alicewindolf.de)
 
-### Zum Abschluss
-Du willst noch etwas **über mich** dazu wissen? [Infos findest Du hier](/about/). 
+---
 
-Die **Abende dauern gut 1,5h bis max. 2h** mit Ankommen im Gruppenraum, die eigentliche Energiearbeit und gemeinsames Ausklingen. Wunderschön ist es, wenn Sie die Möglichkeit haben, im Anschluss noch ein bisschen die Sitzung nachklingen und reflektieren zu lassen.  
+### 🌼 Individuelle Aurareinigung im Einzeltermin  
+Wenn Dich ein persönliches Thema stark beschäftigt, kannst Du eine individuell ausgerichtete **Einzelsitzung zur Aurareinigung** buchen:  
 
-### Drückt Dich ein persönliches Thema? 
-Dann empfehle ich für eine ganz individuell ausgerichtete Aurareinigung **[einen Einzeltermin](/2021/03/19/Einzelsitzungen.html)** zu buchen. 
+**Einzelsitzung (50 Min):** 125 €  
+**Drei Sitzungen:** 305 €  
+**Ab sechs Sitzungen:** 90 € / Sitzung  
 
-Einzelsitzung à 50 min: 125,- €
-<br>Drei Sitzungen: 305,- €</br>
-<br>Ab sechs Sitzungen: 90,-,-/Sitzung</br>
+👉 [Einzelsitzung buchen](/2021/03/19/Einzelsitzungen.html)
 
-Dann richtet sich der Heilraum ganz auf Dich aus. Hier kann ich auf individuellen Themen eingehen, wie z.B. energetische Verbindungen zu einer Kirche/Sekte tiefgreifend lösen, Nachwirkungen von Experimenten aus der Kindheit beseitigen, Erschütterungen von Unfällen harmonisieren, Sehnsucht nach der eigenen Spiritualität erfüllen.  
+Im Einzeltermin richtet sich der Heilraum ganz auf Dich aus.  
+Ich begleite Dich darin, tiefere energetische und seelische Themen zu lösen – z. B.:  
+- alte energetische Verbindungen zu lösen,  
+- Schockerfahrungen oder Unfälle zu harmonisieren,  
+- Sehnsucht nach Spiritualität wieder zu beleben.  
 
-### Empfehlung
-Die intensivsten Ergebnisse haben Klient:innen bisher in 6-10 Sitzungen _zusammen_ mit **Innerer Kindheilung** in ihrem persönlichen Wachstum erreichen können. 
-Buch Dir hierzu einen Termin für ein kostenfreies Info-Gespräch. 
+---
+
+### 🌙 Empfehlung  
+Die nachhaltigsten Ergebnisse erzielen Klient:innen, wenn sie **6–10 Sitzungen** mit begleitender **Innerer-Kind-Heilung** kombinieren.  
+
+Buche Dir für ein erstes Kennenlernen gern ein kostenfreies Informationsgespräch:  
 
 <span class='calltoaction'>
-	<a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
+  <a href="https://traumatherapie.youcanbook.me">Termin buchen</a>
 </span>
+
+---
+
+**Suchbegriffe (SEO):**  
+_Aurareinigung Berlin, Meditationsabend Berlin, energetische Reinigung, Stressabbau, innere Ruhe finden, Entspannung nach der Arbeit, Heilarbeit Berlin, Achtsamkeit, Meditation, Selbstfürsorge, energetisches Coaching, traumasensibles Angebot, Stressreduktion, Burnout-Prävention, Energiearbeit_
 
