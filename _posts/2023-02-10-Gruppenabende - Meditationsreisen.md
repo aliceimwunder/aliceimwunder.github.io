@@ -3,8 +3,8 @@ title: Stress loslassen – innere Ruhe finden
 description: Meditationsabende mit Aurareinigung in Berlin und online – für Stressabbau, innere Ruhe und seelische Erholung. Mit geführten inneren Reisen, heilsamen Klängen und energetischer Reinigung.
 ---
 
-## 🌿 Stress loslassen – innere Ruhe finden | Aurareinigung & Meditation in Berlin und online  
-Eine fortlaufende Serie von Gruppenabenden für tiefe Entspannung, seelische Klärung und neue Energie.  
+## 🌿 Geführte Meditationen in Berlin und online mit energetischer Reinigung  
+Eine fortlaufende Serie von **Gruppenabenden** für tiefe Entspannung, seelische Klärung und neue Energie. Hektik abbauen, innere Ruhe finen.  
 
 Manchmal spüren wir: Es ist einfach zu viel.  
 Der Kopf ist voller Gedanken, der Körper angespannt, und selbst wenn Ruhe wäre, bleibt der innere Druck.  
@@ -19,7 +19,7 @@ So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **kl
 ### ✨ Nächster Termin
 **Donnerstag, 13. November 2025 · 18:30–20:00 Uhr**  
 **Leichtigkeit & Weisheit**  
-*Intuition stärken · Schmerz loslassen · Magie zulassen – mit Seraphim Jophiel*  
+*Intuition stärken · Schmerz loslassen · Magie zulassen – mit der Magie der Feen und dem begleitenden Seraphim Jophiel*  
 
 📍 **Ort:** Aquariana, Berlin Kreuzberg · oder online (Zoom)  
 💠 **Energieausgleich:** 35 € / bei Buchung von drei Abenden: 30 € pro Abend  
