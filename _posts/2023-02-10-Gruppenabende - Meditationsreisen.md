@@ -4,7 +4,7 @@ description: Meditationsabende mit Aurareinigung in Berlin und online – für S
 ---
 
 ## 🌿 Geführte Meditationen in Berlin und online mit energetischer Reinigung  
-Eine fortlaufende Serie von **Gruppenabenden** für tiefe Entspannung, seelische Klärung und neue Energie. Hektik abbauen, innere Ruhe finen.  
+Eine fortlaufende Serie von **Gruppenabenden** für tiefe Entspannung, seelische Klärung und neue Energie. Baue Hektik ab, Finde innere Ruhe.  
 
 Manchmal spüren wir: Es ist einfach zu viel.  
 Der Kopf ist voller Gedanken, der Körper angespannt, und selbst wenn Ruhe wäre, bleibt der innere Druck.  
