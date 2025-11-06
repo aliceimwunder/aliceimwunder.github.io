@@ -4,8 +4,6 @@ description: Meditationsabende mit Aurareinigung in Berlin und online – für S
 ---
 
 ## 🌿 Stress loslassen – innere Ruhe finden  
-### Meditationsabende mit Aurareinigung  
-
 Eine fortlaufende Serie von Gruppenabenden für tiefe Entspannung, seelische Klärung und neue Energie.  
 
 Manchmal spüren wir: Es ist einfach zu viel.  
