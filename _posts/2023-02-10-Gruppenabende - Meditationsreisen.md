@@ -1,9 +1,9 @@
 ---
-title: Stress loslassen – innere Ruhe finden | Aurareinigung & Meditation in Berlin und online
+title: Stress loslassen – innere Ruhe finden 
 description: Meditationsabende mit Aurareinigung in Berlin und online – für Stressabbau, innere Ruhe und seelische Erholung. Mit geführten inneren Reisen, heilsamen Klängen und energetischer Reinigung.
 ---
 
-## 🌿 Stress loslassen – innere Ruhe finden  
+## 🌿 Stress loslassen – innere Ruhe finden | Aurareinigung & Meditation in Berlin und online  
 Eine fortlaufende Serie von Gruppenabenden für tiefe Entspannung, seelische Klärung und neue Energie.  
 
 Manchmal spüren wir: Es ist einfach zu viel.  
