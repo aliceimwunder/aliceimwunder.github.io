@@ -83,27 +83,27 @@ Mit jedem Abend stärkst Du Deine Fähigkeit, Stress liebevoll zu regulieren und
 ---
 
 ### **2026**
-- **Do, 15. Januar 2026 · 19–20:30 Uhr**  
+- **Do, 15. Januar 2026 · 18:30-20:00 Uhr**  
   **Klarheit fürs Neue Jahr**  
   *Innere Ausrichtung & Manifestation – mit Seraphim Michael*  
 
-- **Do, 26. Februar 2026 · 19–20:30 Uhr**  
+- **Do, 26. Februar 2026 · 18:30-20:00 Uhr**  
   **Schocks lösen · Energie zurückgewinnen · Mitgefühl entwickeln**  
   *Mit Seraphim Chamuel*  
 
-- **Do, 27. März 2026 · 19–20:30 Uhr**  
+- **Do, 27. März 2026 · 18:30-20:00 Uhr**  
   **Frühlingsenergie wecken**  
   *Alte Gedanken reinigen – mit Seraphim Jophiel*  
 
-- **Do, 7. Mai 2026 · 19–20:30 Uhr**  
+- **Do, 7. Mai 2026 · 18:30-20:00 Uhr**  
   **Tunnelblick lösen · Ängste wandeln · bunt aufblühen**  
   *Mit Seraphim Gabriel*  
 
-- **Do, 11. Juni 2026 · 19–20:30 Uhr**  
+- **Do, 11. Juni 2026 · 18:30-20:00 Uhr**  
   **Schuld & Scham lösen**  
   *Frieden in Beziehungen einfließen lassen – mit Seraphim Chamuel*  
 
-- **Do, 2. Juli 2026 · 19–20:30 Uhr**  
+- **Do, 2. Juli 2026 · 18:30-20:00 Uhr**  
   **Sommerfülle genießen**  
   *Zellen beruhigen, Sinnlichkeit entfalten – mit Avatar Venus*  
 
