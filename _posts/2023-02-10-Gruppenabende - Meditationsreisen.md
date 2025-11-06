@@ -89,7 +89,7 @@ Mit jedem Abend stärkst Du Deine Fähigkeit, Stress liebevoll zu regulieren und
 
 - **Do, 26. Februar 2026 · 18:30-20:00 Uhr**  
   **Schocks lösen · Energie zurückgewinnen · Mitgefühl entwickeln**  
-  *Mit Seraphim Chamuel*  
+  *inneren Frieden empfinden - mit Seraphim Chamuel*  
 
 - **Do, 27. März 2026 · 18:30-20:00 Uhr**  
   **Frühlingsenergie wecken**  
