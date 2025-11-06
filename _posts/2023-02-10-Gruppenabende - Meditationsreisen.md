@@ -74,11 +74,11 @@ Mit jedem Abend stärkst Du Deine Fähigkeit, Stress liebevoll zu regulieren und
 ## 🌞 Die nächsten Termine im Überblick  
 
 ### **2025**
-- **Do, 13. November 2025 · 18:30–20:30 Uhr**  
+- **Do, 13. November 2025 · 18:30–20:00 Uhr**  
   **Leichtigkeit & Weisheit**  
   *Intuition stärken · Schmerz loslassen · Magie zulassen – mit Seraphim Jophiel*  
 
-- **Do, 18. Dezember 2025 · 18:30–20:30 Uhr**  
+- **Do, 18. Dezember 2025 · 18:30–20:00 Uhr**  
   **Advent: Stille & Geborgenheit**  
   *Rückzug · Herzöffnung · Einstimmung auf die Rauhnächte – mit Avatar Maria*  
 
@@ -153,8 +153,6 @@ Wenn Dich ein persönliches Thema stark beschäftigt, kannst Du eine individuell
 **Einzelsitzung (50 Min):** 125 €  
 **Drei Sitzungen:** 305 €  
 **Ab sechs Sitzungen:** 90 € / Sitzung  
-
-👉 [Einzelsitzung buchen](/2021/03/19/Einzelsitzungen.html)
 
 Im Einzeltermin richtet sich der Heilraum ganz auf Dich aus.  
 Ich begleite Dich darin, tiefere energetische und seelische Themen zu lösen – z. B.:  
