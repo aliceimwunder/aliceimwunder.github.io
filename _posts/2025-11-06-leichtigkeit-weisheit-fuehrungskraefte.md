@@ -1,8 +1,8 @@
 ---
 title: Leichtigkeit und Weisheit 
-Description: Als Juristin im Dauerlauf lernte ich es auf die harte Tour. Klarheit entsteht nicht im Stress. Traumatherapeutin Alice Windolf teilt ihre persönliche Geschichte, die transformative Kraft einer kleinen Pause und warum Leichtigkeit gerade für Führungskräfte der direkte Zugang zu tiefer Weisheit und nachhaltigen Lösungen ist. Finde den Weg zurück zu deiner inneren Weite.
+description: Als Juristin im Dauerlauf lernte ich es auf die harte Tour. Klarheit entsteht nicht im Stress. Traumatherapeutin Alice Windolf teilt ihre persönliche Geschichte, die transformative Kraft einer kleinen Pause und warum Leichtigkeit gerade für Führungskräfte der direkte Zugang zu tiefer Weisheit und nachhaltigen Lösungen ist. Finde den Weg zurück zu deiner inneren Weite.
 ---
-<img src="assets/2025-11-06-Wiese-Leichtigkeit-Stress abbauen-Resilienz.jpg" alt="" style="max-width:100%"/>
+<img src="assets/2025-11-06-Wiese-Leichtigkeit-Stress-abbauen-Resilienz.jpg" alt="" style="max-width:100%"/>
 
 Foto von 
 <a href="https://unsplash.com/de/@nicknight?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Nick Night</a> auf <a href="https://unsplash.com/de/fotos/ein-feld-von-wildblumen-mit-der-sonne-im-hintergrund-HeMadJn-T7A?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText">Unsplash</a>
