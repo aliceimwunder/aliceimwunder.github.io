@@ -17,9 +17,11 @@ So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **kl
 ---
 
 ### ✨ Nächster Termin
-**Donnerstag, 13. November 2025 · 18:30–20:00 Uhr**  
-**Leichtigkeit & Weisheit**  
-*Intuition stärken · Schmerz loslassen · Magie zulassen – mit der Magie der Feen und dem begleitenden Seraphim Jophiel*  
+- **Do, 18. Dezember 2025 · 18:30–20:00 Uhr**  
+  **Advent: Stille & Geborgenheit**  
+  *Statt ausgelaugt unterm Weihnachtsbaum liegen: Tiefe Entspannung, wohltuende Reinigung der eigenen Aura
+  für: Rückzug · Herzöffnung · Einstimmung auf die Rauhnächte – mit der Energie von Maria*  
+
 
 📍 **Ort:** Aquariana, Berlin Kreuzberg · oder online (Zoom)  
 💠 **Energieausgleich:** 35 € / bei Buchung von drei Abenden: 30 € pro Abend  
@@ -72,10 +74,6 @@ Mit jedem Abend stärkst Du Deine Fähigkeit, Stress liebevoll zu regulieren und
 ## 🌞 Die nächsten Termine im Überblick  
 
 ### **2025**
-- **Do, 13. November 2025 · 18:30–20:00 Uhr**  
-  **Leichtigkeit & Weisheit**  
-  *Intuition stärken · Schmerz loslassen · Magie zulassen – mit Seraphim Jophiel*  
-
 - **Do, 18. Dezember 2025 · 18:30–20:00 Uhr**  
   **Advent: Stille & Geborgenheit**  
   *Rückzug · Herzöffnung · Einstimmung auf die Rauhnächte – mit Avatar Maria*  
