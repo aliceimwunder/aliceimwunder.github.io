@@ -25,7 +25,8 @@ So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **kl
 
 📍 **Ort:** Aquariana, Berlin Kreuzberg · oder online (Zoom)  
 💠 **Energieausgleich:** 35 € / bei Buchung von drei Abenden: 30 € pro Abend  
-✉️ **Anmeldung:** [info@alicewindolf.de](mailto:info@alicewindolf.de)
+✉️ **Anmeldung:** [info@alicewindolf.de](mailto:info@alicewindolf.de) <br>
+    oder hier [registrieren](https://www.supersaas.de/schedule/Traumatherapie-in-Berlin/Weihnachtsmeditation).
 
 ---
 
