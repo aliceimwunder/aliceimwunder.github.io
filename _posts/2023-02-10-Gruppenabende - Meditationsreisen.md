@@ -20,7 +20,7 @@ So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **kl
 - **Do, 18. Dezember 2025 · 18:30–20:00 Uhr**  
   **Advent: Stille & Geborgenheit**  
   *Statt ausgelaugt unterm Weihnachtsbaum liegen: Tiefe Entspannung, wohltuende Reinigung der eigenen Aura 
-  (/p)für mehr: Gelassenheit an den Feiertagen · Herzöffnung · Einstimmung auf die Rauhnächte – mit der Energie von Maria*  
+  (/br) für mehr: Gelassenheit an den Feiertagen · Herzöffnung · Einstimmung auf die Rauhnächte – mit der Energie von Maria*  
 
 
 📍 **Ort:** Aquariana, Berlin Kreuzberg · oder online (Zoom)  
