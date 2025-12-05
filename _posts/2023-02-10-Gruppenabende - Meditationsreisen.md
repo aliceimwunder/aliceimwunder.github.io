@@ -4,7 +4,7 @@ description: Meditationsabende mit Aurareinigung in Berlin und online – für S
 ---
 
 ## 🌿 Geführte Meditationen in Berlin und online mit energetischer Reinigung  
-Eine fortlaufende Serie von **Gruppenabenden** für tiefe Entspannung, seelische Klärung und neue Energie. Baue Hektik ab, Finde innere Ruhe.  
+Eine fortlaufende Serie von **Gruppenabenden** für tiefe Entspannung, seelische Klärung und neue Energie. Baue Hektik ab, finde innere Ruhe.  
 
 Manchmal spüren wir: Es ist einfach zu viel.  
 Der Kopf ist voller Gedanken, der Körper angespannt, und selbst wenn Ruhe wäre, bleibt der innere Druck.  
@@ -27,14 +27,12 @@ So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **kl
 💠 **Energieausgleich:** 35 € / bei Buchung von drei Abenden: 30 € pro Abend  
 ✉️ **Anmeldung:** Einfach ein Benutzerkonto anlegen und Sie können sich jederzeit ganz leicht anmelden.<br>
 <script src="https://cdn.supersaas.net/widget.js"></script> <script class="supersaas-widget">var supersaas = new SuperSaaS("586938:Traumatherapie-in-Berlin","808016:Weihnachtsmeditation",{"widget_type":"frame","view":"card","domain":"www.supersaas.de"})</script>
-
  ---
 
 ### 💫 Was Dich erwartet
 - Geführte **Meditation mit Aurareinigung**  
 - **Heilsame Klänge**, die Körper, Geist und Seele in Schwingung bringen  
 - **Energetische Reinigung**, um Fremdeinflüsse und Stressenergie zu lösen  
-- Eine **Audio-Aufnahme** zur Nachwirkung – abgestimmt auf die Gruppe  
 - Teilnahme **vor Ort oder online (hybrid)**  
 
 Diese Abende wirken tief und zugleich sanft – wie eine **seelische Dusche**, die Dich von der Woche reinigt und Dich in Deine Mitte zurückführt.  
