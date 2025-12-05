@@ -28,6 +28,8 @@ So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **kl
 ✉️ **Anmeldung:** [info@alicewindolf.de](mailto:info@alicewindolf.de) <br>
 🌕 oder hier **[registrieren](https://www.supersaas.de/schedule/Traumatherapie-in-Berlin/Weihnachtsmeditation)**.
 
+<script src="https://cdn.supersaas.net/widget.js"></script> <script class="supersaas-widget">var supersaas = new SuperSaaS("586938:Traumatherapie-in-Berlin","808016:Weihnachtsmeditation",{"widget_type":"frame","view":"card","domain":"www.supersaas.de"})</script>
+
 ---
 
 ### 💫 Was Dich erwartet
