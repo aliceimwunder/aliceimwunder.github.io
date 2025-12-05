@@ -20,3 +20,8 @@ hier kann man den Termin anklicken um zu buchen
 
 <script src="https://cdn.supersaas.net/widget.js"></script>
 <script class="supersaas-widget">var supersaas = new SuperSaaS("586938:Traumatherapie-in-Berlin","807591:Wheel_of_Awareness",{"widget_type":"frame","view":"free","domain":"www.supersaas.de"})</script>
+
+## Weihnachtsmedi
+
+<script src="https://cdn.supersaas.net/widget.js"></script>
+<script class="supersaas-widget">var supersaas = new SuperSaaS("586938:Traumatherapie-in-Berlin","808016:Weihnachtsmeditation",{"widget_type":"frame","view":"card","domain":"www.supersaas.de"})</script>
