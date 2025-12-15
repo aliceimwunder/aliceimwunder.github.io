@@ -1,6 +1,5 @@
 ---
 title: Weihnachtsstress & Nervensystem beruhigen: So findest Du Ruhe im Dezember
-description: Warum die Weihnachtszeit Dein Nervensystem stresst – und wie Du mit kleinen Entscheidungen, Mikro-Pausen und bewusster Abgrenzung ruhig durch den Dezember gehst.
 ---
 
 ## Weihnachtsstress & Nervensystem beruhigen
