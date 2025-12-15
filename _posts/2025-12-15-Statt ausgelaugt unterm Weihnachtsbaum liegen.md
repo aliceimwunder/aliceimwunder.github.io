@@ -1,5 +1,5 @@
 ---
-title: Weihnachtsstress & Nervensystem beruhigen: So findest Du Ruhe im Dezember
+title: Weihnachtsstress & Nervensystem beruhigen - So findest Du Ruhe im Dezember
 ---
 
 ## Weihnachtsstress & Nervensystem beruhigen
