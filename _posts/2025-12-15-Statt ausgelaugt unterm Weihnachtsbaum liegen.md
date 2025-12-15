@@ -1,9 +1,10 @@
 ---
-title: Statt ausgelaugt unterm Weihnachtsbaum zu landen
+title: Weihnachtsstress & Nervensystem beruhigen: So findest Du Ruhe im Dezember
+description: Warum die Weihnachtszeit Dein Nervensystem stresst – und wie Du mit kleinen Entscheidungen, Mikro-Pausen und bewusster Abgrenzung ruhig durch den Dezember gehst.
 ---
 
-**Warum die Weihnachtszeit unser Nervensystem so stark stresst –  
-und wie Du bewusst anders durch diese Wochen gehen kannst**
+## Weihnachtsstress & Nervensystem beruhigen
+### Warum Dezember so dicht ist – und wie Du bewusst Ruhe findest
 
 ⏱️ *Lesezeit: ca. 12–15 Minuten*  
 
