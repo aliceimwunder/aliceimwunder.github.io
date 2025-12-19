@@ -20,6 +20,8 @@ in diese Zeit bringst.
 ---
 
 ## Wenn Dezember nicht besinnlich ist – sondern dicht
+<img src="/assets/2025-12-15-und-wie-Du-Ruhe-findest.jpg" alt="" style="max-width:100%"/>
+
 Viele Menschen sagen im Dezember Sätze wie:<br>
 „Ich weiß gar nicht, warum ich so erschöpft bin.“<br>
 „Eigentlich ist doch alles okay – und trotzdem bin ich innerlich unter Strom.“
