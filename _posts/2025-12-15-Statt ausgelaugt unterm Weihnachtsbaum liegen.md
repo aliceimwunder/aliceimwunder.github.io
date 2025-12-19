@@ -1,9 +1,8 @@
 ---
 title: Weihnachtsstress & Nervensystem beruhigen - So findest Du Ruhe im Dezember
 ---
-
+<img src="/assets/2025-12-15-Warum-der-Dezember-so-dicht-ist.jpg" alt="" style="max-width:100%"/>
 ## Weihnachtsstress & Nervensystem beruhigen
-### Warum Dezember so dicht ist – und wie Du bewusst Ruhe findest
 
 ⏱️ *Lesezeit: ca. 12–15 Minuten*  
 
@@ -19,41 +18,30 @@ in diese Zeit bringst.
 ---
 
 ## Wenn Dezember nicht besinnlich ist – sondern dicht
-
 Viele Menschen sagen im Dezember Sätze wie:<br>
 „Ich weiß gar nicht, warum ich so erschöpft bin.“<br>
 „Eigentlich ist doch alles okay – und trotzdem bin ich innerlich unter Strom.“
-
 <br>
-
 Das ist kein persönliches Versagen.<br>
 Und auch kein Zeichen von mangelnder Selbstfürsorge.
-
 <br>
-
 Der Dezember ist objektiv eine hochbelastete Zeit –<br>
 auf mehreren Ebenen gleichzeitig.
-
 <br>
-
 Nicht nur wegen Terminen,<br>
 Deadlines oder familiären Verpflichtungen.
-
 <br>
 Sondern, weil sich in diesen Wochen<br>
 sehr viele Stressoren überlagern,<br>
 die unser Nervensystem kaum noch filtern kann.
-
 <br>
-
 Selbst dann nicht,<br>
 wenn wir bewusst versuchen,<br>
 uns zu entziehen.
 
 ---
-
 ## Eine persönliche Geschichte:  
-## Warum ich Weihnachten lange gemieden habe
+### Warum ich Weihnachten lange gemieden habe
 
 Ich habe Weihnachten als Jugendliche<br>
 regelrecht gehasst.
