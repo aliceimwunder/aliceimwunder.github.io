@@ -51,6 +51,7 @@ uns zu entziehen.
 ---
 ## Eine persönliche Geschichte:  
 ### Warum ich Weihnachten lange gemieden habe
+<img src="/assets/2025-12-15-Weihnachten-nur-noch-verschwommen.jpg" alt="" style="max-width:100%"/>
 
 Ich habe Weihnachten als Jugendliche<br>
 regelrecht gehasst.
