@@ -20,7 +20,7 @@ in diese Zeit bringst.
 ---
 
 ## Wenn Dezember nicht besinnlich ist – sondern dicht
-<img src="/assets/2025-12-15-und-wie-Du-Ruhe-findest.jpg" alt="" style="max-width:100%"/>
+<img src="/assets/2025-12-15-minimalistisches-Weihnachten.jpg" alt="" style="max-width:100%"/>
 
 Viele Menschen sagen im Dezember Sätze wie:<br>
 „Ich weiß gar nicht, warum ich so erschöpft bin.“<br>
@@ -175,6 +175,8 @@ energetisch überladen.
 
 Man muss ihn nicht<br>
 noch zusätzlich aufladen.
+
+<img src="/assets/2025-12-15-Warum-der-Dezember-so-dicht-ist.jpg" alt="" style="max-width:100%"/>
 
 ---
 ## Warum wir im Dezember so gestresst sind –  
