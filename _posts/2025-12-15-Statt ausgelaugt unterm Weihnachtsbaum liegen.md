@@ -399,19 +399,19 @@ Ein Raum, um:
 ## Zum Schluss
 Weihnachten wird nicht dadurch erholsam,<br>
 dass wir alles richtig machen.
-
 <br>
+
 Sondern dadurch,<br>
 dass wir bewusst entscheiden,<br>
 was wir mitmachen –<br>
 und was nicht.
-
 <br>
+
 Jahr für Jahr.<br>
 In Deinem Tempo.<br>
 Mit wachsender Klarheit.
-
 <br>
+
 Und vielleicht ist genau das<br>
 die eigentliche Qualität<br>
 dieser Zeit. 
