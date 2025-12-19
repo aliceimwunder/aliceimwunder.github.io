@@ -176,7 +176,7 @@ energetisch überladen.
 Man muss ihn nicht<br>
 noch zusätzlich aufladen.
 
-<img src="/assets/2025-12-15-Warum-der-Dezember-so-dicht-ist.jpg" alt="" style="max-width:100%"/>
+<img src="/assets/2025-12-15-minimalistisches-Weihnachten.jpg" alt="" style="max-width:100%"/>
 
 ---
 ## Warum wir im Dezember so gestresst sind –  
