@@ -420,3 +420,6 @@ Mit wachsender Klarheit.
 Und vielleicht ist genau das<br>
 die eigentliche Qualität<br>
 dieser Zeit. 
+
+<img src="/assets/2025-12-15-frohe-Weihnachten.jpg" alt="" style="max-width:100%"/>
+
