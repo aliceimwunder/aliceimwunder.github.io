@@ -73,35 +73,6 @@ Mit jedem Abend stärkst Du Deine Fähigkeit, Stress liebevoll zu regulieren und
 
 ---
 
-## 🌞 Die nächsten Termine im Überblick  
-
-### **2026**
-- **Do, 15. Januar 2026 · 18:30-20:00 Uhr**  
-  **Klarheit fürs Neue Jahr**  
-  *Innere Ausrichtung & Manifestation – mit Seraphim Michael*  
-
-- **Do, 26. Februar 2026 · 18:30-20:00 Uhr**  
-  **Schocks lösen · Energie zurückgewinnen · Mitgefühl entwickeln**  
-  *inneren Frieden empfinden - mit Seraphim Chamuel*  
-
-- **Do, 27. März 2026 · 18:30-20:00 Uhr**  
-  **Frühlingsenergie wecken**  
-  *Alte Gedanken reinigen – mit Seraphim Jophiel*  
-
-- **Do, 7. Mai 2026 · 18:30-20:00 Uhr**  
-  **Tunnelblick lösen · Ängste wandeln · bunt aufblühen**  
-  *Mit Seraphim Gabriel*  
-
-- **Do, 11. Juni 2026 · 18:30-20:00 Uhr**  
-  **Schuld & Scham lösen**  
-  *Frieden in Beziehungen einfließen lassen – mit Seraphim Chamuel*  
-
-- **Do, 2. Juli 2026 · 18:30-20:00 Uhr**  
-  **Sommerfülle genießen**  
-  *Zellen beruhigen, Sinnlichkeit entfalten – mit Avatar Venus*  
-
----
-
 ### 🌿 Traumasensible Aurareinigung – was sie besonders macht  
 Während der Meditation reinige ich tiefgreifend die **Aura** und integriere neue Impulse.  
 Eine **leichte Trance** entsteht – sanft geführt über innere Bilder, wie sie auch in der **Inneren-Kind-Heilung** verwendet werden.  
