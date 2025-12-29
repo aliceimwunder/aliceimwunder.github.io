@@ -16,20 +16,11 @@ So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **kl
 
 ---
 
-### ✨ Nächster Termin
-- **Do, 18. Dezember 2025 · 18:30–20:00 Uhr**  
-  **Advent: Stille & Geborgenheit**  
-  *Statt ausgelaugt unterm Weihnachtsbaum liegen: Tiefe Entspannung, wohltuende Reinigung der eigenen Aura <br>
-  für mehr: Gelassenheit an den Feiertagen · Herzöffnung · Einstimmung auf die Rauhnächte – mit der Energie von Maria*  
-
-
-📍 **Ort:** Aquariana, Berlin Kreuzberg · oder online (Zoom)  
-💠 **Energieausgleich:** 35 € / bei Buchung von drei Abenden: 30 € pro Abend  
-✉️ **Anmeldung:** Einfach ein Benutzerkonto anlegen und Sie können sich jederzeit ganz leicht anmelden.<br>
+### ✨ Nächste Termine
 
 <div style="margin: 1rem 2rem; background: #f5f6f7">
   <script src="https://cdn.supersaas.net/widget.js"></script>
-  <script class="supersaas-widget">var supersaas = new SuperSaaS("586938:Traumatherapie-in-Berlin","810827:Geführte_Meditationen",{"widget_type":"frame","view":"free","height":"500px","domain":"www.supersaas.de"})</script>
+  <script class="supersaas-widget">var supersaas = new SuperSaaS("586938:Traumatherapie-in-Berlin","810827:Geführte_Meditationen",{"widget_type":"schedule_title":"hide","frame","view":"free","height":"500px","domain":"www.supersaas.de"})</script>
 </div>
 
  ---
@@ -76,13 +67,6 @@ Mit jedem Abend stärkst Du Deine Fähigkeit, Stress liebevoll zu regulieren und
 ---
 
 ## 🌞 Die nächsten Termine im Überblick  
-
-### **2025**
-- **Do, 18. Dezember 2025 · 18:30–20:00 Uhr**  
-  **Advent: Stille & Geborgenheit**  
-  *Rückzug · Herzöffnung · Einstimmung auf die Rauhnächte – mit Avatar Maria*  
-
----
 
 ### **2026**
 - **Do, 15. Januar 2026 · 18:30-20:00 Uhr**  
