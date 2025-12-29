@@ -18,17 +18,19 @@ So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **kl
 
 ### ✨ Nächste Termine
 
-<style>
-  iframe.supersaas-frame #main {
-    margin: 1rem 2rem;
-    background: #f5f6f7 !important;
-  }
-</style>
 <script src="https://cdn.supersaas.net/widget.js"></script>
-<script class="supersaas-widget">var supersaas = new SuperSaaS("586938:Traumatherapie-in-Berlin","810827:Geführte_Meditationen",{"widget_type":"frame","schedule_title":"hide","view":"free","height":"500px","domain":"www.supersaas.de"})</script>
+<script class="supersaas-widget">
+  var supersaas = new SuperSaaS("586938:Traumatherapie-in-Berlin","810827:Geführte_Meditationen",{
+    "widget_type":"frame",
+    "schedule_title":"hide",
+    "view":"free",
+    "height":"500px",
+    "domain":"www.supersaas.de",
+    "custom_css": "#main { margin: 1rem 2rem; background: #f5f6f7 !important; }"
+  })
+</script>
 
-
- ---
+---
 
 ### 💫 Was Dich erwartet
 - Geführte **Meditation mit Aurareinigung**  
