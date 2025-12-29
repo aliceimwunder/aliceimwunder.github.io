@@ -18,10 +18,15 @@ So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **kl
 
 ### ✨ Nächste Termine
 
-<div style="margin: 1rem 2rem; background: #f5f6f7">
-  <script src="https://cdn.supersaas.net/widget.js"></script>
-  <script class="supersaas-widget">var supersaas = new SuperSaaS("586938:Traumatherapie-in-Berlin","810827:Geführte_Meditationen",{"widget_type":"schedule_title":"hide","frame","view":"free","height":"500px","domain":"www.supersaas.de"})</script>
-</div>
+<style>
+  iframe.supersaas-frame #main {
+    margin: 1rem 2rem;
+    background: #f5f6f7 !important;
+  }
+</style>
+<script src="https://cdn.supersaas.net/widget.js"></script>
+<script class="supersaas-widget">var supersaas = new SuperSaaS("586938:Traumatherapie-in-Berlin","810827:Geführte_Meditationen",{"widget_type":"frame","schedule_title":"hide","view":"free","height":"500px","domain":"www.supersaas.de"})</script>
+
 
  ---
 
