@@ -26,7 +26,7 @@ So kannst Du **Stress abbauen**, Deine Energie regenerieren und Dich wieder **kl
     "view":"free",
     "height":"500px",
     "domain":"www.supersaas.de",
-    "custom_css": "#main { padding: 1rem 2rem; background: #f5f6f7 !important; }"
+    "custom_css": "#main { padding: 1rem 2rem; background: #f5f6f7 !important; }\n#table_resp table .ti {text-align: left}"
   })
 </script>
 
