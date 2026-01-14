@@ -22,7 +22,7 @@ Oder kontaktieren Sie mich direkt:<br>
 </div>
 
 <p style="font-size:0.9em; color:#666; margin-top:1em;">
-(Meine Leistungen kann ich leider nur Selbstzahlern anbieten.*)
+(Meine Leistungen kann ich als Heilpraktikerin für Psychotherapie leider nur Selbstzahlern anbieten.*)
 </p>
 
 Sie wünschen sich ein glückliches Leben? <br>
