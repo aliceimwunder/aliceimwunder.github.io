@@ -3,7 +3,7 @@ layout: default
 ---
 <br/>
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
-
+## Traumatherapie in Berlin oder im Osten Brandenburgs
 <p></p>
 
 Ja, aber...
