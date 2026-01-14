@@ -128,7 +128,7 @@ Lesen Sie die Quellen daher mit offenem Blick: Krankenkassen und Kliniken legen 
 
 ---
 
-**Sie wollen mehr erfahren oder ein Gespräch vereinbaren?**  
+**Sie wollen mehr erfahren oder ein Gespräch vereinbaren?** <br><br> 
 <span class='calltoaction'>
   <a href="https://traumatherapie.youcanbook.me">Hier geht’s zum kostenfreien Vorgespräch.</a>
 </span>
