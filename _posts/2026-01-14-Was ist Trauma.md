@@ -52,7 +52,9 @@ Es geht nicht darum, alles zu dramatisieren – sondern darum, die eigenen Belas
 Manchmal sind es nicht die offensichtlichen Katastrophen, sondern das Fehlen von emotionaler Zuwendung, das uns prägt. Wenn Eltern selbst traumatisiert waren und ihre Kinder nicht co-regulieren konnten, kann das bereits zu Bindungstraumata führen – auch ohne „schlimme“ äußere Ereignisse.  
 Auch psychische Gewalt, emotionale Vernachlässigung oder Beziehungen zu Menschen mit narzisstischen Zügen können tiefe seelische Wunden hinterlassen – ganz ohne sichtbare Gewalt.
 
-Die Antwort auf die Frage "Was ist Trauma?" würde ich nicht so sehr im Außen suchen. Nach dem Motto: Dieses oder jenes Ereignis ist eindeutig ein Trauma. Interessanter ist danach zu fragen: Hat ein intensiveres Erlebnis oder eine längere Folge von kleinen Erlebnissen (wie Nadelstiche) dazu geführt, dass die eigene Fähigkeit zur seelischen Verarbeitung überfordert war? 
+Die Antwort auf die Frage "Was ist Trauma?" würde ich nicht so sehr im Außen suchen. Nach dem Motto: Dieses oder jenes Ereignis ist eindeutig ein Trauma. Wer das nicht nachweisen kann, ist nicht traumatisiert, egal, wie es dem- oder derjenigen heute geht. 
+
+Interessanter ist danach zu fragen: Hat ein für mich intensiveres Erlebnis oder eine längere Folge von kleinen Erlebnissen (wie lauter Nadelstiche) dazu geführt, dass meine Fähigkeit zur seelischen Verarbeitung überfordert war?
 
 ---
 
@@ -123,7 +125,7 @@ Lesen Sie die Quellen daher mit offenem Blick: Krankenkassen und Kliniken legen 
 
 ---
 
-**Sie möchten mehr erfahren oder ein Gespräch vereinbaren?**  
+**Sie wollen mehr erfahren oder ein Gespräch vereinbaren?**  
 <span class='calltoaction'>
   <a href="https://traumatherapie.youcanbook.me">Hier geht’s zum kostenfreien Vorgespräch.</a>
 </span>
