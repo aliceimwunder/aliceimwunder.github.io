@@ -5,7 +5,16 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
 ## Traumatherapie in Berlin oder im Osten Brandenburgs
 <p></p>
+Hier können Sie direkt Ihre Fragen zu Therapiemöglichkeiten bei mir stellen <br> 
+und sich ein unverbindliches,<br>
+20 minütiges,kostenfreies <br> 
+<span class='calltoaction'>
+	<a href="https://traumatherapie.youcanbook.me">Vorgespräch buchen.</a>
+</span>
 
+(Meine Leistungen kann ich leider nur Selbstzahlern anbieten.*)
+
+Sie wünschen sich ein glückliches Leben <br>
 Ja, aber...
 * Ihr Tagesablauf ähnelt eher: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
 * Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße hochlegen** finden. Sie fühlen sich überreizt. Entspannung und Genuss scheinen Ihnen fremd zu sein.
@@ -57,7 +66,7 @@ Kurz gefasst: **Ziel einer Traumatherapie** ist es, dass Sie Ihre Gefühle wahrn
 - Mehrjährige Erfahrung.
 - Einen sicheren Raum in einer Praxisoase mitten in Berlin (nahe Bergmannkiez) oder östlich von Berlin in Briesen/Mark.
 - Einfühlsame und vertrauensvolle Begleitung.
-- Kostengünstige Sitzungen zu 90,-€/Sitzung (nur Selbstzahler).*
+- Kostengünstige Sitzungen zu 90,-€/Sitzung (leider nur Selbstzahler).* Bei 14-tägigem Rhythmus beläuft sich die monatliche Investition auf nur 180,- € und Sie können direkt beginnen. 
 - Sofortige Terminverfügbarkeit.
 - Sitzungen auch auf Englisch möglich.
 - Flexible Terminoptionen: wöchentlich oder alle zwei Wochen, je nach Bedarf. (Auch ideal zur Überbrückung der Wartezeit auf einen kassenfinanzierten Therapieplatz.)
