@@ -5,15 +5,25 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
 <p></p>
 
-## Traumatherapie in Berlin oder im Osten Brandenburgs
-Hier können Sie direkt Ihre Fragen zu Therapiemöglichkeiten bei mir stellen <br> 
-und sich ein unverbindliches,<br>
-20 minütiges, kostenfreies <br> <br>
+## Traumatherapie in Berlin & Brandenburg
+
+**Kostenfreies Vorgespräch für Traumatherapie buchen**  
+Sie möchten Ihre seelische Gesundheit stärken und suchen professionelle Traumatherapie?  
+Vereinbaren Sie jetzt ein unverbindliches, 20-minütiges Vorgespräch – persönlich, diskret und ohne Verpflichtung.
+
 <span class='calltoaction'>
-	<a href="https://traumatherapie.youcanbook.me">Vorgespräch buchen.</a>
+    <a href="https://traumatherapie.youcanbook.me">Vorgespräch für Traumatherapie buchen</a>
 </span>
 
+<div style="margin-top:1em;">
+Oder kontaktieren Sie mich direkt:<br>
+<strong>Email:</strong> <a href="mailto:info@alicewindolf.de">info@alicewindolf.de</a><br>
+<strong>Telefon:</strong> <a href="tel:01607047080">0160 704 7080</a>
+</div>
+
+<p style="font-size:0.9em; color:#666; margin-top:1em;">
 (Meine Leistungen kann ich leider nur Selbstzahlern anbieten.*)
+</p>
 
 Sie wünschen sich ein glückliches Leben? <br>
 Ja, aber...
