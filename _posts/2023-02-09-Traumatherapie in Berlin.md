@@ -43,6 +43,49 @@ Im kostenfreien Vorgespräch klären wir gemeinsam Ihre Fragen – diskret, wert
   <a href="https://traumatherapie.youcanbook.me">Kostenfreies Vorgespräch buchen</a>
 </span>
 
+## Sind Sie mit Ihren Herausforderungen hier richtig?
+
+**Ich unterstütze Menschen, die schwierige Zeiten erlebt haben und heute unter seelischen Folgen leiden.**  
+Wenn Sie sich nach innerer Ausgeglichenheit, Frieden und einem glücklicheren Leben sehnen, sind Sie hier richtig.  
+Sie müssen sich übrigens nicht an alle Details erinnern – auch verdrängte oder sehr frühe Erfahrungen können heute noch wirken.
+
+**Was Sie bei mir erwartet:**
+- Keine starren Fragebögen oder Diagnoseschubladen
+- Ein individueller Ansatz, der auf Ihre persönlichen Bedürfnisse eingeht
+- Methoden wie EMDR, innere Aufstellungen, Körperübungen und empathisches Zuhören – so, wie es für Sie passt
+
+**Sie wünschen sich Veränderung?**  
+Buchen Sie Ihr kostenfreies, unverbindliches Vorgespräch – gemeinsam klären wir Ihre Fragen und nächsten Schritte.
+
+<span class='calltoaction'>
+  <a href="https://traumatherapie.youcanbook.me">Kostenfreies Vorgespräch buchen</a>
+</span>
+
+<p style="font-size:0.9em; color:#666; margin-top:1em;">
+(Meine Leistungen kann ich leider nur Selbstzahlern anbieten.*)
+</p>
+
+---
+
+## Sie sind nicht allein
+Schocktraumata und frühe Bindungsverluste können jeden treffen – ihre Folgen zeigen sich oft erst Jahre später.  
+Viele Menschen tragen alte Wunden aus der Kindheit in sich, oft unbemerkt hinter einer starken Fassade.  
+Vertrauen Sie sich: **Sie sind Expertin/Experte für Ihr eigenes Leben.**
+
+---
+
+## Licht am Ende des Tunnels
+Mit Traumatherapie kann sich eine Tür zu neuer Lebensfreude öffnen.  
+Sie können wieder Kraft, Ruhe und Sicherheit im Alltag spüren – selbst wenn das heute noch unvorstellbar scheint.
+
+> **Ihre innere Stärke ist da – sie hat Sie bis hierher getragen.**  
+> Gemeinsam finden wir Wege, wie Sie diese Kraft wieder spüren und für sich nutzen können.
+
+---
+
+*Sie möchten mehr über die Hintergründe von Trauma und häufige Fragen erfahren? [Hier geht’s zum Blogartikel.](#)*
+
+
 
 ### Sind Sie mit Ihren Herausforderungen hier richtig?
 Ich unterstütze Menschen mit **Traumatherapie**, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Sie müssen sich übrigens nicht an Details erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
