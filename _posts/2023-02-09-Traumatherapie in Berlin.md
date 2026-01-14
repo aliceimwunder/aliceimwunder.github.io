@@ -5,7 +5,7 @@ layout: default
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
 <p></p>
 
-## Traumatherapie in Berlin & Brandenburg
+## Traumatherapie in Berlin-Kreuzberg & Ost-Brandenburg
 Sie wollen Ihre seelische Gesundheit stärken und suchen professionelle Traumatherapie?  
 Vereinbaren Sie jetzt ein unverbindliches, 20-minütiges Vorgespräch – persönlich und kostenfrei.
 
@@ -83,7 +83,7 @@ Sie können wieder Kraft, Ruhe und Sicherheit im Alltag spüren – selbst wenn 
 
 ---
 
-*Sie möchten mehr über die Hintergründe von Trauma und häufige Fragen erfahren? [Hier geht’s zum Blogartikel.](#)*
+*Sie wollen mehr über die Hintergründe von Trauma und häufige Fragen erfahren? [Hier geht’s zum Blogartikel.](/2026/01/14/Was-ist-Trauma.html)*
 
 
 
