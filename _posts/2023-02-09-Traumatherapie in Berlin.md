@@ -27,7 +27,7 @@ Zu Ihrer Orientierung habe ich Beispiele für **Spätfolgen** von belastenden Er
 
 --> Das Wort "Trauma" verwirrt übrigens oft, weil man sofort an Katastrophen oder Krieg denkt. Manch einer weiß genau, dass ihm oder ihr extrem Belastendes widerfahren ist. <br>
 Das ist bei Ihnen so? <br>
-Dann geht es hier direkt zu einem 20 minütigen, kostenfreien <br> 
+Dann geht es hier direkt zu einem 20 minütigen, kostenfreien <br><br> 
 <span class='calltoaction'>
 	<a href="https://traumatherapie.youcanbook.me">Vorgespräch.</a>
 </span>
