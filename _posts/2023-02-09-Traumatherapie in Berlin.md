@@ -23,34 +23,26 @@ Oder kontaktieren Sie mich direkt:<br>
 (Meine Leistungen kann ich als Heilpraktikerin für Psychotherapie leider nur Selbstzahlern anbieten.*)
 </p>
 
-Sie wünschen sich ein glückliches Leben? <br>
-Ja, aber...
-* Ihr Tagesablauf ähnelt eher: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
-* Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße hochlegen** finden. Sie fühlen sich überreizt. Entspannung und Genuss scheinen Ihnen fremd zu sein.
-* Verhasste Handlungsmuster, Gedanken und belastende Gefühle tauchen immer wieder auf, als wären sie ferngesteuert.
-* Es fällt Ihnen schwer, sich angesichts Ihrer Erfahrungen vorzustellen, wie ein **gutes Leben** aussehen könnte. Vielleicht fühlen Sie sich sogar als austherapiert.
-* Sie wissen oder haben diese Intuition in sich, dass es möglicherweise mit Trauma zu tun hat. 
+## Erkennen Sie sich wieder?
+- Ihr Alltag fühlt sich oft wie ein Überlebenskampf an – echte Erholung bleibt aus.
+- Sie sind ständig angespannt, überreizt und finden kaum Momente der Ruhe.
+- Belastende Gedanken und Gefühle tauchen immer wieder auf, scheinbar ohne Grund.
+- Es fällt Ihnen schwer, sich ein wirklich gutes Leben vorzustellen – vielleicht fühlen Sie sich sogar „austherapiert“.
+- Sie wissen oder ahnen intuitiv, dass alte Erfahrungen oder Verletzungen dahinterstecken könnten.
 
-Zu Ihrer Orientierung habe ich Beispiele für **Spätfolgen** von belastenden Erfahrungen aufgezählt. Eher unspezifsch können z.B. auch Depression oder psychosomatische Schmerzen zu den Spätzfolgen gehören. 
+**Wichtig zu wissen:** <br> 
+Viele Menschen denken bei „Trauma“ nur an Katastrophen. Doch auch alltägliche, scheinbar „kleine“ Belastungen können Spuren hinterlassen – oft zeigen sie sich erst viel später, zum Beispiel durch Erschöpfung, Schmerzen oder Selbstzweifel.
 
---> Das Wort "Trauma" verwirrt übrigens oft, weil man sofort an Katastrophen oder Krieg denkt. Manch einer weiß genau, dass ihm oder ihr extrem Belastendes widerfahren ist. <br>
-Das ist bei Ihnen so? <br>
-Dann geht es hier direkt zu einem 20 minütigen, kostenfreien <br><br> 
+> **Ihre Erfahrungen sind gültig – Ihre Wahrheit zählt.**  <br>
+> Es geht nicht darum, alles zu dramatisieren, sondern darum, Ihre individuellen Belastungen ernst zu nehmen und gemeinsam neue Wege zu finden.
+
+**Sie wollen herausfinden, ob Traumatherapie für Sie sinnvoll ist?** <br>
+Im kostenfreien Vorgespräch klären wir gemeinsam Ihre Fragen – diskret, wertschätzend und ohne jede Verpflichtung.
+
 <span class='calltoaction'>
-	<a href="https://traumatherapie.youcanbook.me">Vorgespräch.</a>
+  <a href="https://traumatherapie.youcanbook.me">Kostenfreies Vorgespräch buchen</a>
 </span>
 
-So klar mit dem "Schrecklichen" ist das nicht bei jedem.  
-
-Denn eigentlich meint der Begriff "Trauma" in diesem Zusammenhang nur, dass es zu einer (seelischen) Verletzung gekommen ist, die sich im Nachhinein nicht vollständig zurückbilden konnte. Eine Verletzung fragt nicht danach, wie sie entstanden ist! 
-
-Ja, manche Menschen sind überdurchschnittlich **widerstandsfähig** und verarbeiten sogar schrecklichste Erfahrungen. Es macht aber wenig Sinn, sich an diesen Menschen zu orientieren, wenn man dauerhafte, seelische Verletzungen davon getragen hat. Auch **typische Alltagssituation**, die wenig mit katastrophenartigen Ausnahmesituationen zu tun haben, z.B. "nur" Schulmobbing, können Langzeitfolgen haben. So kann die betroffene Person später beißende Kopfschmerzen bei Teambesprechungen entwickeln, ständig an sich zweifeln und obendrauf finden Ärzt:innen keine medizinische Ursache für die Kopfschmerzen, sodass man dann auch noch dem skeptischen Blick des medizinschen Personals ausgesetzt ist. Bildet man sich das alles nur ein? Diese Art Erfahrungen macht es zumindest nicht besser. 
-
-Man kann an sich dauerhaft zweifeln: War es früher wirklich so schlimm, dass man von Trauma sprechen kann? Oder Sie können Ihrer Intuition vertrauen und Traumatherapie ausprobieren. 
-
-Mein persönlicher Weg war hier, aus solchen Bewertungen auzusteigen. Auch ein,e Sanitäter:in fragt an einem Unfallort nicht, ob man sich überhaupt das Recht zu einem Beinbruch nach einem Autounfall erworben hat. Es wird nur danach geschaut, welche konkreten Verletzungen vorliegen und diese werden versorgt. Will ich deswegen alles im Leben zum Trauma erklären? Nein. Natürlich macht auch es keinen Sinn, Drama zu erzeugen, wo keins ist. Allerdings sind aus meiner Erfahrung unsere emotionalen Lebensbedingungen trotz guter Versorgung mit Lebensmitteln und äußerlichen friedlichen Verhältnissen nicht so, wie es für uns in unserer Kindheit ideal wäre.   
-
-Interessant ist daher nur, ob Ihr **individuelles psychisches System** überlastende Erfahrungen nicht verarbeiten konnte. Wir sind keine Roboter mit gleicher Hard- und Software. Ihre **Wahrheit** zählt.
 
 ### Sind Sie mit Ihren Herausforderungen hier richtig?
 Ich unterstütze Menschen mit **Traumatherapie**, die harte Zeiten erlebt haben und an den seelischen Folgen leiden. Wenn Sie auf der Suche nach innerer **Ausgeglichenheit**, Frieden und einem glücklicheren Leben sind, können wir zusammen Veränderungen bewirken. Sie müssen sich übrigens nicht an Details erinnern können, da manche Erfahrungen verdrängt werden oder zu weit in der Kindheit liegen.
