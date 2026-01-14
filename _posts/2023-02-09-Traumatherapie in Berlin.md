@@ -8,7 +8,7 @@ layout: default
 ## Traumatherapie in Berlin oder im Osten Brandenburgs
 Hier können Sie direkt Ihre Fragen zu Therapiemöglichkeiten bei mir stellen <br> 
 und sich ein unverbindliches,<br>
-20 minütiges, kostenfreies <br> 
+20 minütiges, kostenfreies <br> <br>
 <span class='calltoaction'>
 	<a href="https://traumatherapie.youcanbook.me">Vorgespräch buchen.</a>
 </span>
