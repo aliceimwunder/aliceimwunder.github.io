@@ -3,18 +3,19 @@ layout: default
 ---
 <br/>
 <img src="/assets/images/Landingpage Traumatherapie3.jpeg" alt="" style="max-width:100%"/>
-## Traumatherapie in Berlin oder im Osten Brandenburgs
 <p></p>
+
+## Traumatherapie in Berlin oder im Osten Brandenburgs
 Hier können Sie direkt Ihre Fragen zu Therapiemöglichkeiten bei mir stellen <br> 
 und sich ein unverbindliches,<br>
-20 minütiges,kostenfreies <br> 
+20 minütiges, kostenfreies <br> 
 <span class='calltoaction'>
 	<a href="https://traumatherapie.youcanbook.me">Vorgespräch buchen.</a>
 </span>
 
 (Meine Leistungen kann ich leider nur Selbstzahlern anbieten.*)
 
-Sie wünschen sich ein glückliches Leben <br>
+Sie wünschen sich ein glückliches Leben? <br>
 Ja, aber...
 * Ihr Tagesablauf ähnelt eher: Aufstehen. Überleben. Hinlegen. Manche Tage fühlen sich wie eine Schlacht an, die Sie nicht gewinnen können. 
 * Ihr Sofa ist geradezu überflüssig, weil Sie nicht die **Ruhe zum Füße hochlegen** finden. Sie fühlen sich überreizt. Entspannung und Genuss scheinen Ihnen fremd zu sein.
