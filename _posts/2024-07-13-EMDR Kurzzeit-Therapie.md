@@ -13,6 +13,10 @@ EMDR kann Sie mit einem **breiten Anwendungsbereich** unterstützen:
 ### Sich frei und in sich stabil fühlen – Kurzzeit-Therapie mit EMDR
 Sie wünschen sich ein Leben, in dem Sie sich **zentriert** und wohl fühlen?  
 
+Hier geht es direkt zum 20minütigen, kostenfreien unverbindlichen [/br]
+[**Vorgesprächstermin**](https://traumatherapie.youcanbook.me).
+
+
 Ich bin mir sicher: Sie können sich ein Leben erschaffen, in dem Sie morgens erfrischt und **voller Energie** aufwachen, erholsame Nächte genießen und sich sicher und ruhig fühlen. 
 
 Ein Leben, in dem Sie Ihre Gefühle im Griff haben, sich selbst **wertschätzen** und in Ihrem beruflichen sowie privaten Alltag mit **Selbstvertrauen** auftreten. 
