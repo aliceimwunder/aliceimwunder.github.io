@@ -8,7 +8,7 @@ layout: default
 ## Traumatherapie in Berlin & Brandenburg
 
 **Kostenfreies Vorgespräch für Traumatherapie buchen**  
-Sie möchten Ihre seelische Gesundheit stärken und suchen professionelle Traumatherapie?  
+Sie wollen Ihre seelische Gesundheit stärken und suchen professionelle Traumatherapie?  
 Vereinbaren Sie jetzt ein unverbindliches, 20-minütiges Vorgespräch – persönlich, diskret und ohne Verpflichtung.
 
 <span class='calltoaction'>
