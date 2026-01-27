@@ -29,11 +29,11 @@ Gerade in der Kindheit können Erlebnisse traumatisch wirken, denen wir als Erwa
 **Weniger typische, aber häufige Symptome:**
 - Chronische Schmerzen ohne klare medizinische Ursache
 - Konzentrationsprobleme, Gedächtnislücken
-- Selbstzweifel, das Gefühl „irgendwie falsch“ zu sein
-- Übermäßige Anpassung, Perfektionismus, ständiges Funktionieren (dadurch können Menschen eine Anfälligkeit für Burnout in sich tragen)
+- Selbstzweifel, das Gefühl „irgendwie falsch“ oder "nicht gut genug" zu sein
+- Übermäßige Anpassung, Perfektionismus, ständiges Funktionieren (dadurch können Menschen mit erfahrenen Traumata eine Anfälligkeit für Burnout in sich tragen)
 - Körperliche Symptome wie Kopfschmerzen, Magenprobleme, Herzrasen
 
-> **Wichtig:** Jeder Mensch reagiert anders. Es gibt kein „richtiges“ oder „falsches“ Trauma-Symptom.
+> **Wichtig:** Jeder Mensch reagiert anders. Es gibt kein „richtiges“ oder „falsches“ Trauma-Symptom. Manches kann z.B. für Depression und für Traumafolgen sprechen. 
 
 ---
 
@@ -52,12 +52,14 @@ Diese Zweifel sind verständlich – und sie sind Teil des Problems. Unser psych
 Aber viele Menschen tragen alte, unverarbeitete Erfahrungen mit sich, die das Leben heute unbewusst beeinflussen. <br> 
 Es geht nicht darum, alles zu dramatisieren – sondern darum, die eigenen Belastungen ernst zu nehmen und neue Wege zu finden.
 
-Manchmal sind es nicht die offensichtlichen Katastrophen, sondern das Fehlen von emotionaler Zuwendung, das uns prägt. Wenn Eltern selbst traumatisiert waren und ihre Kinder nicht co-regulieren konnten, kann das bereits zu Bindungstraumata führen – auch ohne „schlimme“ äußere Ereignisse.  
-Auch psychische Gewalt, emotionale Vernachlässigung oder Beziehungen zu Menschen mit narzisstischen Zügen können tiefe seelische Wunden hinterlassen – ganz ohne sichtbare Gewalt.
+Manchmal sind es nicht die offensichtlichen Katastrophen, sondern das Fehlen von emotionaler Zuwendung, das uns prägt. Wenn Eltern selbst traumatisiert waren und ihre Kinder dauerhaft nicht co-regulieren konnten, kann das zu Bindungstraumata führen – auch ohne „schlimme“ äußere Ereignisse.  
+Auch psychische Gewalt, emotionale Vernachlässigung oder Beziehungen zu Menschen mit narzistischen Zügen können tiefe seelische Wunden hinterlassen – ganz ohne sichtbare Gewalt.
 
 Die Antwort auf die Frage "Was ist Trauma?" würde ich nicht so sehr im Außen suchen. Nach dem Motto: Dieses oder jenes Ereignis ist eindeutig ein Trauma. Wer das nicht nachweisen kann, ist nicht traumatisiert, egal, wie es dem- oder derjenigen heute geht. 
 
-Interessanter ist danach zu fragen: Hat ein für mich intensiveres Erlebnis oder eine längere Folge von kleinen Erlebnissen (wie lauter Nadelstiche) dazu geführt, dass meine Fähigkeit zur seelischen Verarbeitung überfordert war?
+Übrigens: man geht davon aus, dass nur etwas 20% der Kindern, die Opfer von sexuellem Missbrauch wurden, später klassische Symptome einer (komplex-) posttraumatischen Belastungsstörung entwickeln. Die Mehrheit, die später seelisch an den Folgen leidet, hat eher unspezifische Symptome. Umgekehrt leiden nicht alle Menschen an seelischen Spätfolgen nach Erlebnissen, selbst wenn diese Erlebnisse von den meisten Menschen als traumatisch eingestuft würden.  
+
+Deswegen ist es interessanter, danach zu fragen: Hat ein für mich intensiveres Erlebnis oder eine längere Folge von kleinen Erlebnissen (wie lauter Nadelstiche) dazu geführt, dass meine Fähigkeit zur seelischen Verarbeitung überfordert war?
 
 ---
 
