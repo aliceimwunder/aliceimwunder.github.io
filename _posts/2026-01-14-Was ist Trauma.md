@@ -49,7 +49,7 @@ Diese Zweifel sind verständlich – und sie sind Teil des Problems. Unser psych
 ## Ist jetzt alles Trauma?
 
 **Nein. Nicht jedes unangenehme Erlebnis ist ein Trauma.**  
-Aber viele Menschen tragen alte, unverarbeitete Erfahrungen mit sich, die das Leben heute unbewusst beeinflussen. <br> 
+Zugleich tragen viele Menschen alte, unverarbeitete Erfahrungen mit sich, die das Leben heute unbewusst beeinflussen. <br> 
 Es geht nicht darum, alles zu dramatisieren – sondern darum, die eigenen Belastungen ernst zu nehmen und neue Wege zu finden.
 
 Manchmal sind es nicht die offensichtlichen Katastrophen, sondern das Fehlen von emotionaler Zuwendung, das uns prägt. Wenn Eltern selbst traumatisiert waren und ihre Kinder dauerhaft nicht co-regulieren konnten, kann das zu Bindungstraumata führen – auch ohne „schlimme“ äußere Ereignisse.  
@@ -57,7 +57,7 @@ Auch psychische Gewalt, emotionale Vernachlässigung oder Beziehungen zu Mensche
 
 Die Antwort auf die Frage "Was ist Trauma?" würde ich nicht so sehr im Außen suchen. Nach dem Motto: Dieses oder jenes Ereignis ist eindeutig ein Trauma. Wer das nicht nachweisen kann, ist nicht traumatisiert, egal, wie es dem- oder derjenigen heute geht. 
 
-Übrigens: man geht davon aus, dass nur etwas 20% der Kindern, die Opfer von sexuellem Missbrauch wurden, später klassische Symptome einer (komplex-) posttraumatischen Belastungsstörung entwickeln. Die Mehrheit, die später seelisch an den Folgen leidet, hat eher unspezifische Symptome. Umgekehrt leiden nicht alle Menschen an seelischen Spätfolgen nach Erlebnissen, selbst wenn diese Erlebnisse von den meisten Menschen als traumatisch eingestuft würden.  
+Übrigens: man geht davon aus, dass nur etwas 20% der Kinder, die Opfer von sexuellem Missbrauch wurden, später klassische Symptome einer (komplex-) posttraumatischen Belastungsstörung entwickeln. Die Mehrheit, die später seelisch an den Folgen leidet, hat eher unspezifische Symptome. Umgekehrt leiden nicht alle Menschen an seelischen Spätfolgen nach Erlebnissen, selbst wenn diese Erlebnisse von den meisten Menschen als traumatisch eingestuft würden.  
 
 Deswegen ist es interessanter, danach zu fragen: Hat ein für mich intensiveres Erlebnis oder eine längere Folge von kleinen Erlebnissen (wie lauter Nadelstiche) dazu geführt, dass meine Fähigkeit zur seelischen Verarbeitung überfordert war?
 
