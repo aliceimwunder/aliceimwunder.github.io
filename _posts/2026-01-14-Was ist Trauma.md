@@ -2,7 +2,7 @@
 layout: default
 ---
 <br/>
-<img src="/assets/images/2026-01-14-Was ist Trauma oeffnende Tuer in landschaft.jpg" alt="" style="max-width:100%"/>
+<img src="/assets/2026-01-14-Was ist Trauma oeffnende Tuer in landschaft.jpg" alt="" style="max-width:100%"/>
 <p></p>
 
 ## Was ist Trauma?
