@@ -7,7 +7,7 @@ description: Meditationsabende im Aquariana (Berlin) und online. Traumasensible 
 ### Meditationsabende im Aquariana & online
 
 Für Menschen, die viel tragen  
-und abends wirklich **runterkommen** möchten.
+und abends wirklich **runterkommen** wollen.
 
 ---
 
