@@ -3,8 +3,7 @@ title: Stress loslassen – innere Ruhe finden
 description: Meditationsabende im Aquariana (Berlin) und online. Traumasensible Stressregulation, innere Bilder und sanfte energetische Klärung – für spürbar mehr Ruhe.
 ---
 
-## 🌿 Stress loslassen – innere Ruhe finden
-### Meditationsabende im Aquariana & online
+### 🌿 Meditationsabende im Aquariana & online
 
 Für Menschen, die viel tragen<br>
 und abends wirklich **runterkommen** wollen.
