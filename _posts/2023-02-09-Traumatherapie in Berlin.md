@@ -119,7 +119,7 @@ Traumatherapie kann sowohl mit als auch ohne medikamentöse Begleitung stattfind
 Psychopharmaka können belastende Symptome bei manchen Menschen dämpfen. Sie können jedoch keine früheren belastenden Erfahrungen verarbeiten.     
 Andere Menschen erleben keine dämpfende Wirkung oder haben sogar deutliche Nebenwirkungen.   
 
-Als Heilpraktikerin für Psychotherapie berate ich nicht zu Medikamenten. Ob eine medikamentöse Begleitung sinnvoll ist, wägen Sie bitte individuell und in Ruhe mit Ihrem Facharzt/-ärztin ab.   
+Als Heilpraktikerin für Psychotherapie berate ich nicht zu Medikamenten. Ob eine medikamentöse Begleitung sinnvoll ist, wägen Sie bitte individuell und in Ruhe mit Ihrer,m Facharzt/-ärztin ab.   
 
 ---
 
@@ -137,5 +137,5 @@ Oder kontaktieren Sie mich direkt:
 
 <p style="font-size:0.85em; color:#666;">
 *Gesetzliche Krankenkassen übernehmen die Kosten nicht. Private Zusatzversicherungen können in Einzelfällen - je nach Ihren Vertragsbedingungen - Zuschüsse gewähren.  
-Bitte klären Sie Leistungsumfänge oder steuerliche Fragen ggf. mit einer fachkundigen Beratung.*
+Bitte klären Sie Leistungsumfänge oder steuerliche Absetzbarkeit ggf. mit einer fachkundigen Beratung.*
 </p>
