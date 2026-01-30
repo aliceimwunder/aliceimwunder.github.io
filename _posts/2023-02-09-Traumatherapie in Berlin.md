@@ -92,12 +92,20 @@ Wenn Sie zeitlich stark eingebunden sind oder ortsunabhängig arbeiten möchten,
 
  [Zum Online-Coaching für Führungskräfte](/traumasensibles-coaching)
 
+**Hinweis zum therapeutischen Ansatz:**   
+Traumatherapie versteht sich als eine längerfristige Begleitung, die Raum für nachhaltige Veränderung, bewusste Selbstwahrnehmung und eine tiefgreifende Neuorganisation des Nervensystems schafft. Solche Prozesse brauchen Zeit – und wirken dafür oft auf geerdete Weise bewusstseinsverändernd weit über die Therapie hinaus in das eigene Leben.
+
+Sie wünschen sich eine zeitlich klar begrenzte, fokussierte Unterstützung?
+Für die gezielte Verarbeitung konkreter Belastungen oder zur Unterstützung bei klar umrissenen Zielen biete ich EMDR auch als Kurzzeit-Therapie an.   
+[👉 Mehr zur EMDR-Kurzzeit-Therapie](/2024/07/13/EMDR-Kurzzeit-Therapie.html)
+
 ---
 
 ## Häufige Fragen – Klarheit hilft weiter
 
 **Was kostet eine Sitzung?**  
-50 Minuten: 90 € · 80 Minuten: 135 € (Selbstzahler)
+50 Minuten: 90 € · 80 Minuten: 135 € (für intensivere Sitzungen, v.a. bei Interesse an EMDR/EFT)  
+(Selbstzahler)
 
 **Bieten Sie ein kostenloses Erstgespräch an?**  
 Ich biete ein kostenfreies 20-minütiges Vorgespräch (online oder telefonisch) zum Kennenlernen an.  
