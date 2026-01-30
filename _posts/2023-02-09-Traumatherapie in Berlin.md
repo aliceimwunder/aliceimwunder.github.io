@@ -28,7 +28,7 @@ Berlin-Kreuzberg · oder naturnah vor den Toren Berlins in Briesen (Mark) · Sit
 - Ihr Bauchgefühl sagt: Etwas Vergangenes wirkt bis heute nach.
 
 **Wichtig zu wissen:**  
-Trauma entsteht nicht nur durch extreme Ereignisse. Auch langanhaltende Überforderung, emotionale Vernachlässigung oder frühe Bindungsverletzungen können Spuren hinterlassen.
+Trauma entsteht *nicht nur* durch extreme Ereignisse. Auch langanhaltende Überforderung, emotionale Vernachlässigung oder frühe Bindungsverletzungen können Spuren hinterlassen.
 
 > **Ihre Erfahrungen sind gültig.**  
 > In der Traumatherapie geht es nicht um Bewertung oder perfekte Diagnosen – sondern um Verstehen, Stabilisieren und Wandlung.  
@@ -44,7 +44,7 @@ Ich begleite Menschen, die schwierige Zeiten erlebt haben und heute unter seelis
 - chronische Erschöpfung oder innere Unruhe
 - emotionale Überreaktionen oder Rückzug
 - belastende Beziehungsmuster
-- das Gefühl, „festzustecken“, obwohl das Leben weitergeht, als wäre man Statist:in in einem Film eines anderen. 
+- das Gefühl, „festzustecken“, obwohl das Leben weitergeht, als wäre man Statist:in in einem Film. 
 
 Sie müssen sich nicht an alles erinnern können. Auch frühe oder verdrängte Erfahrungen können heute wirksam sein. Vor allem müssen Sie sich nicht mit  Aufstehen - überleben - schlafen gehen zufrieden geben. 
 
@@ -116,11 +116,10 @@ Nein. Für eine Traumatherapie braucht es eine gewisse Mindeststabilität im Leb
 **Wie steht es mit Psychopharmaka und Traumatherapie?**  
 Zu mir kommen Klient:innen mit und ohne Psychopharmaka.  
 Traumatherapie kann sowohl mit als auch ohne medikamentöse Begleitung stattfinden.  
-Psychopharmaka können belastende Symptome bei manchen Menschen lindern: Sie können jedoch keine früheren belastenden Erfahrungen verarbeiten - so wenig, wie Schmerzmittel einen gebrochenen Knochen heilen. Es kann aber sinnvoll sein, welche zu nehmen, sodass man nicht übermäßig bis zur Heilung leiden muss.    
+Psychopharmaka können belastende Symptome bei manchen Menschen lindern: Sie können jedoch keine früheren belastenden Erfahrungen verarbeiten.     
 Andere Menschen erleben keine Wirkung oder haben sogar deutliche Nebenwirkungen.   
-Als Heilpraktikerin für Psychotherapie **berate ich nicht** zu Medikamenten. Ob eine medikamentöse Begleitung sinnvoll ist, sollte immer individuell und in Ruhe mit einem Facharzt abgewogen werden – insbesondere im Verhältnis von Nutzen und Nebenwirkungen.   
 
-
+Als Heilpraktikerin für Psychotherapie berate ich nicht zu Medikamenten. Ob eine medikamentöse Begleitung sinnvoll ist, wägen Sie bitte individuell und in Ruhe mit Ihrem Facharzt ab.   
 
 ---
 
