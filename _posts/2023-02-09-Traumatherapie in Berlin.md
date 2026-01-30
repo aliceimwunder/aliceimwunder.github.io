@@ -15,7 +15,7 @@ Vereinbaren Sie jetzt ein unverbindliches, kostenfreies **20-minütiges Vorgespr
 </span>
 
 <p style="font-size:0.9em; color:#666; margin-top:0.8em;">
-Berlin-Kreuzberg · Briesen (Mark) · Sitzungen auf Deutsch oder Englisch möglich<br>
+Berlin-Kreuzberg · oder naturnah vor den Toren Berlins in Briesen (Mark) · Sitzungen auf Deutsch oder Englisch möglich<br>
 (Leistungen ausschließlich für Selbstzahler:innen*)
 </p>
 
