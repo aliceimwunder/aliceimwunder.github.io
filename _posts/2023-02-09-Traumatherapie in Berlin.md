@@ -46,7 +46,7 @@ Ich begleite Menschen, die schwierige Zeiten erlebt haben und heute unter seelis
 - belastende Beziehungsmuster
 - das Gefühl, „festzustecken“, obwohl das Leben weitergeht, als wäre man Statist:in in einem Film. 
 
-Sie müssen sich nicht an alles erinnern können. Auch frühe oder verdrängte Erfahrungen können heute wirksam sein. Vor allem müssen Sie sich nicht mit  Aufstehen - überleben - schlafen gehen zufrieden geben. 
+Sie müssen sich nicht an alles erinnern können. Auch frühe oder verdrängte Erfahrungen können heute wirksam sein.  
 
 **Was Sie bei mir erwartet:**
 - keine starren Diagnoseraster
