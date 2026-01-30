@@ -106,7 +106,7 @@ Die erste therapeutische Sitzung ist kostenpflichtig.
 **Muss ich mein Trauma detailliert erzählen?**  
 Nein. Wir arbeiten ressourcenorientiert und nur in dem Maß, das für Sie sicher und hilfreich ist.
 
-**Ich habe schon vieles ausprobiert – hilft Traumatherapie trotzdem?**
+**Ich habe schon vieles ausprobiert – hilft Traumatherapie trotzdem?**  
 Ja. Viele Klient:innen finden erst nach längerer Therapieerfahrung zu einem,r Traumatherapeut:in. Traumatherapie arbeitet anders als klassische Gesprächs- oder Verhaltenstherapie. 
 Wenn frühere Ansätze keine spürbare Entlastung gebracht haben, liegt das oft nicht an Ihnen – sondern daran, dass traumabezogene Erfahrungen andere Zugänge brauchen.
 
