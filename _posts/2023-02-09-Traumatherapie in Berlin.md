@@ -110,9 +110,17 @@ Nein. Wir arbeiten ressourcenorientiert und nur in dem Maß, das für Sie sicher
 Ja. Viele Klient:innen finden erst nach längerer Therapieerfahrung zu einem,r Traumatherapeut:in. Traumatherapie arbeitet anders als klassische Gesprächs- oder Verhaltenstherapie. 
 Wenn frühere Ansätze keine spürbare Entlastung gebracht haben, liegt das oft nicht an Ihnen – sondern daran, dass traumabezogene Erfahrungen andere Zugänge brauchen.
 
-
 **Ist Traumatherapie auch bei akuten Krisen geeignet?**  
 Nein. Für eine Traumatherapie braucht es eine gewisse Mindeststabilität im Leben. Bei akuten Ereignissen (z. B. Todesfall, Unfall) sind Seelsorgeeinrichtungen, staatliche Krisendienste oder ärztliche Akutversorgung geeigneter. 
+
+**Wie steht es mit Psychopharmaka und Traumatherapie?**  
+Zu mir kommen Klient:innen mit und ohne Psychopharmaka.  
+Traumatherapie kann sowohl mit als auch ohne medikamentöse Begleitung stattfinden.  
+Psychopharmaka können belastende Symptome bei manchen Menschen lindern: Sie können jedoch keine früheren belastenden Erfahrungen verarbeiten - so wenig, wie Schmerzmittel einen gebrochenen Knochen heilen. Es kann aber sinnvoll sein, welche zu nehmen, sodass man nicht übermäßig bis zur Heilung leiden muss.    
+Andere Menschen erleben keine Wirkung oder haben sogar deutliche Nebenwirkungen.   
+Als Heilpraktikerin für Psychotherapie **berate ich nicht** zu Medikamenten. Ob eine medikamentöse Begleitung sinnvoll ist, sollte immer individuell und in Ruhe mit einem Facharzt abgewogen werden – insbesondere im Verhältnis von Nutzen und Nebenwirkungen.   
+
+
 
 ---
 
