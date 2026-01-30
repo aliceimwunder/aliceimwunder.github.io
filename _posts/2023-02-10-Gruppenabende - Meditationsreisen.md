@@ -22,8 +22,10 @@ kommt Dein Nervensystem zur Ruhe –  <br>
 ohne Druck, ohne Überforderung.
 
 > „So ruhig war ich schon lange nicht mehr.“
-
 ---
+
+Geeignet für alle mit Interesse an Selbstführung - <br>
+mit und ohne Meditationserfahrung.
 
 ### ✨ Termine & Anmeldung
 
