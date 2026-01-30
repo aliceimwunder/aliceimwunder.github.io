@@ -6,20 +6,20 @@ description: Meditationsabende im Aquariana (Berlin) und online. Traumasensible 
 ## 🌿 Stress loslassen – innere Ruhe finden
 ### Meditationsabende im Aquariana & online
 
-Für Menschen, die viel tragen  
+Für Menschen, die viel tragen<br>
 und abends wirklich **runterkommen** wollen.
 
 ---
 
 ### Worum es geht
-Diese Abende laden Dich ein,  
-aus innerer Anspannung auszusteigen  
+Diese Abende laden Dich ein,  <br>
+aus innerer Anspannung auszusteigen  <br>
 und wieder spürbar **in Dir zu ruhen**.
 
-Mit traumasensibler Stressregulation,  
-geführten inneren Bildern  
-und sanfter energetischer Klärung  
-kommt Dein Nervensystem zur Ruhe –  
+Mit traumasensibler Stressregulation,  <br>
+geführten inneren Bildern  <br>
+und sanfter energetischer Klärung  <br>
+kommt Dein Nervensystem zur Ruhe –  <br>
 ohne Druck, ohne Überforderung.
 
 > „So ruhig war ich schon lange nicht mehr.“
@@ -47,14 +47,14 @@ Alternativ per E-Mail:
 ---
 
 ### Ort
-**Aquariana – Praxis- und Seminarzentrum**  
-Am Tempelhofer Berg 7d · 10965 Berlin  
+**Aquariana – Praxis- und Seminarzentrum**  <br>
+Am Tempelhofer Berg 7d · 10965 Berlin  <br>
 oder online per Zoom (hybrid)
 
 ---
 
 ### Energieausgleich
-35 € pro Abend  
+35 € pro Abend  <br>
 90 € für drei Abende
 
 ---
