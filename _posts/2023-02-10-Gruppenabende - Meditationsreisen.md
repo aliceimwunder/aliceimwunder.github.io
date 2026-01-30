@@ -58,5 +58,6 @@ oder online per Zoom (hybrid)
 90 € für drei Abende
 
 ---
+<img src="/assets/2023-02-10-Licht-am-Horizont.jpg" alt="" style="max-width:100%"/>
 
-![Licht am Horizont](/assets/2023-02-10-Licht-am-Horizont.jpg)
+
