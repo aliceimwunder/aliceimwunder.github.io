@@ -31,7 +31,7 @@ Berlin-Kreuzberg · Briesen (Mark) · Sitzungen auf Deutsch oder Englisch mögli
 Trauma entsteht nicht nur durch extreme Ereignisse. Auch langanhaltende Überforderung, emotionale Vernachlässigung oder frühe Bindungsverletzungen können Spuren hinterlassen.
 
 > **Ihre Erfahrungen sind gültig.**  
-> In der Traumatherapie geht es nicht um Bewertung – sondern um Verstehen, Stabilisieren und Wandlung.
+> In der Traumatherapie geht es nicht um Bewertung oder perfekte Diagnosen – sondern um Verstehen, Stabilisieren und Wandlung.  
 
 <span class="calltoaction">
   <a href="https://traumatherapie.youcanbook.me">Vorgespräch vereinbaren</a>
