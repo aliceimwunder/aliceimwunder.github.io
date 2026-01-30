@@ -116,10 +116,10 @@ Nein. Für eine Traumatherapie braucht es eine gewisse Mindeststabilität im Leb
 **Wie steht es mit Psychopharmaka und Traumatherapie?**  
 Zu mir kommen Klient:innen mit und ohne Psychopharmaka.  
 Traumatherapie kann sowohl mit als auch ohne medikamentöse Begleitung stattfinden.  
-Psychopharmaka können belastende Symptome bei manchen Menschen lindern: Sie können jedoch keine früheren belastenden Erfahrungen verarbeiten.     
-Andere Menschen erleben keine Wirkung oder haben sogar deutliche Nebenwirkungen.   
+Psychopharmaka können belastende Symptome bei manchen Menschen dämpfen. Sie können jedoch keine früheren belastenden Erfahrungen verarbeiten.     
+Andere Menschen erleben keine dämpfende Wirkung oder haben sogar deutliche Nebenwirkungen.   
 
-Als Heilpraktikerin für Psychotherapie berate ich nicht zu Medikamenten. Ob eine medikamentöse Begleitung sinnvoll ist, wägen Sie bitte individuell und in Ruhe mit Ihrem Facharzt ab.   
+Als Heilpraktikerin für Psychotherapie berate ich nicht zu Medikamenten. Ob eine medikamentöse Begleitung sinnvoll ist, wägen Sie bitte individuell und in Ruhe mit Ihrem Facharzt/-ärztin ab.   
 
 ---
 
