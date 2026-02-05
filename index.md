@@ -55,8 +55,8 @@ Lassen Sie uns gemeinsam Lösungen genau für Sie passend finden. Damit Ihr Lebe
 **Ganzheitlich**: Von evidenzbasiert bis spirituell, das, was Sie am effizientesten weiterbringt. 
 
 ### Aktuelle Angebote meiner Praxis
-- **Do, 13.11.2025 · 18:30–20:00 Uhr**, **Leichtigkeit & Weisheit** [*Intuition stärken · Schmerz loslassen · Magie zulassen](/2023/02/10/Gruppenabende-Meditationsreisen). mit Aurareinigung und heilsamen Klängen.
-- **Mo, 28.12.2025, 18:30 Uhr.** Wheel of Awareness: [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html), diesmal mit kleiner Rauhnacht-Meditation.
+- **Do26.02.2026: Schocks energetisch wandeln** – [Energie zurückholen](/2023/02/10/Gruppenabende-Meditationsreisen). mit Aurareinigung und heilsamen Klängen.
+- **Mo, 23.02.2026, 18:30 Uhr.** Wheel of Awareness: [Ein kostenfreies Angebot für Info-Letter-Abonnent:innen](/2021/04/21/Landingspage-Newsletteranmeldung.html), diesmal mit kleiner Rauhnacht-Meditation.
 
 ### Außerdem gibt es auch einen Blog und Newsletter :-)
  <p><strong><a href="/blog.html">Auf meinem Blog </a></strong> gibt es Informatives aus dem Bereich Persönlichkeitswachstum, Innere Kindheilung, Coaching und Spiritualität, für ein kraftvolles Leben, selbstbestimmt in Leichtigkeit und Freude. Von wissenschaftlich Interessantem über Naturheilkunde bis spirituell Erweiterndes.
@@ -78,6 +78,7 @@ sehr Erkenntnisreich und vorallem wirklich befreiend.</p>
 <p>hey du liebe, das war wirklich ein Schlüssel, um so schnell
 voranzukommen. Dass ich deine Hilfe bekam! ein riesiges Dankeschön von
 mir zu dir!"</p> 
+
 
 
 
