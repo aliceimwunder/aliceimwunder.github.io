@@ -6,7 +6,7 @@ Foto von <a href="https://unsplash.com/@jblesly?utm_source=unsplash&utm_medium=r
 
 → Mehr Fokus, innere Ruhe und souveräne Entscheidungen – in 7 min/Tag.
 
-Montag abends biete ich regelmäßig einen **kompakten 8-Wochen-Kurs** für alle, die viel zu tun und wenig Zeit haben, die ihre Selbstführung stärken und Stress wirksam abbauen wollen.
+Montag abends biete ich regelmäßig einen **kompakten 7-Wochen-Kurs** für alle, die viel zu tun und wenig Zeit haben, die ihre Selbstführung stärken und Stress wirksam abbauen wollen.
 
 Der Kurs basiert auf dem Wheel of Awareness des Neurowissenschaftlers Dr. Daniel Siegel – einer **strukturierten Achtsamkeitspraxis**, die speziell für leistungsstarke, mental beanspruchte Menschen entwickelt wurde.
 
@@ -18,13 +18,14 @@ Du beginnst mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du auf 
 - 15.9.2025, 18:30 - 19:30 Uhr
 - 29.12.2025 18:30-19:45 (nur online) Uhr - mit kleiner Rauhnächstemeditation 
 
-### Nächste Termine
-- 22.9.–6.10.2025 und 3.11.-24.11.2025
-- 5.1.–26.1.2026 und 9.2.-2.3.2026
+### Nächste Kurs-Termine
+- 2.3.–27.4.2026 
+- 11.5.-29.6.2026 
+- 7.9.-19.10.2026
 
 ### Kurszeiten
 - montags, 18:30–19:30 Uhr
-- wöchentlich, 8 Termine
+- wöchentlich, 7 Termine
 
 **Ort:** wahlweise online per Zoom oder vor Ort in Berlin:
 - Aquariana Praxis- und Seminarzentrum
@@ -48,7 +49,7 @@ Für dich, wenn du …
 - Du brauchst keine Vorkenntnisse. Auch wenn du denkst, „ich kann nicht meditieren“ – genau dafür ist dieser Kurs gemacht.
   
 ### 💶 Teilnahmegebühr
-Einführungspreis: 144 € für den gesamten Kurs (8 Termine + 3 Audioübungen)
+Einführungspreis: 144 € für den gesamten Kurs (7 Termine + 3 Audioübungen)
 
 Hier findest Du weitere Informationen: [Man kann nicht gegen sich selbst leben](https://www.retreatpartner.de/post/man-kann-nicht-gegen-sich-selbst-leben). 
 
