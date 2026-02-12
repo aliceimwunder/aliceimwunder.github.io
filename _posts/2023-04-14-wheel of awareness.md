@@ -6,19 +6,24 @@ Foto von <a href="https://unsplash.com/@jblesly?utm_source=unsplash&utm_medium=r
 
 → Mehr Fokus, innere Ruhe und souveräne Entscheidungen – in 7 min/Tag.
 
-Montag abends biete ich regelmäßig einen **kompakten 7-Wochen-Kurs** für alle, die viel zu tun und wenig Zeit haben, die ihre Selbstführung stärken und Stress wirksam abbauen wollen.
+Montag abends biete ich regelmäßig einen **kompakten 7-Wochen-Kurs** für alle, die viel zu tun und wenig Zeit haben, die ihre Selbstführung stärken und Stress wirksam abbauen wollen. 
 
 Der Kurs basiert auf dem Wheel of Awareness des Neurowissenschaftlers Dr. Daniel Siegel – einer **strukturierten Achtsamkeitspraxis**, die speziell für leistungsstarke, mental beanspruchte Menschen entwickelt wurde.
 
-Du beginnst mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du auf eine 7 minütige Praxis zurückgreifen, um für die tägliche mentale Hygiene zu sorgen, die Dich bei Deiner Selbstfühung in herausfordernden Zeiten unterstützt, Fokus und Energie zu halten, Stress abzubauen und Deine Immunwerte allgemein zu stärken. 
+Das für Dich passende Setting kannst Du wählen - der Kurs findet hybrid statt, also in der Praxis und online. 
+
+Du beginnst mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du auf eine 7 minütige Praxis zurückgreifen, um für die tägliche mentale Hygiene zu sorgen, die Dich bei Deiner Selbstfühung in herausfordernden Zeiten unterstützt, Fokus und Energie zu halten, Stress abzubauen und Deine Immunwerte allgemein zu stärken. Nicht viel mehr als Du fürs Zähneputzen investierst. 
 
 → Hier direkt buchen: info@alicewindolf.de
 
-### Kostenfreie Abende zum Ausprobieren
-- 15.9.2025, 18:30 - 19:30 Uhr
-- 29.12.2025 18:30-19:45 (nur online) Uhr - mit kleiner Rauhnächstemeditation 
+### Kostenfreie Abende zum Ausprobieren (online)
+- 23.3.2026, 18:30 - 19:30 Uhr
+- 4.5.2026, 18:30 - 19:30 Uhr
+- 31.8.2026, 18:30 - 19:30 Uhr
 
-### Nächste Kurs-Termine
+Link kommt per Newsletter. Hier geht's zur [Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html)
+
+### Nächste Kurs-Termine, immer montags (außer Ferien)
 - 2.3.–27.4.2026 
 - 11.5.-29.6.2026 
 - 7.9.-19.10.2026
@@ -35,7 +40,7 @@ Du beginnst mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du auf 
 ### 💡 Was dich erwartet
 - eine klare, strukturierte Achtsamkeitspraxis – ohne Esoterik
 - tägliche Routine entwickeln
-- 3 geführte Audioübungen für dein individuelles Üben (Einstieg, Alltag, Vertiefung), 7 min, 20 min und 30 min. 
+- 3 geführte Audioübungen für dein individuelles Üben (Einstieg 20 min, Alltag 7 min, Vertiefung 30 min). 
 - Raum für Austausch, Fragen und persönliche Reflexion
 - wissenschaftlich fundiert, alltagstauglich und traumasensibel
 
@@ -51,7 +56,7 @@ Für dich, wenn du …
 ### 💶 Teilnahmegebühr
 Einführungspreis: 144 € für den gesamten Kurs (7 Termine + 3 Audioübungen)
 
-Hier findest Du weitere Informationen: [Man kann nicht gegen sich selbst leben](https://www.retreatpartner.de/post/man-kann-nicht-gegen-sich-selbst-leben). 
+Hier findest Du weitere Informationen über Achtsamkeit und das Wheel of Awareness: [Man kann nicht gegen sich selbst leben](https://www.retreatpartner.de/post/man-kann-nicht-gegen-sich-selbst-leben). 
 
 🔗 Jetzt anmelden: info@alicewindolf.de
 
