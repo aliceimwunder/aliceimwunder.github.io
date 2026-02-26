@@ -53,7 +53,7 @@ Wenn solche Annahmen massiv oder dauerhaft verletzt werden, kann das traumatisch
 
 ---
 
-<img src="/assets/PLATZHALTER-leere-flure-arbeitswelt.jpg" alt="Leere Flure als Symbol für innere Verunsicherung" style="max-width:100%"/>
+<img src="/assets/2026-02-25-leeres-Buero-mit-Sessel-Fenster.jpg" alt="Leere Flure als Symbol für innere Verunsicherung" style="max-width:100%"/>
 <p></p>
 
 ## Wenn der Arbeitsplatz zur Dauerbelastung wird
