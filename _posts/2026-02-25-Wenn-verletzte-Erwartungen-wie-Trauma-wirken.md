@@ -2,7 +2,7 @@
 layout: default
 ---
 <br/>
-<img src="/assets/PLATZHALTER-verletzte-erwartungen-header.jpg" alt="Verletzte Erwartungen und Nervensystem" style="max-width:100%"/>
+<img src="/assets/2026-02-25-Mann-mit-Autoscheinwerfer-im-Dunkeln.jpg" alt="Verletzte Erwartungen und Nervensystem" style="max-width:100%"/>
 <p></p>
 
 ## Wie verletzte Erwartungen zu Trauma führen können
