@@ -8,7 +8,7 @@ layout: default
 ## Wie verletzte Erwartungen zu Trauma führen können
 
 **Nicht jede Enttäuschung ist gleich ein Trauma.**  
-Aber manche verletzten Erwartungen hauen Deinem Nervensystem ordentlich eins rein.
+Aber manche verletzten Erwartungen versetzen Deinem Nervensystem einen ordentlichen Schlag.
 
 Viele Menschen sagen zu mir:  
 „So schlimm war es doch gar nicht.“
