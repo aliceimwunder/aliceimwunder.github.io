@@ -145,7 +145,7 @@ Mein Kopf wollte noch verhandeln.
 
 ---
 
-<img src="/assets/PLATZHALTER-bruecke-neuanfang.jpg" alt="Brücke als Symbol für Übergang und Entscheidung" style="max-width:100%"/>
+<img src="/assets/2026-02-25-Spaziergang-auf-Bruecke-in-Sonnenuntergang.jpg" alt="Brücke als Symbol für Übergang und Entscheidung" style="max-width:100%"/>
 <p></p>
 
 ## Traumabasierte Loyalität – ist halt so
