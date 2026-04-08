@@ -3,8 +3,8 @@ layout: default
 ---
 <br/>
 
-<!-- Bild oben (Platzhalter – ersetze durch Dein Bild) -->
-<img src="/assets/2026-04-Freebie-Audio-Bild.jpg" alt="Achtsamkeitsübung Wheel of Awareness" style="max-width:100%; border-radius:6px;"/>
+<!-- Bild oben (Wassertropfen vor unscharfer Landschaft) -->
+<img src="/assets/2026-04-08-freebie_Wassertropfen vor unscharfem Bild.jpg" alt="Achtsamkeitsübung Wheel of Awareness" style="max-width:100%; border-radius:6px;"/>
 
 <p></p>
 
