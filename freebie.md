@@ -3,52 +3,48 @@ layout: default
 ---
 <br/>
 
-<!-- Bild oben (Wassertropfen vor unscharfer Landschaft) -->
-<img src="/assets/2026-04-08-freebie_Wassertropfen vor unscharfem Bild.jpg" alt="Achtsamkeitsübung Wheel of Awareness" style="max-width:100%; border-radius:6px;"/>
+<img src="/assets/2026-04-Freebie-Audio.jpg" 
+     alt="Wheel of Awareness Audio" 
+     style="max-width:100%; border-radius:6px;"/>
 
 <p></p>
 
 ## Dein Audio: Ein sanfter Einstieg in das Wheel of Awareness
 
 Diese kurze Übung begleitet Dein Freebie-PDF.  
-Sie hilft Dir, Dich in nur wenigen Minuten wieder mehr zu spüren – ruhig, traumasensibel und alltagstauglich.
+Sie hilft Dir, Dich in wenigen Minuten wieder mehr zu spüren – ruhig, traumasensibel und alltagstauglich.
 
 ---
 
 ### **Freebie-Übung anhören**
 
 <audio controls style="width:100%; margin-top:10px;">
-  <source src="/assets/Freebie-Meditation-April-2026.mp3" type="audio/mpeg">
+  <source src="/assets/audio/Freebie-Meditation-April-2026.mp3" type="audio/mpeg">
   Dein Browser unterstützt das Abspielen von Audiodateien nicht.
 </audio>
 
 <p style="font-size:14px; margin-top:5px;">
-<i>Falls der Player nicht angezeigt wird, kannst Du die Datei hier direkt herunterladen:</i><br/>
-<a href="/assets/Freebie-Meditation-April-2026.mp3" download>Freebie-Meditation April 2026 herunterladen</a>
+<i>Falls der Player nicht angezeigt wird, kannst Du die Datei hier herunterladen:</i><br/>
+<a href="/assets/audio/Freebie-Meditation-April-2026.mp3" download>
+Freebie-Meditation April 2026 herunterladen
+</a>
 </p>
 
 ---
 
 ### Was Dich in dieser Übung erwartet
 
-- ein präsenter Einstieg mit der Frage: **„Was erlebe ich gerade mit mir selbst?“**  
-- Hinweise zu Gedankenqualität, Grundstimmung und aktuellen Gefühlen  
-- ein kurzer visueller Fokus aus dem Wheel of Awareness  
-- ein friedlicher Ort in Deinem Körper, auf den Du Dich ausrichten kannst  
-- ein sanfter Weg, der Dich innerhalb weniger Minuten wieder stabilisiert
-
-Die Übung ist kompakt, traumasensibel und leicht in den Alltag integrierbar.
+- Was erlebe ich gerade mit mir selbst? (NARM)  
+- visualer Fokus aus dem Wheel of Awareness  
+- friedlicher Ort im Körper zur inneren Stabilisierung  
+- sanfter, kurzer Weg zurück zu Dir
 
 ---
 
 ## Möchtest Du einmal live mit mir üben?
 
-Einmal pro Quartal treffen wir uns für ca. 45 Minuten – **online oder in der Praxis**.  
-Wir üben gemeinsam ein kurzes Wheel of Awareness, und Du kannst Fragen stellen oder einfach nur mitmachen.
+Einmal pro Quartal treffen wir uns für ca. 45 Minuten – online oder in der Praxis.
 
-Der Termin ist komplett **kostenlos** und ohne Verpflichtungen – ein Geschenk an Dein Nervensystem.
-
-<!-- CTA-Button -->
 <a href="https://dein-link-zum-quartalstermin.de" 
    style="display:inline-block; padding:12px 20px; margin-top:12px; background:#7a5cfa; color:white; text-decoration:none; border-radius:6px; font-weight:bold;">
    Zum nächsten Quartalstermin
