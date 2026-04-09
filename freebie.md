@@ -3,7 +3,7 @@ layout: default
 ---
 <br/>
 
-<img src="/assets/2026-04-Freebie-Audio.jpg" 
+<img src="/assets/2026-04-08-freebie_Wassertropfen_vor_unscharfem_Bild.jpg" 
      alt="Wheel of Awareness Audio" 
      style="max-width:100%; border-radius:6px;"/>
 
