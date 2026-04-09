@@ -17,9 +17,9 @@ Du beginnst mit 20 min täglicher Praxis, aber bereits ab Woche 5 kannst du auf 
 → Hier direkt buchen: info@alicewindolf.de
 
 ### Kostenfreie Abende zum Ausprobieren (online)
-- 23.3.2026, 18:30 - 19:30 Uhr
 - 4.5.2026, 18:30 - 19:30 Uhr
 - 31.8.2026, 18:30 - 19:30 Uhr
+- 30.11.2026, 18:30 - 19:30 Uhr
 
 Link kommt per Newsletter. Hier geht's zur [Anmeldung](/2021/04/21/Landingspage-Newsletteranmeldung.html)
 
