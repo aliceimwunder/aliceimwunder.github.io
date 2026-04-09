@@ -26,7 +26,7 @@ Sie hilft Dir, Dich in wenigen Minuten wieder mehr zu spüren – ruhig, traumas
 <p style="font-size:14px; margin-top:5px;">
 <i>Falls der Player nicht angezeigt wird, kannst Du die Datei hier herunterladen:</i><br/>
 <a href="/assets/audio/Freebie-Meditation-April-2026.mp3" download>
-Freebie-Meditation April 2026 herunterladen
+Freebie-Meditation herunterladen
 </a>
 </p>
 
