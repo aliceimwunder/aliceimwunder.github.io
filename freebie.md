@@ -45,7 +45,7 @@ Freebie-Meditation herunterladen
 
 Einmal pro Quartal treffen wir uns für ca. 45 Minuten – online oder in der Praxis.
 
-<a href="https://dein-link-zum-quartalstermin.de" 
+<a href="/2023/04/14/wheel-of-awareness.html" 
    style="display:inline-block; padding:12px 20px; margin-top:12px; background:#7a5cfa; color:white; text-decoration:none; border-radius:6px; font-weight:bold;">
    Zum nächsten Quartalstermin
 </a>
