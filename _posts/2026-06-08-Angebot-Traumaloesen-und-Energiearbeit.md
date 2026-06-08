@@ -1,6 +1,3 @@
-Hier ist der komplette Jekyll‑Code für Deine neue Angebotsseite **„Energetische Traumabegleitung“**, inkl. Hero‑Bild und zwei Bild‑Platzhaltern. Du kannst die Bildpfade einfach an Deine Dateinamen anpassen.
-
-```markdown
 ---
 layout: default
 title: Energetische Traumabegleitung
@@ -341,9 +338,3 @@ Wenn Du spürst, dass dieses Angebot Dich anspricht und Du Dich auf eine **tiefe
 
 Oder melde Dich direkt:  
 **E-Mail:** info@alicewindolf.de · **Telefon:** 0160 7047080
-```
-
-Hinweis für Dich:
-
-- Passe die `src`‑Pfade der Bilder (`/assets/images/...`) einfach an Deine tatsächlichen Dateinamen an.  
-- Die beiden Platzhalter kannst Du später ersetzen, wenn Du Portrait und Stimmungsbild ausgewählt hast.
