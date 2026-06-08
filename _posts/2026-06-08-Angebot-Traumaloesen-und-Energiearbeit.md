@@ -118,7 +118,7 @@ Wir arbeiten immer nur so tief, wie es Dein System in diesem Moment integrieren 
 
 ## Über mich und meinen Hintergrund
 
-<img src="/assets/images/energetische-traumabegleitung-portrait-platzhalter.jpg" alt="Portrait von Alice Windolf" style="max-width:100%; margin:1.5em 0;" />
+<img src="/assets/2026-06-08-Portrait - goldene Wand - klein.jpg" alt="Portrait von Alice Windolf" style="max-width:100%; margin:1.5em 0;" />
 
 Ich beschäftige mich seit rund 20 Jahren mit Spiritualität, Meditation und Energiearbeit und begleite seit fünf Jahren Menschen in eigener Praxis auf ihrem Weg aus innerer Enge hin zu mehr Freiheit und Selbstbestimmung. Neben meinen traumatherapeutischen Weiterbildungen habe ich mehrjährige Ausbildungen in spiritueller Heilarbeit, Medialität und energetischen Aufstellungsformaten durchlaufen.
 
