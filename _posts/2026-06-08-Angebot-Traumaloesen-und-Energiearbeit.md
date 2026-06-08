@@ -4,7 +4,7 @@ title: Energetische Traumabegleitung
 description: Energetische Traumabegleitung in Berlin-Kreuzberg und online – Energiearbeit bei Traumafolgen, für Klarheit, innere Ruhe und lebendige Präsenz. Kostenfreies 20-minütiges Vorgespräch.
 ---
 
-<img src="/assets/images/roberta-sant-anna-4OPSbfXcnJE-unsplash.jpg" alt="Eine Hand zieht einen Vorhang zur Seite und öffnet den Blick auf eine Terrasse mit weitem Blick ins Grüne" style="max-width:100%" />
+<img src="/assets/2026-06-08-Hand-oeffnet-Vorhang.jpg" alt="Eine Hand zieht einen Vorhang zur Seite und öffnet den Blick auf eine Terrasse mit weitem Blick ins Grüne" style="max-width:100%" />
 
 ## Energetische Traumabegleitung
 **Energetische Traumabegleitung – vom engen Innenraum in die Weite: Klarheit, innere Ruhe und lebendige Präsenz gewinnen.**
