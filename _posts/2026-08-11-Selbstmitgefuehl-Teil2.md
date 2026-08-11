@@ -109,7 +109,7 @@ Auch das ist Mitgefühl: **zu bemerken, wann Nähe gut tut und wann Du wieder et
 <br/>
 
 <img src="/assets/2026-08-11-Person-entspannt-sitzend-mit-sich.jpg" alt="Entspannt sitzende Person mit ruhiger Körper- und Händehaltung als Symbol für Selbstkontakt und inneres Ankommen" style="max-width:100%"/>
-<p><small>Foto: [Fotograf:in ergänzen] / Unsplash</small></p>
+<p><small>Foto: [becomes co] / Unsplash</small></p>
 
 ---
 
