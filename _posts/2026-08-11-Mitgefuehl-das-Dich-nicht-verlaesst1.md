@@ -116,7 +116,7 @@ Du musst den Schmerz eines anderen nicht in Dir weitertragen, um ihn ernst zu ne
 
 <br/>
 <img src="/assets/2026-08-11-zwei-Koepfe-in-Sonnenaufgang-blickend.jpg" alt="Zwei Kopfsilhouetten blicken gemeinsam in warmes Gegenlicht als Symbol für Verbundenheit ohne Selbstverlust" style="max-width:100%"/>
-<p><small>Foto: [Fotograf:in ergänzen] / Unsplash</small></p>
+<p><small>Foto: getsy on Unsplash</small></p>
 
 ---
 
