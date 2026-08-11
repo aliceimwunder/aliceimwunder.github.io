@@ -1,5 +1,4 @@
 ---
-
 layout: default
 title: "Bei Dir bleiben, wenn es schwer wird (2)"
 ---------------------------------------------
