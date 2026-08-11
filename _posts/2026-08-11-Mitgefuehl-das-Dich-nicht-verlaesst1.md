@@ -1,10 +1,10 @@
 ---
-
-## layout: default
+layout: default
+---
 
 <br/>
 <img src="/assets/2026-08-11-Baum-Sonnenuntergang.jpg" alt="Baumsilhouette vor warmem Sonnenuntergang und weitem Himmel als Symbol für Mitgefühl mit innerem Halt" style="max-width:100%"/>
-<p><small>Foto: Alexander Binder / Unsplash</small></p>
+<p></p>
 
 # Mitgefühl, das Dich nicht verlässt
 
