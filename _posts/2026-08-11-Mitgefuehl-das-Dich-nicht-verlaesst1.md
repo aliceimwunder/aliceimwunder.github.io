@@ -1,17 +1,15 @@
 ---
 layout: default
+title: "Mitgefühl, das Dich nicht verlässt"
 ---
 
 <br/>
 <img src="/assets/2026-08-11-Baum-Sonnenuntergang.jpg" alt="Baumsilhouette vor warmem Sonnenuntergang und weitem Himmel als Symbol für Mitgefühl mit innerem Halt" style="max-width:100%"/>
 <p></p>
 
----
-title: Mitgefühl, das Dich nicht verlässt
----
 
 
-### Was wir oft für Mitgefühl halten – und warum es uns so müde machen kann
+## Was wir oft für Mitgefühl halten – und warum es uns so müde machen kann
 
 *Lesezeit: ca. 9 Minuten*
 
