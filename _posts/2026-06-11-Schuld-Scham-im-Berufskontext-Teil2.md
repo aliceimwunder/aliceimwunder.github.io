@@ -1,4 +1,3 @@
-```markdown
 ---
 layout: default
 title: "Schuld und Scham im Job: Verantwortung übernehmen, ohne sich selbst zu verurteilen"
