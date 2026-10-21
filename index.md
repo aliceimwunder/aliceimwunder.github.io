@@ -14,7 +14,6 @@ Achtsam, einfühlsam, unterstützend und **immer zielführend**. Ich hole Sie ge
 Hier finden Sie 
 - evidenzbasierte längerfristige [Traumatherapie](/2023/02/09/Traumatherapie-in-Berlin.html),
 - effiziente [EMDR-Kurzzeit-Therapie](/2024/07/13/EMDR-Kurzzeit-Therapie.html), 
-- ganzheitliches [Burnout Coaching](/2024/06/14/Ganzheitliches-Burnout-Coaching.html), 
 - in der Gruppe [Aurareinigung zur Stressreduzierung](/2023/02/10/Gruppenabende-Meditationsreisen.html).
 - Stressreduzierung mit effektivem [Achtsamkeitstraining](/2023/04/14/wheel-of-awareness.html),
 - NEU: **[Seelen-Darm-Challenge](/2025/08/12/Seelen-Darm-Challenge.html)** in meiner (fast) kostenfreien Whatsapp-Gruppe: Stressbewältigung - Energiearbeit und Darmreinigung 
