@@ -25,7 +25,7 @@ Bei mir kommt zwischen den Zeilen die Botschaft an: Erklär mir bloß nicht die 
 <img src="/assets/2026-11-19-Todo-liste-Tasse-Handy.jpg" alt="Kaffeetasse auf einem weißen Laken, daneben ein Notizbuch mit handschriftlicher To-do-Liste und ein Smartphone, als Symbol für den Morgen voller guter Vorsätze" style="max-width:100%"/>
 <p><small>Foto: curated lifestile / Unsplash+</small></p>
 
-„Ich habe alle meine Hausaufgaben gemacht!“
+## „Ich habe alle meine Hausaufgaben gemacht!“
 
 Vor zehn Jahren hatte Martin einen Burnout. Einen heftigen Zusammenbruch, der ihn körperlich und mental aus der Bahn geworfen hat. Er hat lange gebraucht, um sich davon zu erholen. Gleichzeitig war es sein persönlicher Gamechanger, der dazu führte, dass Martin sein Leben komplett umgekrempelt hat. Er gab Termine ab, bei denen seine Anwesenheit nicht unbedingt notwendig war, und gönnte sich regelmäßige Ruhepausen. Meditation, Sport und bewusste Ernährung gehören jetzt zu seinen neuen Routinen. Auch im Beruf hat er seine Bereiche so umstrukturiert, dass er heute mit viel mehr Herz und Seele dahintersteht.
 
