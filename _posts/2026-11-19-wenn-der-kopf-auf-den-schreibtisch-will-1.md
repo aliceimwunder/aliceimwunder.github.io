@@ -58,7 +58,8 @@ Wir müssen beide lachen.
 
 Da ist er wieder, der Druck.
 
-Und damit sind wir schon bei einem interessanten Punkt. Martin weiß ziemlich gut, was anderen Menschen hilft, wenn sie nicht mehr weiterwissen. Nur bei sich selbst hat er offenbar andere Maßstäbe.
+### Damit sind wir schon bei einem interessanten Punkt. 
+Martin weiß ziemlich gut, was anderen Menschen hilft, wenn sie nicht mehr weiterwissen. Nur bei sich selbst hat er offenbar andere Maßstäbe.
 
 „Wie wäre es, wenn wir genau das mal ausprobieren? Einfach zusammensitzen, uns freundlich anschauen und ohne Härte in der Stimme feststellen, dass die Situation nun mal so ist, wie sie ist. Dass Dein Kopf auf die Tischplatte will. Und dass Du das alles so richtig, richtig leid bist. Ohne irgendein Wenn und Aber. Ohne zu versuchen, irgendetwas wegzuoptimieren.“
 
