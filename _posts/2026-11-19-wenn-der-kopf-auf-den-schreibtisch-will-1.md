@@ -23,7 +23,7 @@ Martin sitzt vor mir und erzählt von drei Punkten auf seiner To-do-Liste. Von d
 <br/>
 
 <img src="/assets/2026-11-19-Todo-liste-Tasse-Handy.jpg" alt="Kaffeetasse auf einem weißen Laken, daneben ein Notizbuch mit handschriftlicher To-do-Liste und ein Smartphone, als Symbol für den Morgen voller guter Vorsätze" style="max-width:100%"/>
-<p><small>Symbolfoto. Foto: [Name Fotograf:in] / Unsplash+</small></p>
+<p><small>Foto: curated lifestile / Unsplash+</small></p>
 
 „Ich habe alle meine Hausaufgaben gemacht!“
 
