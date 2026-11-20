@@ -16,7 +16,9 @@ Dabei habe ich noch überhaupt nichts gesagt.
 
 Martin wird immer gereizter, seine Stimme lauter. Ich kann seine Aufregung förmlich spüren. Ich höre ihm zu und habe zunehmend das Gefühl: Wenn ich jetzt auch nur andeute, dass er etwas anders machen könnte, springt er aus dem Sessel.
 
-Martin sitzt vor mir und erzählt von drei Punkten auf seiner To-do-Liste. Von drei einfachen Aufgaben, die er normalerweise im Dauerlauf rückwärts mit geschlossenen Augen erledigen könnte. Morgens nach dem Aufwachen war die Motivation noch da. Beim Kaffeetrinken hatte er sich überlegt, welche Aufgaben er heute für sein Projekt umsetzen will. Doch kaum ist der Laptop aufgeklappt, würde er am liebsten nur noch den Kopf auf die Tischplatte legen. Er versichert mir eindringlich, dass er im Finden von Lösungen ein absoluter Profi ist. Bei mir kommt zwischen den Zeilen die Botschaft an: Erklär mir bloß nicht die Welt. Auch wenn er sich gleichzeitig fragt, warum es bei bestimmten Aufgaben so gar nicht vorangehen will. Ein ihm leider vertrauter Zustand, wie er mir erklärt. Und er hat diesen Zustand inzwischen richtig satt. Das ist der Grund, warum er mich aufgesucht hat.
+Martin sitzt vor mir und erzählt von drei Punkten auf seiner To-do-Liste. Von drei einfachen Aufgaben, die er normalerweise im Dauerlauf rückwärts mit geschlossenen Augen erledigen könnte. Morgens nach dem Aufwachen war die Motivation noch da. Beim Kaffeetrinken hatte er sich überlegt, welche Aufgaben er heute für sein Projekt umsetzen will. Doch kaum ist der Laptop aufgeklappt, würde er am liebsten nur noch den Kopf auf die Tischplatte legen. Er versichert mir eindringlich, dass er im Finden von Lösungen ein absoluter Profi ist. 
+
+Bei mir kommt zwischen den Zeilen die Botschaft an: Erklär mir bloß nicht die Welt. Auch wenn er sich gleichzeitig fragt, warum es bei bestimmten Aufgaben so gar nicht vorangehen will. Ein ihm leider vertrauter Zustand, wie er mir erklärt. Und er hat diesen Zustand inzwischen richtig satt. Das ist der Grund, warum er mich aufgesucht hat.
 
 <br/>
 
