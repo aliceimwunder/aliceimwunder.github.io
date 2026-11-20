@@ -81,7 +81,7 @@ Wir können erkennen, dass etwas verändert werden will, weil es uns nicht mehr 
 
 Und genau dann lohnt es sich, einmal genauer hinzuschauen.
 
-Und was machen wir jetzt mit seiner Angst?
+### Was machen wir jetzt mit seiner Angst, dass es wieder so kommt, wie es schon mal war?
 
 Lass uns wieder zu Martins Geschichte zurückgehen.
 
