@@ -74,6 +74,7 @@ Das ist ein Missverständnis, das mir in meiner Arbeit häufig begegnet. Gerade 
 
 Wenn man einmal in einer tiefen Erschöpfung gesteckt hat, bleibt oft eine leise Sorge im Nacken: Hoffentlich kommt das nicht zurück. Dabei geht es beim Selbstmitgefühl überhaupt nicht darum, notwendige Veränderungen zu unterlassen oder weniger handlungsfähig zu werden. Aus meiner persönlichen Praxiserfahrung würde ich eher sagen, dass der Druck, der sich mit gelebtem Selbstmitgefühl löst, mehr Erholung erlaubt. Ein gesunder Rhythmus von Anspannung und Entspannung kann sich nach und nach einstellen und macht uns effektiver, nicht weniger handlungsfähig.
 
+### Selbstmitgefühl als Haltung
 Die Psychologin Kristin Neff beschreibt Selbstmitgefühl als eine Haltung, in der wir schwierige Erfahrungen bewusst wahrnehmen und uns dabei mit Verständnis statt mit harter Selbstkritik begegnen. Mehr zum Thema Selbstmitgefühl findest Du hier.
 
 Wir können erkennen, dass etwas verändert werden will, weil es uns nicht mehr guttut, und gleichzeitig müssen wir uns nicht dafür verurteilen, dass wir es gelebt haben. Unser innerer Antreiber ist nicht per se schlecht. Oft ist es eher so, dass wir ihn nicht steuern und er ungehindert und ohne Maß in uns regiert. Dadurch wird aus diesem hilfreichen Werkzeug ein ziemlich unfreundlicher Chef. Wir brauchen unseren Verstand, unsere Fähigkeit, Entscheidungen zu treffen, Probleme anzugehen und Dinge umzusetzen – und zwar so, dass wir selbst ansteuern, in welchem Maß und was wir jeweils davon leben wollen.
@@ -98,8 +99,7 @@ Martin muss lachen. „Wenn Du meinst – na, ob das Konzept zu irgendwas führt
 
 Wir bleiben einen Moment bei der Sorge, ohne den Druck, nichts mehr zu schaffen. Bei Martins Erschöpfung und seiner Wut darüber, dass das alles schon wieder passiert. Und bei der Angst, dass er vielleicht irgendwann erneut dort ankommt, wo er vor zehn Jahren war. Wir zaubern nichts davon weg. Wir schieben nicht direkt die nächste Lösung hinterher. Und tatsächlich wird Martin ruhiger. Er schaut mich an. „Im Grunde kann man das ja eine ganze Weile fortsetzen. Einfach mal zuhören und stehen lassen, was gerade in mir herumspukt.“
 
-Bingo, denke ich mir.
-
+### Bingo, denke ich mir.
 Das klingt erst einmal unspektakulär. Aber für jemanden, der gewohnt ist, bei jedem Problem sofort eine Lösung zu suchen, ist es eine ganz neue Erfahrung, dass eine Sorge da sein darf, ohne dass sie umgehend bearbeitet werden muss. Und dass dies eine körperlich wahrnehmbare Wirkung hat und es auch ohne aktives Tun weitergeht.
 
 „Würdest Du so Deine Mitarbeiter:innen führen?“
@@ -114,8 +114,7 @@ Martin schüttelt den Kopf. „Der würde mir wahrscheinlich gar nichts mehr erz
 
 Da ist er also, der eigentliche Konflikt. Der innere Druck, auf den er vertraut, dass er ihn durch alles hindurch trägt, hat sich ungünstig verselbstständigt. Wer will schon etwas loslassen, was einem schon einmal „den Arsch gerettet hat“?
 
-Warum Sicherheit wichtiger sein kann als der nächste gute Ratschlag
-
+### Warum Sicherheit wichtiger sein kann als der nächste gute Ratschlag
 In der Führungsforschung gibt es für Druck versus freundliche Haltung und innere Sicherheit einen interessanten Vergleich. Die Organisationsforscherin Amy Edmondson beschäftigt sich mit psychologischer Sicherheit: der Frage, unter welchen Bedingungen Menschen sich trauen, Unsicherheiten, Fehler und Schwierigkeiten offen anzusprechen. Denn wer ständig mit Kritik oder Abwertung rechnen muss, überlegt sich gut, was er von sich preisgibt.
 
 Und hier finde ich die Parallele zu unserem eigenen inneren Umgang spannend. Wenn ich mir selbst ständig mit „Jetzt aber mal dalli, das kann doch nicht so schwer sein!“ begegne, wie sollte es mir dann leichtfallen, auch meine leiseren Impulse und Befürchtungen wahrzunehmen? Eher gehe ich innerlich genauso in die Defensive wie Mitarbeitende, die sich von einem Chef unter Druck gesetzt fühlen.
@@ -130,6 +129,7 @@ Was ist jetzt mit den drei Punkten auf der To-do-Liste? Die drei Punkte auf Mart
 
 Im Gegenteil. Er ist neugieriger geworden. Er stellt Fragen. Er beginnt zu bemerken, was er sich selbst immer noch zumutet. Sein innerer Antreiber muss dafür nicht verschwinden. Er hat Martin schließlich schon einmal geholfen, nach einem heftigen Zusammenbruch sein Leben wieder auf die Beine zu stellen.
 
+### Rhythmus im Leben: Anspannung UND Entspannung
 Was es für den Moment braucht, ist mehr Rhythmus im Leben, sodass Martin freier entscheiden kann, wann es sinnvoll ist, sich anzustrengen, wann er eine Pause braucht und wann es sich lohnt, erst einmal genauer hinzuschauen. Letzteres ist übrigens nicht mit einer Pause gleichzusetzen, sondern vielmehr eine wahre Herausforderung für jemanden, der sonst gerne auf der Überholspur in seinem Leben unterwegs ist.
 
 Das ist für mich der wesentliche Unterschied zwischen Selbstoptimierung und innerer Freiheit: sich selbst weniger zu bekämpfen, auch wenn etwas anders in einem reagiert, als man es erwartet. Und das ist genau der Punkt, an dem unsere eigentliche Spurensuche beginnen kann.
