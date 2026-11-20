@@ -1,10 +1,12 @@
+---
 layout: default
 title: "Warum mein Kopf auf den Schreibtisch will (Teil 1)"
+---
 
 <br/>
 
 <img src="/assets/2026-11-19-Mann-muede-am-Schreibtisch.jpg" alt="Müder Mann mit der Hand an der Stirn sitzt am Schreibtisch vor seinem Laptop und blickt nach unten, als Symbol für Erschöpfung und innere Anspannung" style="max-width:100%"/>
-<p><small>Symbolfoto. Foto: [Name Fotograf:in] / Unsplash+</small></p>
+<p><small>Symbolfoto. Foto: getty on Unsplash+</small></p>
 
 Warum mein Kopf auf den Schreibtisch will – und wie ich mich besser verstehe (Teil 1)
 
