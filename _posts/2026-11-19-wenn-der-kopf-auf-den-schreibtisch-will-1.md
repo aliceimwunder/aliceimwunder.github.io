@@ -22,7 +22,7 @@ Bei mir kommt zwischen den Zeilen die Botschaft an: Erklär mir bloß nicht die 
 
 <br/>
 
-## „Ich habe alle meine Hausaufgaben gemacht!“
+### „Ich habe alle meine Hausaufgaben gemacht!“
 
 Vor zehn Jahren hatte Martin einen Burnout. Einen heftigen Zusammenbruch, der ihn körperlich und mental aus der Bahn geworfen hat. Er hat lange gebraucht, um sich davon zu erholen. Gleichzeitig war es sein persönlicher Gamechanger, der dazu führte, dass Martin sein Leben komplett umgekrempelt hat. Er gab Termine ab, bei denen seine Anwesenheit nicht unbedingt notwendig war, und gönnte sich regelmäßige Ruhepausen. Meditation, Sport und bewusste Ernährung gehören jetzt zu seinen neuen Routinen. Auch im Beruf hat er seine Bereiche so umstrukturiert, dass er heute mit viel mehr Herz und Seele dahintersteht.
 
@@ -31,7 +31,10 @@ Wenn er zurückblickt, muss er sich eingestehen, dass er sich seinen Burnout dam
 <img src="/assets/2026-11-19-Todo-liste-Tasse-Handy.jpg" alt="Kaffeetasse auf einem weißen Laken, daneben ein Notizbuch mit handschriftlicher To-do-Liste und ein Smartphone, als Symbol für den Morgen voller guter Vorsätze" style="max-width:100%"/>
 <p><small>Foto: curated lifestile / Unsplash+</small></p>
 
-Er schaut mich herausfordernd an: „Warum funktioniert es immer noch nicht?“ Ein Hauch von Provokation schwingt in seiner Stimme mit. Während ich aufmerksam seiner Erzählung zuhöre, merke ich immer deutlicher, wie sehr er sich selbst unter Druck setzt. Er will mir unbedingt vermitteln, dass er ein Profi auf seinem Gebiet ist, dass er für alles eine Lösung parat hat und genau weiß, was eigentlich zu tun ist. Und ich solle gefälligst verstehen, dass er weder blöd noch faul sei. Auf die Idee wäre ich ohnehin nicht gekommen. Nur würde ich jetzt erwartungsgemäß versuchen, mit ihm an noch besseren Lösungen zu arbeiten, wäre ich vermutlich komplett auf verlorenem Posten. Lösungen kennt er selbst scheinbar mehr als genug.
+### Er schaut mich herausfordernd an.
+„Warum funktioniert es immer noch nicht?“ Ein Hauch von Provokation schwingt in seiner Stimme mit. Während ich aufmerksam seiner Erzählung zuhöre, merke ich immer deutlicher, wie sehr er sich selbst unter Druck setzt. Er will mir unbedingt vermitteln, dass er ein Profi auf seinem Gebiet ist, dass er für alles eine Lösung parat hat und genau weiß, was eigentlich zu tun ist. 
+
+Und ich solle gefälligst verstehen, dass er weder blöd noch faul sei. Auf die Idee wäre ich ohnehin nicht gekommen. Nur würde ich jetzt erwartungsgemäß versuchen, mit ihm an noch besseren Lösungen zu arbeiten, wäre ich vermutlich komplett auf verlorenem Posten. Lösungen kennt er selbst scheinbar mehr als genug.
 
 Ich frage ganz vorsichtig: „Wie wäre es, wenn Du Dich zurücklehnst, durchatmest und versuchst, Dir selbst mit mehr Freundlichkeit zu begegnen?“ Ja, klar kann er das. Das hat er damals vor zehn Jahren alles schon „durchexerziert“. Okay. Auch dieses Wort sagt einiges über ihn aus. Etwas in ihm will sofort Lösungen finden, möglichst effizient, am besten alles durchregieren und kontrollieren – auch seine Selbstfürsorge. Meine erste Arbeitsthese lautet: Genau diese Einstellung könnte ein großer Teil seiner Herausforderung sein.
 
