@@ -38,8 +38,7 @@ Und ich solle gefälligst verstehen, dass er weder blöd noch faul sei. Auf die 
 
 Ich frage ganz vorsichtig: „Wie wäre es, wenn Du Dich zurücklehnst, durchatmest und versuchst, Dir selbst mit mehr Freundlichkeit zu begegnen?“ Ja, klar kann er das. Das hat er damals vor zehn Jahren alles schon „durchexerziert“. Okay. Auch dieses Wort sagt einiges über ihn aus. Etwas in ihm will sofort Lösungen finden, möglichst effizient, am besten alles durchregieren und kontrollieren – auch seine Selbstfürsorge. Meine erste Arbeitsthese lautet: Genau diese Einstellung könnte ein großer Teil seiner Herausforderung sein.
 
-Wie lange wäre er noch Dein Freund?
-
+### Wie lange wäre er noch Dein Freund?
 Ich überlege mir eine andere Herangehensweise und versuche dabei, seine Schutzmechanismen zu umgehen. „Stell Dir vor, Dein bester Freund sitzt bei Dir im Büro und erzählt genau von dieser Situation. Er hängt schon förmlich mit dem Kopf auf der Tischplatte. Und Deine Reaktion wäre: Du bist doch nicht blöd. Du weißt doch, wie das geht. Jetzt komm schon!“
 
 Dabei versuche ich, exakt den Ton zu treffen, in dem Martin mir gerade seine Situation geschildert hat. „Wie lange wäre er noch Dein Freund, wenn Du so mit ihm redest?“
