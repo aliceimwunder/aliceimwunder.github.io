@@ -8,7 +8,8 @@ title: "Warum mein Kopf auf den Schreibtisch will (Teil 1)"
 <img src="/assets/2026-11-19-Mann-muede-am-Schreibtisch.jpg" alt="Müder Mann mit der Hand an der Stirn sitzt am Schreibtisch vor seinem Laptop und blickt nach unten, als Symbol für Erschöpfung und innere Anspannung" style="max-width:100%"/>
 <p><small>Foto: getty on Unsplash+</small></p>
 
-Wenn Selbstfürsorge zum nächsten Leistungsprojekt wird – und warum es manchmal hilfreicher ist, nicht nach noch einer weiteren Lösung zu suchen.<br>
+# Warum mein Kopf auf den Schreibtisch will – und wie ich mich besser verstehe (Teil 1)
+### Wenn Selbstfürsorge zum nächsten Leistungsprojekt wird – und warum es manchmal hilfreicher ist, nicht nach noch einer weiteren Lösung zu suchen.
 Lesezeit: ca. 11 Minuten
 
 Dabei habe ich noch überhaupt nichts gesagt.
