@@ -22,14 +22,14 @@ Bei mir kommt zwischen den Zeilen die Botschaft an: Erklär mir bloß nicht die 
 
 <br/>
 
-<img src="/assets/2026-11-19-Todo-liste-Tasse-Handy.jpg" alt="Kaffeetasse auf einem weißen Laken, daneben ein Notizbuch mit handschriftlicher To-do-Liste und ein Smartphone, als Symbol für den Morgen voller guter Vorsätze" style="max-width:100%"/>
-<p><small>Foto: curated lifestile / Unsplash+</small></p>
-
 ## „Ich habe alle meine Hausaufgaben gemacht!“
 
 Vor zehn Jahren hatte Martin einen Burnout. Einen heftigen Zusammenbruch, der ihn körperlich und mental aus der Bahn geworfen hat. Er hat lange gebraucht, um sich davon zu erholen. Gleichzeitig war es sein persönlicher Gamechanger, der dazu führte, dass Martin sein Leben komplett umgekrempelt hat. Er gab Termine ab, bei denen seine Anwesenheit nicht unbedingt notwendig war, und gönnte sich regelmäßige Ruhepausen. Meditation, Sport und bewusste Ernährung gehören jetzt zu seinen neuen Routinen. Auch im Beruf hat er seine Bereiche so umstrukturiert, dass er heute mit viel mehr Herz und Seele dahintersteht.
 
 Wenn er zurückblickt, muss er sich eingestehen, dass er sich seinen Burnout damals „hart erarbeitet“ hatte. Genauso wie auch seine neue Existenz. Er versichert mir, dass er wirklich viel investiert hat, nicht nur in seine berufliche Neuorientierung, sondern auch in seine persönliche Weiterentwicklung. Mit anderen Worten: Er hat all seine Hausaufgaben ordnungsgemäß erledigt. Doch seit einiger Zeit kommt erneut diese Erschöpfung hoch, sobald er bestimmte Aufgaben in Angriff nehmen will. Und irgendwo im Hinterkopf lauert die nagende Sorge: Geht das jetzt wieder los? Ich habe mir doch geschworen, dass mir das nie wieder passiert!
+
+<img src="/assets/2026-11-19-Todo-liste-Tasse-Handy.jpg" alt="Kaffeetasse auf einem weißen Laken, daneben ein Notizbuch mit handschriftlicher To-do-Liste und ein Smartphone, als Symbol für den Morgen voller guter Vorsätze" style="max-width:100%"/>
+<p><small>Foto: curated lifestile / Unsplash+</small></p>
 
 Er schaut mich herausfordernd an: „Warum funktioniert es immer noch nicht?“ Ein Hauch von Provokation schwingt in seiner Stimme mit. Während ich aufmerksam seiner Erzählung zuhöre, merke ich immer deutlicher, wie sehr er sich selbst unter Druck setzt. Er will mir unbedingt vermitteln, dass er ein Profi auf seinem Gebiet ist, dass er für alles eine Lösung parat hat und genau weiß, was eigentlich zu tun ist. Und ich solle gefälligst verstehen, dass er weder blöd noch faul sei. Auf die Idee wäre ich ohnehin nicht gekommen. Nur würde ich jetzt erwartungsgemäß versuchen, mit ihm an noch besseren Lösungen zu arbeiten, wäre ich vermutlich komplett auf verlorenem Posten. Lösungen kennt er selbst scheinbar mehr als genug.
 
