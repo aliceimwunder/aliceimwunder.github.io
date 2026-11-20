@@ -137,20 +137,17 @@ In Teil 2 werden wir mit Martin seinen morgendlichen Ablauf langsam zurückspule
 
 Martin ist eine erfundene Figur. Seine Geschichte veranschaulicht typische Muster und Vorgehensweisen, die mir in meiner therapeutischen Arbeit häufiger begegnen. Sie stellt keinen dokumentierten Behandlungsverlauf dar.
 
-Nachweise
-
+**Nachweise**<br>
 Neff, Kristin D. (2003):
 Self-Compassion: An Alternative Conceptualization of a Healthy Attitude Toward Oneself.
-In: Self and Identity, 2(2), S. 85–101.
-
+In: Self and Identity, 2(2), S. 85–101.<br>
 Grundlegende Einordnung von Selbstfreundlichkeit, Achtsamkeit und gemeinsamer Menschlichkeit.
 
 Neff, Kristin D.; Germer, Christopher K. (2022):
-The Role of Self-Compassion in Psychotherapy.
+The Role of Self-Compassion in Psychotherapy.<br>
 Überblick zur Bedeutung von Selbstmitgefühl in der Psychotherapie.
 
 Edmondson, Amy C. (1999):
 Psychological Safety and Learning Behavior in Work Teams.
-In: Administrative Science Quarterly, 44(2), S. 350–383.
-
+In: Administrative Science Quarterly, 44(2), S. 350–383.<br>
 Untersuchung des Zusammenhangs zwischen psychologischer Sicherheit und Lernverhalten in Teams.
