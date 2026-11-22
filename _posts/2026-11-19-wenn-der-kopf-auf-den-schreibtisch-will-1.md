@@ -68,7 +68,10 @@ Er überlegt einen Moment: „Weißt Du, was mir Sorgen macht? Wenn ich mich jet
 
 Und eigentlich hat Martin recht. Er hat damals viel erreicht, gerade weil er gehandelt hat. Warum sollte er jetzt ausgerechnet das aufgeben, was ihm zu einem früheren Zeitpunkt so sehr geholfen hat?
 
-Selbstmitgefühl heißt nicht, sich seinem Schicksal zu ergeben
+Selbstmitgefühl heißt nicht, sich seinem Schicksal zu ergeben.
+
+<img src="/assets/2026-11-19-grueneKaffeetasse-auf-Laub.jpg" alt="Im Hintergrund See und Wald, im Vordergrund Kaffeetasse auf Blättern neben Baumwurzeln, dahinter unscharf ein See, warmes Licht, als Symbol für freundlicher Umgang mit sich" style="max-width:100%"/>
+<p><small>Foto von Ksenija Lucija Pataran auf Unsplash></p>
 
 Das ist ein Missverständnis, das mir in meiner Arbeit häufig begegnet. Gerade Menschen, die viel leisten, Verantwortung übernehmen und Probleme normalerweise ziemlich effizient lösen, haben manchmal die Befürchtung, dass sie ohne ihren inneren Antreiber passiv werden. Sie haben Bedenken, sich auf die faule Haut zu legen, wenn sie nicht ständig ein Auge auf sich haben.
 
