@@ -103,7 +103,10 @@ Martin muss lachen. „Wenn Du meinst – na, ob das Konzept zu irgendwas führt
 Wir bleiben einen Moment bei der Sorge, ohne den Druck, nichts mehr zu schaffen. Bei Martins Erschöpfung und seiner Wut darüber, dass das alles schon wieder passiert. Und bei der Angst, dass er vielleicht irgendwann erneut dort ankommt, wo er vor zehn Jahren war. Wir zaubern nichts davon weg. Wir schieben nicht direkt die nächste Lösung hinterher. Und tatsächlich wird Martin ruhiger. Er schaut mich an. „Im Grunde kann man das ja eine ganze Weile fortsetzen. Einfach mal zuhören und stehen lassen, was gerade in mir herumspukt.“
 
 ### Bingo, denke ich mir.
-Das klingt erst einmal unspektakulär. Aber für jemanden, der gewohnt ist, bei jedem Problem sofort eine Lösung zu suchen, ist es eine ganz neue Erfahrung, dass eine Sorge da sein darf, ohne dass sie umgehend bearbeitet werden muss. Und dass dies eine körperlich wahrnehmbare Wirkung hat und es auch ohne aktives Tun weitergeht.
+Das klingt erst einmal unspektakulär. Aber für jemanden, der gewohnt ist, bei jedem Problem sofort eine Lösung zu suchen, ist es eine ganz neue Erfahrung, dass eine Sorge da sein darf, ohne dass sie umgehend bearbeitet werden muss. Dass dies eine körperlich wahrnehmbare - verändernde - Wirkung hat und es auch ohne aktives Tun weitergeht.
+
+<img src="/assets/2026-11-19-Mann-vor-Landschaft-Gegenlicht1.jpg" alt="Umrisse eines Mannes von hinter, der in die Ferne blickt, Gegenlicht, blauer Himmel, als Symbol gerade ist nichts zu tun, sondern erstmal wirken lassen" style="max-width:100%"/>
+<p><small>Foto von Joshua Earle auf Unsplash+></p>
 
 „Würdest Du so Deine Mitarbeiter:innen führen?“
 
