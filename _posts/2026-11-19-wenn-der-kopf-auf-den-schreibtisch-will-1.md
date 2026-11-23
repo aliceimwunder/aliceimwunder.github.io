@@ -32,7 +32,7 @@ Vor zehn Jahren hatte Martin einen Burnout. Einen heftigen Zusammenbruch, der ih
 Wenn er zurückblickt, muss er sich eingestehen, dass er sich seinen Burnout damals „hart erarbeitet“ hatte. Genauso wie auch seine neue Existenz. Er versichert mir, dass er wirklich viel investiert hat, nicht nur in seine berufliche Neuorientierung, sondern auch in seine persönliche Weiterentwicklung. Mit anderen Worten: Er hat all seine Hausaufgaben ordnungsgemäß erledigt. Doch seit einiger Zeit kommt erneut diese Erschöpfung hoch, sobald er bestimmte Aufgaben in Angriff nehmen will. Und irgendwo im Hinterkopf lauert die nagende Sorge: Geht das jetzt wieder los? Ich habe mir doch geschworen, dass mir das nie wieder passiert!
 
 <img src="/assets/2026-11-19-Todo-liste-Tasse-Handy.jpg" alt="Kaffeetasse auf einem weißen Laken, daneben ein Notizbuch mit handschriftlicher To-do-Liste und ein Smartphone, als Symbol für den Morgen voller guter Vorsätze" style="max-width:100%"/>
-<p><small>Foto: curated lifestile / Unsplash</small></p>
+<p><small>Foto: curated lifestile / Unsplash+</small></p>
 
 ### Er schaut mich herausfordernd an.
 „Warum funktioniert es immer noch nicht?“ Ein Hauch von Provokation schwingt in seiner Stimme mit. Während ich aufmerksam seiner Erzählung zuhöre, merke ich immer deutlicher, wie sehr er sich selbst unter Druck setzt. Er will mir unbedingt vermitteln, dass er ein Profi auf seinem Gebiet ist, dass er für alles eine Lösung parat hat und genau weiß, was eigentlich zu tun ist. 
@@ -74,7 +74,7 @@ Und eigentlich hat Martin recht. Er hat damals viel erreicht, gerade weil er geh
 Selbstmitgefühl heißt nicht, sich seinem Schicksal zu ergeben.
 
 <img src="/assets/2026-11-19-grueneKaffeetasse-auf-Laub.jpg" alt="Im Hintergrund See und Wald, im Vordergrund Kaffeetasse auf Blättern neben Baumwurzeln, dahinter unscharf ein See, warmes Licht, als Symbol für freundlicher Umgang mit sich" style="max-width:100%"/>
-<p><small>Foto von Ksenija Lucija Pataran auf Unsplash</small></p>
+<p><small>Foto von Ksenija Lucija Pataran auf Unsplash+</small></p>
 
 Das ist ein Missverständnis, das mir in meiner Arbeit häufig begegnet. Gerade Menschen, die viel leisten, Verantwortung übernehmen und Probleme normalerweise ziemlich effizient lösen, haben manchmal die Befürchtung, dass sie ohne ihren inneren Antreiber passiv werden. Sie haben Bedenken, sich auf die faule Haut zu legen, wenn sie nicht ständig ein Auge auf sich haben.
 
@@ -109,7 +109,7 @@ Wir bleiben einen Moment bei der Sorge, ohne den Druck, nichts mehr zu schaffen.
 Das klingt erst einmal unspektakulär. Aber für jemanden, der gewohnt ist, bei jedem Problem sofort eine Lösung zu suchen, ist es eine ganz neue Erfahrung, dass eine Sorge da sein darf, ohne dass sie umgehend bearbeitet werden muss. Dass dies eine körperlich wahrnehmbare - verändernde - Wirkung hat und es auch ohne aktives Tun weitergeht.
 
 <img src="/assets/2026-11-19-Mann-vor-Landschaft-Gegenlicht1.jpg" alt="Umrisse eines Mannes von hinter, der in die Ferne blickt, Gegenlicht, blauer Himmel, als Symbol gerade ist nichts zu tun, sondern erstmal wirken lassen" style="max-width:100%"/>
-<p><small>Foto von Joshua Earle auf Unsplash</small></p>
+<p><small>Foto von Joshua Earle auf Unsplash+</small></p>
 
 „Würdest Du so Deine Mitarbeiter:innen führen?“
 
