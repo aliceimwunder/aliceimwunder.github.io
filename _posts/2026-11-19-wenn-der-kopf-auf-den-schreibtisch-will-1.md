@@ -12,6 +12,9 @@ title: "Warum mein Kopf auf den Schreibtisch will (Teil 1)"
 ### Wenn Selbstfürsorge zum nächsten Leistungsprojekt wird – und warum es manchmal hilfreicher ist, nicht nach noch einer weiteren Lösung zu suchen.
 Lesezeit: ca. 11 Minuten
 
+Martins Stimme wird immer gereizter, lauter. Ich kann seine Aufregung förmlich spüren.
+Ich höre ihm zu und habe zunehmend das Gefühl: Wenn ich jetzt auch nur andeute, dass er etwas anders machen könnte, springt er aus dem Sessel.
+
 Dabei habe ich noch überhaupt nichts gesagt.
 
 Martin wird immer gereizter, seine Stimme lauter. Ich kann seine Aufregung förmlich spüren. Ich höre ihm zu und habe zunehmend das Gefühl: Wenn ich jetzt auch nur andeute, dass er etwas anders machen könnte, springt er aus dem Sessel.
