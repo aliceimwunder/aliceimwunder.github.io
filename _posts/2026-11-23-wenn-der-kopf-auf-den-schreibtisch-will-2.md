@@ -4,7 +4,7 @@ title: "Warum mein Kopf am Schreibtisch auf die Tischplatte will – und wie ich
 ---
 <br/>
 
-<img src="/assets/2026-11-23-Mann-Nachdenklich-zur-Seite.jpg"alt="Nachdenklicher Mann mit Hand am Kinn sitzt am Schreibtisch zwischen grünen Pflanzen und blickt zur Seite, als Symbol für innere Spurensuche" style="max-width:100%"/>
+<img src="/assets/2026-11-23-Mann-Nachdenklich-zur-Seite.jpg" alt="Nachdenklicher Mann mit Hand am Kinn sitzt am Schreibtisch zwischen grünen Pflanzen und blickt zur Seite, als Symbol für innere Spurensuche" style="max-width:100%"/>
 <p><small>Symbolfoto. Foto: getty auf Unsplash+</small></p>
 
 Warum mein Kopf am Schreibtisch auf die Tischplatte will – und wie ich freundlich mit mir umgehe (Teil 2)
